@@ -824,7 +824,7 @@ By Spring High prelims, Ukai has a 1st year he can put in for anyone in the back
 | --- | --- | --- |
 | Suzumushi | Receive and cover by sound | ch 29 to 32 |
 | Byakugan, budget | 1-look snapshot of every player before the serve | ch 31 |
-| Kagemane | Dig in his own block's shadow, behind an honest block | ch 36 (Kuroo) |
+| Kagemane | Dig in his own block's shadow, behind an honest block | ch 37 (Kuroo) |
 | Hawk-Eye calls | Back-row 1-word calls ("Two!", "Short!", "Feint!"); never calls Tsukishima's blocks | ch 32 |
 | Kawarimi (chin bait) | Known now (Iwaizumi, Kuroo); Tanaka owns the face lie | used up |
 | Blind Spot | Off-speed into the space the map shows empty | ch 40 |
@@ -894,7 +894,7 @@ Canon venues (03_canon): trip 1 is a weekend of away games at **Fukurodani Acade
 ### Status card plan
 
 - **Ch 29:** none (Arc 2 cost him and earned no rank).
-- **Ch 36:** Reception D to C.
+- **Ch 36:** Reception D to C (written; Yaku's 10). The eye's "Adapting" stage stays prose-only; the card reads Partial awakening until ch 45.
 - **Ch 39:** Set E to D.
 - **Ch 45 (end of Arc 3):** Block E to D, Serve D to C, Mentality B to A. Emperor's Eye: Conditioned (trait: Elite Observational Genius). Meta Vision: Half map (trait: Long-Term Strategic Scrutiny).
 

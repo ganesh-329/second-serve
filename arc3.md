@@ -2284,3 +2284,460 @@ Ukai leaned over and read it upside down, and grunted, and turned the roof light
 - **Drive back:** Ukai drove with both hands. "He said that to me when I was 12. About blocking. I've been working out what it means for 14 years." (Keishin 26.) "*Sees the hit before the hitter.* What's that about?" "I see things early. It's IQ." "You heard that?" "You said it to Takeda-sensei. In the gym. Before exams." (ch 30) "Annoying old man." Sho practiced ruling out on traffic (blue car, delivery van); slow; a little ache like after Classical homework; "the most fun he'd had all week." A taxi U-turned where nothing could turn: "Taxi."
 - **8:20 at the gate, roof light:** under *So keep it. Then what?*: *Look at what can't happen. Stand in what's left. / Slow for a month. (He said maybe 2.) / Saitama: 16 days.* (Takeda pinned the camp letter to the club room door.) Ukai read it upside down, grunted, turned the light off.
 - Next: ch 36 "Saitama" (Sho): the doctor's check-up before leaving ("adapted, like any muscle"); midnight bus to Shinzen; the week-long camp; begs Yaku for reps; Reception D to C (status card); serve targeting on Ubugawa; the eye holds 2 rallies without soreness for the 1st time.
+
+## Chapter 36: Saitama
+
+For 16 days Sho crossed things out.
+
+He did it in the receive line, where it was easiest, because a server only has so many choices. Tanaka's toss went up a little behind his head: so it couldn't be short. Ennoshita stood square: so it wasn't going to the seam on the left. Asahi, who'd started jump serving that week on his own, 20 a day at the end of practice, with his jaw set and most of them going into the net or the ceiling, threw the ball up so high and so far in front of himself that half of the court went dark before he'd even left the ground. Wherever an Asahi jump serve went, it wasn't going to be soft.
+
+Sho stood in what was left. It was slow. It stayed slow through the 1st week, and then 1 evening in the 2nd week it was a little less slow, and he couldn't have said which rep it changed on.
+
+Yachi filmed it. She stood on the bench in the corner with her elbows tucked in, every evening, and afterward they sat on the concrete step by the side door with the torch and counted. His heels still came down. They came down every time; Ikkei had said they would. But they came down in a wider place now, a place that was right for 2 balls, sometimes 3, and on Yachi's little screen it looked like somebody stepping into a doorway.
+
+Hinata and Kageyama still weren't speaking. Hinata went somewhere with the shop van twice more. Kageyama stayed late every night and set balls to an empty court, alone, high and then low and then high again, with his face screwed up, as if he was trying to stop the ball in the air with his hands and couldn't work out how. Nobody asked him what he was doing. Sho kept out of it, and kept crossing things out.
+
+Mio's notebook grew. He saw it on the kitchen table some mornings, open, with new lines in it in her forward-leaning pencil. *6. Says "it's fine" in his normal voice when it IS fine. (Check.)* *7. Talks to the cat next door.* He didn't know which was more embarrassing. He didn't ask her to stop.
+
+---
+
+The clinic was the same one as in June, up the stairs above the pharmacy, with the same television in the corner of the waiting room showing high school baseball with the sound turned down.
+
+Mom took the afternoon off. She sat beside Sho on the vinyl bench in her office clothes with her ID still on its lanyard and a magazine she didn't open. Mio had wanted to come and had been told she couldn't, and had made Sho promise, at breakfast, to ask the doctor 2 questions she'd written on a sticky note and stuck to the back of his hand.
+
+He read the sticky note while they waited. *1. Is it better. 2. How much better (number).*
+
+"Kiyose Sho-kun."
+
+The doctor was the same woman as in June, small and quick, with her reading glasses pushed up into her hair. She did the chart, which he read to the bottom line without trying. She did the pen, bringing it in toward his nose, and his eyes followed it in together, both of them, all the way, until it nearly touched him. She did the card with the fly on it, and the fly stood up off the page the way it had in June, and she didn't need to ask him whether it had.
+
+Then she did a test he hadn't had before, with a small machine and lights that came on and went off at the edges while he kept his eyes on a dot in the middle and clicked a button for every one he saw. He found himself doing what Ikkei had said without meaning to: looking at the middle and letting the edges come. He clicked a lot.
+
+"Full fields," said the doctor, reading the printout. "Nothing missing. That's the 1 I wanted, after June." She put it down and picked up the other sheet, the one with the June numbers on it, and laid them side by side on the desk. "And this."
+
+She turned them round so Mom could see. Sho could see too. The June column was the one with the circles round it.
+
+"The muscles that turn his eyes in," said the doctor. "In June they'd been worked too hard, too fast, and they gave out. Since then he's used them every day, a little at a time, the way I told him. And they've done what muscles do." She tapped the new column. "They've adapted. Like any muscle you train."
+
+Mom looked at the 2 columns for a while. She didn't say anything. Her thumb moved once along the edge of the magazine.
+
+"So he can play," she said. "At the camp. All week."
+
+"He can play. Same rule: if they hurt, he stops." The doctor looked at Sho over the top of her glasses. "You can have 2 hours of screens now. Still not before bed."
+
+"Thank you very much," said Sho. Then, because he'd promised, he held up the back of his hand with the sticky note on it. "My sister asked me to ask. Is it better? And how much better, as a number?"
+
+The doctor read the sticky note. Her mouth twitched. She looked at the 2 columns.
+
+"Tell her yes," she said. "And tell her: if June was 100, today's about 120."
+
+Sho wrote *120* on the sticky note with the doctor's pen, under Mio's questions, and stuck it back on his hand.
+
+In the stairwell going down, Mom walked beside him with her bag over her shoulder, her eyes on the steps. On the last flight, she reached over and took hold of his sleeve, the cuff of it, between her finger and thumb, the way she'd held it when he was 4 and they crossed roads, and held it to the bottom. Then she let go and walked out ahead of him to the vending machine by the pharmacy door, and bought a can of cold green tea, and drank half of it standing on the pavement, and gave him the rest.
+
+---
+
+The bus for Saitama left the school gate at midnight.
+
+Dad walked him there, carrying the bag. Mio came too, in her pajamas with a cardigan over them and her school shoes on with no socks, holding Dad's other hand, because she'd said that if she wasn't allowed to come she'd stay awake anyway and then she'd be tired *and* angry, and Mom, who'd seen her do both at once, had let her.
+
+The street was hot and black and full of cicadas even at that hour. The bus was waiting under the lamp post that worked, engine running, lights on inside, and half the team was already standing round it in tracksuits, yawning. Hinata was there, bouncing. Kageyama was there, 10 meters from Hinata, not bouncing.
+
+Mio let go of Dad's hand when they got to the bus. She stood in front of Sho in the light from the bus door and looked at him: knees, then arms. She did it right there in front of him, under the lamp post, with half the volleyball club watching.
+
+Then she patted her cardigan pocket, where the sticky note was.
+
+"9:30," she said.
+
+"9:30."
+
+She nodded, once, the way Daichi nodded at the end of a team talk. Then she turned round and took Dad's hand again and they walked off up the street, a tall man in shirtsleeves and a small girl in pajamas and a cardigan, and she didn't turn round, and Sho stood by the bus door and watched them go until they turned the corner by the shrine.
+
+"Your sister's scary," said Tanaka, beside him, with deep respect.
+
+---
+
+Shinzen High School was in the hills west of the city, and the bus came up to it at 5:40 in the morning, in a white mist that was already turning warm. There were trees everywhere, and behind the school a road went straight up a hill with no bends in it at all. Tanaka looked at it through the window and said, "What's that for?" and Ennoshita said, "Don't ask," and Tanaka said, "Why not?" and Ennoshita said, "Because they'll tell you."
+
+Kuroo and Kenma were at the school gate when the bus pulled in.
+
+Kuroo was leaning on the gatepost with his hands in his pockets and his hair worse than ever in the damp, grinning. Kenma was beside him with his console. They'd come out to meet the bus, which was a thing Kuroo would do and Kenma would only do if Kuroo made him.
+
+"Karasuno!" said Kuroo. "Welcome to Saitama. It's very hot and there's a hill." His eyes went along them as they came off the bus with their bags, Daichi, Suga, Asahi, and found Sho. "Notebook."
+
+"Good morning, Kuroo-san."
+
+"Still writing?"
+
+"Every day."
+
+"Good. I'd hate to be left out." He jerked his head at the road up the hill. "That's for losing, by the way. Every game you lose, up and back. Welcome."
+
+Kenma looked up from his console. His eyes went to Sho's face, and then down, the way they always did, to Sho's feet.
+
+Sho was standing on the tarmac by the bus with his bag on his shoulder, his weight easy, his heels where they always were.
+
+Kenma looked at them. Then back at his console.
+
+"Hello," said Kenma.
+
+---
+
+Ukai gave his camp talk in the gym at 8, with every team at the camp warming up around them.
+
+"Look round," he said. "Go on. Look."
+
+They looked. Fukurodani's ace was hitting balls so hard they bounced into the stands. Nekoma's libero was passing jump serves as if they were thrown underarm. Ubugawa's whole team was serving, 1 after another, every 1 of them going up into the air.
+
+"Every team in this gym does something better than we do," said Ukai. "Not 1 thing. Lots of things. Serves, blocks, receive, the way they talk on court. You've got a week." He folded his arms. "Eat it. All of it. Every trick, every habit, every technique you see, eat it and take it home. I don't care if it's from Nekoma or Fukurodani or the 3rd-string kid on Ubugawa who can only do 1 thing. You're omnivores this week. Got it?"
+
+"YES!"
+
+After that, while the others went to warm up, he caught Sho at the side of the court.
+
+"Same rule," he said. "Hand up if it burns, and you come off."
+
+"It hasn't burned since Tokyo, Coach."
+
+"Then it won't cost you anything to keep the rule." Ukai looked at him. "Doctor?"
+
+"120," said Sho. "If June was 100."
+
+Ukai's eyebrows went up. "Who's measuring?"
+
+"My sister."
+
+Ukai snorted, and went to shout at Noya.
+
+---
+
+The 1st day was games from 8:30 to 6, single sets to 25, 1 after another, and Karasuno lost all of them.
+
+Half the team was trying something new, and nothing new was working yet. Hinata jumped with his eyes open. Kageyama tried to set a ball that stopped at the top, and it kept not stopping. Asahi served 1 jump serve per rotation, and 2 out of 3 went out. Ukai let all of it happen, standing at the side with his arms folded, and every time they lost, they went up the hill.
+
+It was 300 meters long and as steep as a staircase. You ran up it, and walked down. By the 4th time Tanaka had stopped yelling on the way up, which nobody had ever seen.
+
+Sho played in pieces: a rotation in the back row for Asahi, against Fukurodani, in the middle of the afternoon.
+
+At 14-19 Bokuto came in from the left, big and loud, and Sho did what Ikkei had told him. He looked at the shoulder, turned toward the cross. He looked at the hips, open. He crossed out the line: Bokuto's shoulder was wrong for it, he'd have to turn his whole body at the top, and nobody could do that. He crossed out the tip: the arm was all the way back. He stood in what was left, the cross, short and deep. His heels came down.
+
+At the top of his jump, with the ball already in front of him, Bokuto turned.
+
+He turned his whole body in the air, the way nobody could, from the hips, and his arm came through on a completely different line, and he hit it straight down the line, hard, into the back right corner of Karasuno's court, into the exact place Sho had crossed out 1 second before.
+
+It hit the floor 3 meters from Sho. He hadn't moved.
+
+"HEY HEY HEY!" said Bokuto, landing.
+
+Sho stood in his strip, in what was left, and looked at the ball rolling away into the wall. *Good ones do things that can't happen,* Ikkei had said. *Sometimes.*
+
+Bokuto did it twice more before the rotation came round. Sho crossed him out right both times, by every rule there was, and both times Bokuto decided in the air to be somebody else.
+
+They lost 25-17. Sho went up the hill 6 times that day. On the 3rd he laughed, halfway up, out of nowhere, and nobody noticed, because everybody was too busy trying not to be sick.
+
+---
+
+At dinner on the 1st night Lev stood up at Nekoma's table with a bowl of rice in his hand and announced to the whole hall, in a voice of tremendous injury, "Yaku-san says I have to be in the GYM at 6 o'clock TOMORROW. In the MORNING. To RECEIVE."
+
+"Sit down, Lev," said Yaku, without raising his voice, and Lev sat down.
+
+Sho set his alarm for 5:30.
+
+The gym was empty at 6 except for 2 people. Yaku was standing at the service line with a basket of balls, in a T-shirt and shorts, very small and very awake. Lev was in the middle of the far court, 194 centimeters of him, with his arms out in front of him and his face full of suffering.
+
+"Again," said Yaku, and served, a sharp topspin serve straight at Lev's chest.
+
+Lev got it on his face, sort of, and his arms, partly, and it went off into the stage.
+
+"Arms, Lev! Arms! Your face isn't a platform!"
+
+"It's 6 in the morning, Yaku-san!"
+
+"The ball doesn't know what time it is!"
+
+Sho stood in the doorway and watched 4 more serves. Yaku served the way he did everything, with no wasted motion at all, and every serve went exactly where he wanted it, at Lev's chest, at Lev's left hip, short in front of Lev's feet, and every time, before Lev moved, Yaku was already shouting the correction.
+
+Sho walked across the gym and stopped beside the basket and bowed.
+
+"Good morning, Yaku-san. Please bully me too. The same as Lev." He straightened up. "I'll be quieter than him."
+
+Yaku looked up at him. A long way up. Yaku's eyes narrowed in a way that Sho, who'd watched Yaku play in May and in Tokyo, recognized as the face of a man deciding whether somebody was making fun of his height.
+
+"Why?" said Yaku.
+
+"Because you're the best receiver at this camp," said Sho. "And I'm not very good."
+
+Yaku went on looking at him, checking. Then his shoulders came down a little.
+
+"You're Karasuno's 13," he said. "The one who goes still."
+
+"Yes."
+
+"Nekoma's whole team knows about the still thing. Kenma told Kuroo on the train, and Kuroo told everybody." Yaku picked up a ball. "Get on the court. Next to Lev. Not too close, he flails."
+
+"I do not FLAIL!"
+
+Sho went and stood on the far court, 3 meters to Lev's left. Lev looked down at him with interest.
+
+"You came here at 6 in the morning," said Lev. "On purpose."
+
+"Yes."
+
+"For THIS?"
+
+"Yes."
+
+"Are you sure you're a 1st year?" said Lev. "You play like an old man."
+
+Sho thought about it.
+
+"Thank you," he said, and Yaku served at him.
+
+---
+
+Yaku had a test. He told them what it was after the 1st 20 serves, when he'd seen enough to be disappointed in both of them.
+
+"10 serves," he said. "In a row. Each 1 passed to within 1 step of the setter's spot." He pointed at a strip of white tape he'd stuck on the floor by the net, a little right of center. "If the pass lands more than 1 step from the tape, it doesn't count, and you start again from 1. Lev's record is 2."
+
+"It's 3!"
+
+"The 3rd 1 hit the tape and bounced off your knee. It's 2." Yaku looked at Sho. "Go."
+
+Sho went. Yaku served the 1st at his right hip, topspin, and Sho saw it, the toss, the shoulder, the line of the arm, and crossed out short and crossed out left and his heels came down and he went, and passed it, and it landed on the tape.
+
+"1," said Yaku.
+
+The 2nd landed half a step to the left. "2."
+
+The 3rd he saw, and crossed out, and stopped, and went, and the ball was already on him, and it came off his wrists and went into the stage after Lev's.
+
+"Back to 1," said Yaku.
+
+He did it 6 more times that morning. His best was 3 in a row.
+
+At 6:50 Yaku put the last ball in the basket and walked across the court to Sho, and stood in front of him, and looked up.
+
+"You see it fine," said Yaku. "You see it before I've hit it, half the time. I've been watching your eyes. You know where it's going." He pointed down. "Your feet are late."
+
+Sho looked down at his feet.
+
+"You look," said Yaku, "and then you stop where you're standing, and then you go. Everybody stops. Liberos stop. But we stop *there*." He pointed at a spot on the floor a step and a half from Sho's right foot. "Where it's going to land. You go while you're still looking. Feet first. You stop when you get there. And then, when you're there, you look at it again. Once. A long look. All the way onto your arms."
+
+"Stop where it lands," said Sho slowly. "Then look at it again."
+
+"That's what I said." Yaku turned back to the basket. "Same time tomorrow."
+
+Sho stayed on the empty court after they'd gone, with his feet flat on the floor where Yaku had pointed at them.
+
+*You see it fine. Your feet are late.*
+
+He'd written that, in the other life. *Good reader. Feet late.* About 100 receivers. He'd paused them on tape and drawn the red arrow from where their feet were to where their feet should have been, and thought, every time, a little impatiently: *just move your feet.* Then he'd drawn the arrow and left it there.
+
+He went to breakfast and ate 3 bowls of rice, and thought about feet.
+
+---
+
+That afternoon Karasuno played Ubugawa.
+
+Ubugawa were the jump serve school. You could tell from the sound of their warm-up, the long run-ups, the crack of the ball off the hand, the way every 1 of their players, even the small ones, went up into the air to serve. Their captain said it at lunch, loudly, like a threat, to Tanaka, who'd asked: 100 serves each after practice. Every day.
+
+Sho watched their warm-up from the bench with his eyes half shut.
+
+He couldn't hear everything in Shinzen's gym. It was big and loud, like Fukurodani's, with 2 courts going at once. But he'd learned in Tokyo how to pick out 1 sound if he sat still and wanted it enough. Ubugawa's passers, taking each other's jump serves in warm-up, all made the same sound when the ball came off their arms: a short flat *tok*, clean, the sound of a platform that knew what it was doing.
+
+All of them except 1.
+
+Their #9 was a 2nd year, by his face, a little stocky. When the ball came off his arms it made a thicker sound, a *thud*, with something soft in it, as if it had hit him a fraction too far down on the wrists, a fraction late. About 1 in 3. The other 5 passers never made that sound at all.
+
+Sho opened his eyes and watched #9. His arms looked fine. His feet looked fine. With your eyes alone you'd never have picked him out.
+
+He wrote, on the bench, in pencil: *U #9. Sound wrong. 1 in 3.*
+
+Ukai sent him in at 14-17, for Tanaka, who'd come back from the morning's hill with his legs shaking. The rotation had just brought Tanaka's spot round to serve.
+
+Sho walked to the end line with the ball in his hands. His own float serve wasn't much: flat, no spin, a little slow, nothing like Yamaguchi's, which wobbled in the air like a leaf and was getting better every week. Sho's went where he pointed it about half the time. The other half it went into the net or a meter long.
+
+He bounced the ball twice. He looked at #9, in the middle of Ubugawa's back row, standing easy, waiting.
+
+He tossed it and hit it at #9's left hip.
+
+It went over the net flat and slow, a ball a good passer would have eaten for breakfast, and #9 put his arms out and the ball came off his wrists with the soft wrong *thud* and went sideways, low and fast, straight into the bench.
+
+Ace. 15-17.
+
+The Karasuno bench went up. Hinata yelled. Tanaka yelled, from the bench, louder than Hinata. Sho walked back to the end line to serve again and caught Ukai's eye on the way. Ukai was looking at him with his arms folded and his head on 1 side.
+
+Sho served at #9 again. It went a meter long. 15-18.
+
+Ubugawa served, and Sho found out what it was like to be #9.
+
+They'd been watching too. Ubugawa's server, a 3rd year with a huge jump, looked straight at Sho before he tossed: the new boy, the sub, the 1 who'd just come on. The serve came at Sho like something fired out of a pipe. He saw it, and crossed out, and his heels came down where he was standing, and he went, a step late, Yaku's step, and the ball came off his arms and went straight into the net.
+
+15-19.
+
+The next serve came at him too. He went earlier, feet first, before he'd finished looking, and got it up, but high and off the net, and Kageyama had to chase it, and Asahi hit a ball he didn't like into the block. 15-20.
+
+"Kiyose!" said Noya, beside him, low and fierce. "Feet!"
+
+"I know."
+
+The 3rd serve came at him as well. He moved while he was still looking. He stopped where it was going to land. He looked at it again, all the way onto his arms. It went up, not to the tape, not to anywhere Yaku would have counted, but up, to Kageyama, who set the middle, and Hinata, eyes open, hit it off the block and out.
+
+16-20. Karasuno's ball. Sho let out a breath he'd been holding since the ace.
+
+---
+
+It happened 4 rallies later, with Sho in the middle of the back row.
+
+Ubugawa's ace was their #1, a 3rd year with a long, clean, loose arm, who'd been hitting cross into the deep corner all game. Sho had watched him from the bench, and on the court, and in warm-up, and crossed him out in his head so many times that the deep corner had a kind of shape to it now, a shape he could almost see when #1 started his approach.
+
+At 19-22, #1 came in from the left. Sho crossed out the line, the shoulder was wrong for it, and the tip, the arm was all the way back. He stood in the strip that was left. His heels came down.
+
+And the gym went quiet.
+
+It came the way it always came, without asking. The noise of both courts went far away, and #1 hung over the net in points of light, shoulder and elbow and wrist and hip, and the brightest of them was his hand. The ghost peeled off it a blink early and swung across, cross, and from that long loose arm and that height Sho knew it would come down short of the deep corner, just inside the strip he was standing in.
+
+He moved 1 step. The ball came onto his arms and went up, high and soft, to the middle, and Kageyama set Asahi on the right, and Asahi hit it into the floor. 20-22.
+
+The noise came back. Sho stood in his spot and waited for what always came after, the warm sting behind his eyes, the dull hot weight of having looked at something too bright. It didn't come.
+
+Karasuno served. Ubugawa passed it, and set #1 again, from the left.
+
+And the ghost was still there.
+
+It hadn't gone. It had been there all through the serve and the pass and the set, faint, sitting over #1 like something left on a screen after you've turned it off, without Sho doing anything to keep it. When #1 went up, it peeled off his hand again, a blink early, and swung down the line this time, the line Sho hadn't crossed out because #1 had turned his shoulder for it, and Sho was already moving, 2 steps to the right, and down.
+
+He dug it. It went up wild, toward the bench, and Noya ran it down and scooped it back over, and Ubugawa put it away. 20-23.
+
+Sho got up off the floor and stood in his spot and waited again.
+
+Nothing. His eyes felt the way his legs felt after a good warm-up: used, and warm, and ready for more. The ghost had faded off #1 now, the way it always faded in the end, but it had held for 2 whole rallies, on its own, and there was nothing behind his eyes at all.
+
+Ubugawa won it 25-21. The rotation came round and Tanaka came back on for the last 2 points; Sho went to the bench, and Ukai, with his eyes still on the game, said, "Who told you to serve at 9?"
+
+"His platform sounds wrong in warm-up, Coach."
+
+Ukai turned his head.
+
+"Sounds," he said.
+
+"The ball sounds dead off his arms. Some of the time. The others don't."
+
+Ukai looked at him, and then back across the court, at #9, who was shaking his arms out at his sides as if they'd been stung.
+
+"Hm," said Ukai. "Keep doing it. And get your feet sorted. They found you in 2 serves."
+
+Karasuno went up the hill. Halfway up, with his lungs on fire and his legs full of sand, Sho noticed he was smiling, with no reason he could have given Tanaka, who was beside him, gasping, and looking at him as if he'd gone mad.
+
+---
+
+At 9:30 he called home from the bench outside the dining hall, under a light with moths round it, the same as Tokyo.
+
+"Who'd you play," said Mio.
+
+He told her. 5 games, 5 lost. 5 times up the hill. He told her about the hill, and Yaku, and Lev, and what Lev had said about old men, and she laughed so hard she had to put the phone down.
+
+"Okay," she said, when she'd picked it up. "Eyes."
+
+"Once. Against Ubugawa." He looked at the moths. "It stayed for 2 rallies. On its own. It's never done 2 on its own."
+
+"Where did it hurt?"
+
+"Nowhere," said Sho.
+
+The line went quiet.
+
+"Nowhere?"
+
+"Nowhere. Not after the 1st 1, and not after the 2nd."
+
+He heard her pencil. It went on longer than *nowhere* needed.
+
+"What did you write?"
+
+"Eyes: 2 rallies," Mio read out. "Hurt: 0." A pause. "And I drew a circle round the 0. A big circle."
+
+---
+
+On the 3rd morning, at 6:05, in the empty gym, with Lev groaning 3 meters to his right and the mist still white in the high windows, Yaku served his 1st ball of the day at Sho's right hip.
+
+Sho went before he'd finished looking. He'd been doing it in his head since the 1st morning, at every water break, in the bath, on the hill: feet first. Go while you're still looking. Stop where it's going to land. Then look at it again, once, all the way onto your arms.
+
+His heels came down when he was already there.
+
+The ball landed on the tape. "1," said Yaku.
+
+Short, in front of his feet. He was moving before Yaku's hand finished the swing. Tape. "2."
+
+Left hip, hard. "3."
+
+At 6 he stopped hearing Yaku count. At 8 Lev stopped groaning and started watching. At 9 Yaku served the hardest 1 he'd served all week, a flat, mean, fast serve straight at Sho's chest, the kind that made you flinch, and Sho's feet took him half a step back and to the side before the ball was over the net, and he looked at it all the way in, the long still look, and it came off his arms soft and dead and dropped onto the tape.
+
+"9," said Yaku.
+
+The 10th went at his left, high, at the seam. He was there. He looked. The ball came down onto his platform, and went up, and fell on the tape, and rolled off it, half a step, and stopped.
+
+Within 1 step.
+
+Yaku stood at the service line with his hand on the basket.
+
+"10," he said.
+
+Lev said, "WHAT? In a ROW?"
+
+Yaku picked up another ball and looked at it, and then at Sho. His face didn't do much. It was a libero's face; it gave nothing away it didn't have to. He kept looking at Sho, and then he nodded, once.
+
+"Again tomorrow," said Yaku. "Or it was luck."
+
+---
+
+That night, after the bath, the old gym on the far side of the school was lit up.
+
+It was the 3rd gymnasium, at the edge of the campus, by the trees. Kuroo had mentioned it at the gate on the 1st morning, the way he mentioned everything, like bait: Fukurodani's captain practiced there every night after dinner until somebody dragged him out. You could hear it from the corridor, the long roaring approach, the crack of the hand on the ball, and a voice, enormous, delighted, shouting into the dark.
+
+Sho was coming back from the bathhouse with his towel round his neck when the side door of the 3rd gym banged open and a figure filled it, backlit, hair sticking up in 2 gray and black points like horns.
+
+"HEY!" shouted Bokuto, across 30 meters of dark grass. "HEY! YOU! 13! Karasuno's 13! The 1 who got my best 1 in Tokyo!"
+
+Sho stopped.
+
+"Come here! Come here! Akaashi, it's him! The digger!" Bokuto was waving both arms over his head as if he was flagging down a plane. "We need a digger! Kuroo's useless at it and your tall blond 1 won't stay! Come and dig! You stood in the wrong place 3 times on the 1st day, I saw! I'll give you my best 1 again! I'll give you 50 of them!"
+
+Behind Bokuto, in the light of the doorway, a calm dark head appeared at his shoulder. Akaashi looked out across the grass at Sho with the same short plain look as in Tokyo.
+
+"Bokuto-san," said Akaashi. "He's just had a bath."
+
+"He can have another 1!"
+
+Sho stood on the path in the dark with his towel round his neck. He looked at the lit doorway, at Bokuto's arm, already swinging, already impatient, the arm that had turned in the air and done the thing that couldn't happen, 3 times, and left him standing in what was left.
+
+He went.
+
+```
+[Kiyose Sho]
+Age: 15 | Height: 182cm | Karasuno #13
+Power: C   Jump: B   Speed: C   Stamina: B
+Reception: C (from D)   Serve: D   Block: E   Set: E
+Mentality: B   Shamelessness: S
+Emperor's Eye: Partial awakening
+Meta Vision: Scanning
+```
+
+**Continuity (ch 36)**
+
+- Sho POV. The 16 days before camp, the check-up, the midnight bus, Shinzen days 1 to 3. **Status card: Reception D to C (Yaku's 10).** Emperor's Eye stays *Partial awakening* on the card (the bible's "Adapting" stage is prose-only; the card jumps to Conditioned at ch 45). Meta Vision still Scanning on the card.
+- **16 days:** ruling out in the receive line (Tanaka's toss, Ennoshita square, Asahi's jump serve: Asahi started it on his own that week, 20 a day, mostly net or ceiling; his). Slow, then a little less slow in the 2nd week. Yachi films every evening; heels still come down, "in a wider place now... right for 2 balls, sometimes 3"; on tape "like somebody stepping into a doorway." Hinata went with the shop van twice more; **Kageyama stays late setting to an empty court, trying to stop the ball at the top (canon stopping toss; his)**. Mio's notebook: *6. Says "it's fine" in his normal voice when it IS fine. (Check.)* *7. Talks to the cat next door.*
+- **Clinic (same as June: up the stairs above the pharmacy, TV with high school baseball; same doctor, glasses in her hair):** Mom took the afternoon off. Mio's sticky note on his hand: *1. Is it better. 2. How much better (number).* Chart to the bottom; pen all the way in; the fly stood up; visual field test ("Full fields. Nothing missing. That's the 1 I wanted, after June."). June numbers vs today side by side. **"They've adapted. Like any muscle you train."** Same rule (hurts = stop); **screens now 2 hours, still not before bed.** "If June was 100, today's about 120." In the stairwell Mom held his cuff (as when he was 4); cold green tea, half each.
+- **Midnight bus:** Dad walked (bag; shirtsleeves); Mio in pajamas and cardigan, school shoes, no socks. **Mio did the door check (knees, then arms) in front of him and the team.** Patted the sticky note in her pocket. "9:30." "9:30." Didn't turn round. Tanaka: "Your sister's scary."
+- **Shinzen (hills west of the city; penalty hill: 300 m, steep as a staircase, up once and walk down per lost game):** arrived 5:40, warm mist. Tanaka/Ennoshita: "What's that for?" "Don't ask... Because they'll tell you." **Kuroo and Kenma met the bus (canon).** Kuroo: "Notebook... Still writing?" "Every day." "Good. I'd hate to be left out... That's for losing." Kenma looked at Sho's feet: "Hello."
+- **Ukai's omnivores talk (canon theme; wording invented):** "Look round... Every team in this gym does something better than we do... Eat it. All of it... You're omnivores this week." Rule: "Hand up if it burns, and you come off." "It hasn't burned since Tokyo." "Then it won't cost you anything to keep the rule." "120... If June was 100." "Who's measuring?" "My sister."
+- **Day 1: lost every game** (Hinata eyes open, Kageyama's set won't stop, Asahi 1 jump serve per rotation, 2 of 3 out); up the hill 6 times; Tanaka stopped yelling by the 4th; Sho laughed on the 3rd. **Vs Fukurodani at 14-19: Sho ruled out Bokuto's line correctly; Bokuto turned his whole body in the air and hit line into the crossed-out corner (3 m from Sho, no move). 3 times in the rotation.** ("Good ones do things that can't happen. Sometimes.") Lost 17-25.
+- **Day 1 dinner:** Lev: "Yaku-san says I have to be in the GYM at 6 o'clock TOMORROW." Yaku: "Sit down, Lev."
+- **Day 2, 6 a.m.:** "Please bully me too. The same as Lev. I'll be quieter than him." "Why?" "Because you're the best receiver at this camp. And I'm not very good." **Yaku: "You're Karasuno's 13. The one who goes still... Kenma told Kuroo on the train, and Kuroo told everybody."** **Lev: "Are you sure you're a 1st year? You play like an old man." "Thank you."** (Lev's line, used once.)
+- **Yaku's 10** (tape a little right of center; a miss = back to 1; Lev's record 2, "It's 3!"). Day 2 best 3. **Yaku: "You see it fine... Your feet are late... Everybody stops. Liberos stop. But we stop *there*. Where it's going to land. You go while you're still looking. Feet first. You stop when you get there... look at it again. Once. A long look."** (Squares with Ikkei: the stop is fine; where you stop matters.) Satoshi's reports: *Good reader. Feet late.* about 100 receivers; drew the arrow and left it there.
+- **Ubugawa, day 2 afternoon (canon: jump-serve school; captain: 100 serves each a day):** Sho heard #9 (2nd year, stocky) "thud" about 1 in 3. **In at 14-17 for Tanaka (legs gone from the hill), serving on entry (Sogeking debut): ace off #9 (15-17); 2nd serve a meter long (15-18).** **Counter: Ubugawa served the new sub: shank into the net (15-19), high off the net (15-20; Noya: "Feet!"), then a pass to Kageyama (16-20).** **The eye: 19-22, #1 (3rd year ace) cross; Sho ruled out line and tip; the ghost swung cross and Sho read the depth from the arm; dug; Asahi scored 20-22; no sting. Karasuno served; Ubugawa set #1 again; the ghost was still there ("like something left on a screen after you've turned it off"); line; Sho dug it wild; Noya kept it; Ubugawa scored 20-23. No sting: "used, and warm, and ready for more."** Ubugawa won 25-21; Tanaka back for the last points. Ukai: "Who told you to serve at 9?" "His platform sounds wrong in warm-up." "Sounds." "Hm. Keep doing it. And get your feet sorted. They found you in 2 serves." Sho smiling up the hill.
+- **Day 2 call (9:30, bench outside the dining hall, moths):** 5 games, 5 lost, 5 hills. Lev's old-man line made Mio laugh. **"It stayed for 2 rallies. On its own. It's never done 2 on its own."** (ch 22's forced 11 rallies were forced.) "Where did it hurt?" **"Nowhere."** Mio: *Eyes: 2 rallies. Hurt: 0.* (a big circle round the 0).
+- **Day 3, 6:05: Yaku's 10 complete** (feet first; heels down when already there; the 9th the hardest serve of the week at his chest; the 10th rolled half a step off the tape). Lev: "WHAT? In a ROW?" **Yaku: "Again tomorrow. Or it was luck."**
+- **Night 3, the 3rd gym (canon venue; Kuroo mentioned it at the gate as bait):** Bokuto: "HEY! YOU! 13!... The 1 who got my best 1 in Tokyo!... We need a digger! Kuroo's useless at it and your tall blond 1 won't stay!... You stood in the wrong place 3 times on the 1st day, I saw!... I'll give you 50 of them!" Akaashi: "Bokuto-san. He's just had a bath." "He can have another 1!" **Sho went.**
+- Bible note: Kagemane (Kuroo's "stand in my shadow") now debuts in ch 37.
+- Next: ch 37 "Moonrise" (Sho): nights 3 to 5 in the 3rd gym; Akaashi sets, Bokuto hits, Kuroo blocks; **Sho invites the eye for the 1st time** (on Bokuto) and it comes; digs Bokuto 1, then 3, then 6 a night; Kuroo: "Stand in my shadow." The moonrise night (Tsukishima/Yamaguchi, Tsukishima's question, Bokuto's "the moment") stays theirs; Sho leaves before it.
