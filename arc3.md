@@ -4935,3 +4935,432 @@ Kageyama took it back and drank from it again, his eyes on Fukurodani's bench, a
 - Ace path: passed Bokuto's jump serve; hit Asahi's spot for a whole set; the bad ball, finally his (Hinata gave it). Asahi told Coach 1st (the ace's hand going up; unstated mirror).
 - **Review fixes (Oct 30):** set 1: Sho came in for Asahi after Asahi's serve (2 rotations); Tanaka hit off Sho's pass of Bokuto's serve; the new quick tried 6 times (1 in). Set 2: new quick at 9-9, 14-13, 19-19; Bokuto's sulk at 15-17, back at 15-18; Sho blocked with Hinata on the last rally (Tsukishima back row); **the eye did not fire on the bad ball: map only** (the eye shows hitters and setters). Kageyama alone says "Again."
 - Next: ch 44 "Last ball" (Sho): set 3; Fukurodani wins (canon result: Fukurodani wins the final); **"Map right on Bokuto's last ball; arms not enough"**; Kageyama: "You were there. All 3."; Bokuto, Akaashi; penalty, laughing on the floor/hill.
+
+## Chapter 44: Last ball
+
+The whistle went for set 3, and Bokuto came to the net and pointed at him.
+
+"13!" he said. "I'M BLOCKING YOU!"
+
+Bokuto said it the way other people announce a birthday, and Konoha, beside him, put his face in his hand.
+
+"Please go easy on me, Bokuto-san," said Sho.
+
+"NO!"
+
+Akaashi, behind them, looked at the ceiling.
+
+Fukurodani served 1st. Daichi passed it to the setter's spot, and Kageyama set Sho on the right, high and a little off the net, the ball an outside hitter likes. Sho went up into it, and Bokuto went up with him.
+
+He'd blocked Bokuto and dug him all week, and at the top of this jump he found out what it was to hit at him with Bokuto really trying. Bokuto's hands came over the net late and big, both of them, and stopped there, flat, in the air above the tape, and they were higher than Sho's hand. A hand's width higher. Maybe a bit more. Sho hit the ball as hard as he could into the middle of them, and it came straight back down at his own feet.
+
+0-1.
+
+"1!" Bokuto landed with both arms up. "THAT'S 1 EACH, 13! YOU GOT ME, I GOT YOU!"
+
+Sho stood under the net and looked at the place where Bokuto's hands had been.
+
+He knew what it was. He'd known before he landed. The swing was fine. The approach was fine, the plant, the bow, the order of it, hips and trunk and shoulder and arm last. The ball had gone where he'd sent it. It had gone into hands that were above the top of his reach, and a ball hit into hands like that comes back. His arms had been swinging seriously for 4 months.
+
+He grinned. Bokuto, still turned round on his side of the net to tell Akaashi about it, saw it and grinned back, as if they'd both been let in on the same joke.
+
+The 2nd time Kageyama set him, at 5-6, Sho went up and saw the hands come, big and late, and turned his wrist out at the top, and wiped the ball off the outside edge of Bokuto's left hand, off the little finger, out toward the stands. Komi went for it and ended up in the 2nd row of folded chairs.
+
+6-6.
+
+"HEY!" said Bokuto, both arms out. Then, a beat later, louder: "HEY, THAT WAS GOOD!"
+
+---
+
+Bokuto rotated to the back row at 7-8. Sho had been waiting for that.
+
+With Bokuto at the back, Akaashi stopped being a setter with 1 answer and became a setter with 4. Konoha on the left. Onaga in the middle. Sarukui on the right. And Bokuto himself from behind the 3-meter line, a pipe up the middle, if he wanted it. Sho had a week of Bokuto in his head. Of Konoha and Sarukui he had 2 sets.
+
+Akaashi seemed to know that.
+
+At 7-9 he set Konoha a ball that looked, all the way up, like it was going tight for cross. Sho went to the cross. The ball drifted out toward the antenna at the very top, and Konoha hit it down the line past Sho's right hand.
+
+At 8-10 he did it again, the other way. Sarukui on the right. Sho stayed deep for Sarukui's cross. Sarukui cut it short and sharp instead, inside the 3-meter line, and it went off the side of Sho's foot as he came forward, into the bench.
+
+"Kiyose," said Noya, from the middle of the back row, and left it there.
+
+Sho went back to his spot and stood there and breathed.
+
+He was in the back row. Fukurodani's server was walking back to the line and bouncing the ball. Kageyama was at the net with his hand behind his back, the fingers moving. There was time.
+
+He looked at Akaashi. Only at Akaashi: the hands, low and ready, the shoulders, the place where the ball would come down onto his fingers. He let the rest of the court go soft at the edges.
+
+*If you'd like to come.*
+
+It came. It came the way it had come the last 2 days, easily, like somebody sitting down beside him on a bench who'd sat there before, and the noise of 2 courts went thin, and Akaashi stood on the far side of the net in points of light.
+
+Fukurodani served. Daichi passed, and Hinata hit, and Fukurodani dug it high to the net, and Akaashi went under the ball, and his hands came up, and a blink before they touched it, the ghost of them went on ahead without him. Sho saw the ghost's wrists. Tight to the net, all the way up, and then, at the last instant, a small soft push out toward the antenna.
+
+Out meant line.
+
+He was moving before the real hands touched it. 2 steps to his right, into Konoha's line, and down, and Konoha hit the line exactly where Akaashi had sent him, and the ball came into Sho's arms low and hard and went up, high, toward the 3-meter line. Kageyama ran under it and set Daichi, and Daichi hit it so hard into Fukurodani's floor that it bounced up into the net from the wrong side.
+
+9-10.
+
+"KIYOSE!" Tanaka swung round with his fist up. "NICE!"
+
+The quiet went, and the afterglow faded off Akaashi's hands. Sho blinked twice. His eyes felt the way his legs felt after the hill: used, and fine.
+
+Across the net, Akaashi had turned his head. He was looking at Sho, the flat look that didn't tell you anything, and then he looked down at his own hands. He turned them over once, palms up, and back, as if they'd done something without asking him.
+
+The next time Fukurodani had the ball, he set Bokuto the pipe.
+
+---
+
+The new quick landed at 11-11.
+
+Sho was at the net, 3 meters from Hinata, and saw it from the side this time: Kageyama coming in from the back row, his hands, the ball going up fast and flat and stopping at the top as if it had run into a wall made of air, and Hinata already up there, eyes open, choosing. He hit it past Onaga's fingers and into the floor, and Hinata landed and screamed, and Kageyama's ears went red, and Fukurodani's coach wrote something down.
+
+12-11.
+
+At 13-14 Kageyama set it again, and Washio was waiting.
+
+Washio had got 1 in set 1 and been too early on every 1 since. This time he stood there and let Hinata go up, and let the ball climb, and jumped late, a whole beat late, and his hands were there when the ball stopped at the top of its climb. It came straight down on Hinata's side.
+
+13-15.
+
+Hinata landed and looked at the ball on the floor. Kageyama looked at his own hands. Then they both turned at the same moment and looked at each other, and Sho, at the net beside them, saw both of their faces and went back to his spot and waited for the serve.
+
+"AGAIN!" Hinata yelled at Kageyama, from 2 meters away.
+
+"Obviously," said Kageyama.
+
+---
+
+Ukai took a timeout at 19-21.
+
+Fukurodani had stayed ahead while Bokuto was at the back. Washio twice in the middle, Konoha once off the block, and a pipe from Bokuto, from behind the 3-meter line, that went so high off Sho's hands it hit the ceiling lights. Now Bokuto had come round to the front again, on the left, and every time he landed he faced Karasuno's bench and shouted "HEY HEY HEY!" at nobody, at everybody, at the gym.
+
+The huddle was hot. Kiyoko handed round the bottles. Ukai crouched in the middle of them with the clipboard on his knee and tapped it once with his pen and left it there.
+
+"Bokuto's just come up front," he said. "He's there till the end of the set, near enough. Tsukishima."
+
+"Yes."
+
+"You've stopped him twice today. Keep doing the thing you're doing."
+
+Tsukishima pushed his glasses up. "I wasn't planning to change it."
+
+"Good. Kageyama, the new 1, use it when you want. If you want. I'm not going to tell you no." Ukai stood up. "That's it. Drink."
+
+They drank. Sho stood at the edge of the knot, between Tanaka and Daichi, with his bottle, and felt Daichi's hand land flat on his back, between the shoulder blades, and stay there.
+
+Daichi was looking at the court. At Fukurodani's side, where Bokuto was doing lunges and Akaashi was retying a shoe.
+
+"Last set of the summer," Daichi said.
+
+He said it to the court. His hand stayed where it was.
+
+"Next time we're in Tokyo, it's January." He took his hand away, and moved it to Tanaka's back, and then to Noya's head, and pushed it down, gently, so that Noya squawked. "So let's get some practice in."
+
+The whistle went.
+
+Sho walked back on with the cold of the bottle still in his fingers. At home, on the fridge, Mio's magnet was sitting on August. He'd seen it there the morning they left, a little plastic fish on the last square of the month.
+
+---
+
+Tanaka got them the serve back. Fukurodani served at Daichi, and Daichi passed, and Kageyama set Tanaka on the left, and Tanaka came in shouting and hit the straight, the line shot he'd been learning since June, the 1 where his hand told the truth, past Akaashi's outside hand and into the corner.
+
+20-21.
+
+Karasuno rotated, and Hinata went back to serve, and Noya came off for him. Sho was in the front row, on the right, with Tsukishima beside him in the middle and Tanaka on the left.
+
+Hinata's serve was a plain float that went in, which for Hinata was a very good serve. Fukurodani passed it and Akaashi set Washio, and Daichi dug Washio, and Kageyama set Tanaka again, and Tanaka hit it off Washio's hands into the wall.
+
+21-21.
+
+Hinata served again. Akaashi set Bokuto, high and out, and Bokuto came in too fast, already grinning, and hit it a meter long.
+
+22-21.
+
+The bench came off its seats. Tanaka roared. Bokuto stood at the net and looked at the place where the ball had landed, behind Karasuno's end line, as if somebody had moved the line while he wasn't watching, and Akaashi said "Bokuto-san" once, and Bokuto shook himself like a dog and came back to his spot.
+
+Hinata served a 3rd time. Washio's quick went through the middle before Tsukishima got there. 22-22. Fukurodani rotated, and Akaashi went back to serve, and Bokuto moved along the front row, still in it, still bouncing.
+
+Akaashi served at Daichi. Daichi passed it. Kageyama set Tanaka, and Konoha dug Tanaka, and Akaashi, in from his serve, set Bokuto from the back of the court, and Bokuto hit it past Tsukishima's fingers into the floor at Noya's feet before Noya had finished moving.
+
+22-23.
+
+Akaashi served again.
+
+Daichi passed it. Kageyama set Tsukishima's quick, and Fukurodani's block got a hand on it, and Konoha dug the hand, and Akaashi came running in from the back and set Bokuto, high, out to the left.
+
+Sho went up with Tsukishima to block.
+
+He took the line. He put his hands there, both of them, flat and high, outside Tsukishima's, and left the rest to Tsukishima, the way he'd left it all week. He knew where Tsukishima's hands would be. Tsukishima stood at the net and let Akaashi's hands go by, and Bokuto's run, and waited, the long hard wait Kuroo had been teaching him at night in the 3rd gym, and went up when Bokuto went up, and put his hands on the cross.
+
+Bokuto hit the cross into them. It came straight down on Fukurodani's side.
+
+23-23.
+
+Bokuto stood at the net with his hands on his hips and stared at Tsukishima. Tsukishima turned his back on him and walked to his spot.
+
+On the bench Yamaguchi said "*Tsukki*" under his breath, with both hands in fists on his knees.
+
+Karasuno rotated. Sho walked back to the end line with the ball in his hands.
+
+---
+
+He bounced it once.
+
+Across the net Fukurodani spread out to receive: Konoha in the middle of the back row, Komi on the left, low, Akaashi tucked in behind the front row, ready to run in. And in the front row, in the middle, bouncing on his toes, Bokuto, who would hit the next ball they got. Sho had no doubt about that at all.
+
+So he served at Bokuto.
+
+It was a plain float that went exactly where he sent it: short, just over the tape, dropping in front of Bokuto's knees. A front-row player who has to pass a short serve has to stop, and come forward, and get low, and then go all the way back out to the line again to hit. Make the ace pass. Make him use his arms for something else for 1 ball.
+
+Bokuto passed it fine. He came forward and dropped and got it up a little short of the net, and Akaashi stepped in under it. His hands came up tight and quick, and Sho, behind the end line, knew before the ball moved. Bokuto was still going back out to the left. Washio was already in the air. The quick, in the middle, before anybody on Karasuno could get there.
+
+Tsukishima got a finger on it. It went off the finger and down toward Hinata's spot, which was Noya's spot now, and Noya dived, full length, and the ball hit the floor a hand's width beyond his hand.
+
+23-24. Fukurodani's match point.
+
+Fukurodani rotated. Washio walked back to serve. Bokuto moved along the front row to the right, and as soon as Washio served he'd switch out to the left, the way he always did, and stand there facing Karasuno's right side.
+
+Facing Kageyama.
+
+---
+
+Sho went to his spot at the right back and crouched, and the gym got smaller around him the way it did at the end of things.
+
+He knew where everybody was. Kageyama at the left front, ready to cut across to the right the instant the serve went, with Tanaka going the other way. Tsukishima in the middle, very still. Behind them Daichi on the left, Noya in the middle, deep, and himself on the right, in the corner, where the line comes.
+
+Washio served. It came at Daichi, a float, wobbling, and Daichi took it square and put it up to the setter's spot a step off the net, the pass Ukai called a gift.
+
+Kageyama got under it. Sho was already moving, 3 steps from the corner to the back of the 3-meter line, 1, 2, and the plant, both feet, behind the line.
+
+Kageyama set him.
+
+At match point, with Tanaka on the left and Tsukishima in the middle, Kageyama put the ball behind himself, high, to the back of the right side, a ball for a hitter coming from behind the 3-meter line. It was the ball they'd run in practice and kept for a match.
+
+Sho went up into it from behind the line, and from the top of the jump he could see all of Fukurodani's court: Onaga coming across from the middle, Bokuto coming in from the left a step late, his hands reaching for the cross, and past his outside hand, the line, open, all the way down to the back corner. He hit it down the line with everything he had.
+
+Konoha was there.
+
+Konoha had been playing behind Bokuto for 3 years. He knew where the balls went that got past Bokuto's hands. He was already in the corner when Sho hit it, and he went down on 1 knee and got both arms under it, and it went up high and spinning toward the middle of Fukurodani's court, 4 meters off the net, and Akaashi turned and ran to it.
+
+Sho landed a step inside the 3-meter line, and turned, and went back.
+
+*Bokuto.*
+
+The map was already there, all of it, before he'd taken the 1st step back.
+
+Akaashi was under the ball 4 meters off the net. From there, at match point, there was 1 hitter. Konoha was on his knee in the back corner. Washio was still coming in from his serve. Sarukui was on the right, and the only set Akaashi could make to him from there was a long low 1 across his own body. Onaga was coming down from the block in the middle with his back to the ball. It was going to Bokuto, on the left, high, because a high ball out to the antenna was the only good set anybody could make from 4 meters off the net.
+
+On Karasuno's side the block was going to be Kageyama and Tsukishima. Tsukishima would be on the cross. He'd been on the cross all set, all week, waiting, and Bokuto had hit into his hands 3 times today, and Bokuto knew it.
+
+So, the line. Over Kageyama's outside hand, or past it.
+
+And Sho had dug that line for 5 nights. Bokuto's best line, the 1 nobody gets. When the cross was shut, Bokuto turned in the air and went down the line, and he went hard, as hard as he hit anything, because the line was the 1 he was proudest of. And Bokuto at match point didn't tip. He'd said so himself, on his 2nd night in the 3rd gym, lying flat on the floor with his arms out: *The big 1, you hit. That's the whole point of the big 1.*
+
+He left the eye alone. The map had it.
+
+He took 2 more steps, back and right, and he was in the corner, in Bokuto's line, a step inside the sideline and 2 inside the end line. He stopped. He put his feet down, wide. He brought his arms together low in front of him, and dropped his hips, and looked up.
+
+Akaashi set it high out to the left, and Bokuto came in.
+
+Kageyama and Tsukishima went up. Tsukishima's hands went out over the net on the cross, both of them, and stopped there. Kageyama's hands went up beside his, and the outside 1 reached for the line, and there was air above it.
+
+Bokuto turned in the air.
+
+He turned his whole body, the way he'd turned on the 1st day in Tokyo, the way he'd turned again and again in the 3rd gym, and hit the line over Kageyama's outside hand.
+
+The ball came straight at Sho.
+
+He was there. He'd been there for a whole second, which was forever. His feet were right. His hips were right. His arms were together and low and in front of him, and the ball came down the line at the exact place where his arms were, and hit them.
+
+It was heavier than anything Bokuto had hit in the 3rd gym. It was heavier than anything he'd ever had on his arms in this life. It hit his platform like a car door shutting, and his arms gave. The right 1 more than the left. Only a little. A few degrees.
+
+The ball went off his arms sideways, off the right forearm, up and out over the sideline and into the bench, between Takeda and Yachi, who both ducked, and it hit the wall behind them and came back and rolled under Takeda's chair.
+
+The whistle went.
+
+23-25.
+
+---
+
+He stood there with his arms still out.
+
+Bokuto was screaming. Fukurodani was all over itself on the far side of the net, Konoha and Komi on Bokuto's back and Washio with his fist up and Sarukui shouting, and in the middle of it all Akaashi standing at his spot with his hands down, looking at the floor, breathing.
+
+Sho looked at his arms.
+
+Both forearms were red, the right 1 more, a patch the size of a hand above the wrist where the ball had hit. He could see the panels of the ball in it, faint, a few lines, already fading.
+
+In the room with the monitors, he'd have written it in 1 line. *Correct read, correct position, platform collapsed on contact (strength).* He'd written that line about other people 1000 times.
+
+He stood there and felt the line happen to his own arms, and found he was smiling.
+
+---
+
+They lined up at the net.
+
+Bokuto got to him and grabbed his hand in both of his and pulled Sho half over the net by it.
+
+"13! YOU WERE THERE!" He was shouting from 30 centimeters away. "YOU WERE RIGHT THERE! I TURNED, AND I LOOKED, AND YOU WERE ALREADY STANDING THERE! HOW DID YOU KNOW?"
+
+"I dug you for 5 nights, Bokuto-san."
+
+"YOU KNEW IT WAS LINE!"
+
+"Yes."
+
+"AND IT STILL WENT THROUGH YOU!" Bokuto said it like the best news he'd had all summer. He let go of Sho's hand and grabbed both his forearms instead and turned them over and looked at the red patches. "HA! LOOK! THAT'S ME! THAT'S MY BALL!" He let go and pointed at Sho with his whole arm. "Get bigger arms! Then come to Nationals and dig that! And then I'll hit a better 1!"
+
+"Bokuto-san," said Akaashi, from further down the line. "Shake hands with the rest of them."
+
+"I'M BUSY!"
+
+"They're waiting."
+
+Bokuto shook the rest of them, and looked back at Sho twice while he did it.
+
+Akaashi got to him and shook his hand properly, 1 short shake, and stopped.
+
+"At 8-10," said Akaashi. "The line."
+
+Sho waited.
+
+Akaashi seemed to think about how to say it. Then he said, "Thank you for the match, Kiyose-kun," and gave a small bow and went on down the line.
+
+---
+
+Ukai was at the bench with his arms folded. He waited until Sho had picked up his bottle and his towel, and then he said, "Kiyose. Over here."
+
+Sho went over.
+
+"Show me your arms."
+
+Sho held them out. Ukai looked at the red patches. He didn't touch them.
+
+"You know what happened."
+
+"Yes, Coach."
+
+"Tell me."
+
+"The read was right. My feet were right. My arms gave on the right side. A few degrees."
+
+Ukai nodded slowly. "Your platform was where it had to be. The ball was heavier than your arms are. That's it. You can't read your way out of that. Nobody can." He unfolded 1 arm and scratched the back of his neck. "That's a weight room."
+
+"Yes, Coach."
+
+"Takeda-sensei found 1. At school. Under the old gym. There's a squat rack in it from about 1990 and some plates with rust on them." He looked sideways at Sho. "You're going to hate it."
+
+"I won't."
+
+"You'll hate it a bit."
+
+"Can I start on Monday?"
+
+Ukai looked at him. Then something happened at the corner of his mouth that he put away again quickly.
+
+"Go run the hill," he said.
+
+---
+
+Kageyama was at the bottom of the hill, by the gym door, tying his shoe.
+
+The rest of them had gone on ahead. Tanaka and Noya were already halfway up, shoulder to shoulder, shoving. Hinata was ahead of all of them, a small orange dot going up the road into the late sun. The evening was coming down over Shinzen's fields, gold and long, and somewhere behind the main gym somebody had lit charcoal; Sho could smell it.
+
+Kageyama finished the knot and stood up. He looked at Sho's arms. Then he looked at Sho.
+
+"Oi."
+
+"Yes."
+
+"You were there."
+
+Sho held up his right forearm, the red going pink now. "It went out."
+
+Kageyama frowned at the arm as if it had said something stupid. Then he looked back at Sho's face.
+
+"You were there," he said. "All 3."
+
+He turned and ran up the hill.
+
+Sho stood at the bottom of it with his arm still up. Then he put it down, and ran after him.
+
+---
+
+He started laughing a 3rd of the way up.
+
+The road went up steep between the long grass, and his legs were fine, his legs were always fine, and the sun was in his eyes, and Kageyama's back was 5 meters ahead of him going up and up, and the smell of the charcoal was everywhere, and it came up out of him like a hiccup and wouldn't stop.
+
+"WHY'S HE LAUGHING?" Tanaka yelled, from higher up, turning round and running backward. "WE LOST!"
+
+"I know, senpai," said Sho, and went on laughing.
+
+"HE'S BROKEN!"
+
+"He's FINE," said Noya, and then he started laughing too, for no reason, because Sho was, and then Tanaka was, red in the face, shouting "STOP IT, I'M TRYING TO BE UPSET," and laughing, all the way up.
+
+At the top Sho lay down flat on his back in the grass by the road.
+
+The sky was very big up there. It was going orange at the bottom and was still blue at the top, and there was a single plane in it, high, very slow, drawing a white line. The grass was warm under him and smelled cut. Down the hill the smoke from the barbecue was going straight up into the still air. He could hear Bokuto down there already, faintly, shouting about meat.
+
+His eyes were tired. He closed them.
+
+Somebody lay down in the grass next to him with a thump.
+
+"There wasn't a bad 1," said Hinata. "In the 3rd."
+
+"No."
+
+"I watched for it the whole set. There wasn't 1." Hinata was breathing hard. He'd run up the hill faster than anybody, and then, Sho thought, probably run down a bit and up again. "So the next 1's still mine."
+
+"It's still yours."
+
+They lay there. A cicada started up somewhere in the grass, and stopped, and started again.
+
+"Kiyose."
+
+"Mm."
+
+"On the bad 1. In the 2nd. The way you were already out there." Hinata was looking at the sky. "Before Daichi-san even got to it. You were just out there. Waiting. Like you'd seen it before."
+
+Sho opened his eyes.
+
+"Who's yours?" said Hinata.
+
+"My what?"
+
+"Your Little Giant." Hinata turned his head on the grass and looked at him. "Everybody's got 1. Somebody you saw and went, *that*. That's what I want to be. Mine's the Little Giant." He waited. "Who's yours?"
+
+Sho looked at the plane, drawing its white line very slowly across the top of the sky.
+
+There was an answer. A white shirt with a navy 5 on the back, in a gym in Sendai, going up for a ball nobody else wanted.
+
+"KARASUNO!" Ukai's voice came up the hill, enormous. "IF YOU WANT MEAT, GET DOWN HERE BEFORE NEKOMA EATS IT!"
+
+Hinata was on his feet before the end of the word *meat*. Then he stopped, and stood over Sho with the sun behind him, his hair on fire with it, and pointed down at him.
+
+"Tonight," said Hinata. "You're telling me tonight."
+
+He ran.
+
+Sho lay in the grass a little longer, with his red arms on his chest, and listened to Hinata going down the hill. Then he moved his lips around the name once, with no sound, to see what it felt like.
+
+**Continuity (ch 44)**
+
+- Sho POV, day 8 (last day) of the Shinzen camp, the camp final vs Fukurodani, set 3. **Fukurodani won set 3, 25-23 (Karasuno-first 23-25), and the match 2 sets to 1 (canon result: Fukurodani wins the final; canon set scores not found, all scores here are fic).** Sho played all 3 sets: set 1 back-row sub for Asahi, sets 2 and 3 Asahi's whole spot (right side) after Asahi's back. No status card.
+- **Opening (fic):** Bokuto: "13! I'M BLOCKING YOU!" (his left side faces Sho's right side; Konoha's face in his hand). "Please go easy on me, Bokuto-san." "NO!" Fukurodani served 1st. **Set 3 start: Karasuno with Sho at position 3, Fukurodani with Bokuto at position 4. Bokuto stuffed Sho's 1st swing: 0-1. "THAT'S 1 EACH, 13!"** (Sho's set-2 kill through his hands is Sho's 1). Bokuto's hands a hand's width above the top of Sho's reach; Sho's arms "swinging seriously for 4 months." Sho grinned; Bokuto grinned back. **5-6: Sho tooled Bokuto's outside (left) little finger into the chairs (Komi in the 2nd row): 6-6.** "HEY, THAT WAS GOOD!"
+- **Bokuto to the back row at 7-8 (Fukurodani front: Konoha, Onaga, Sarukui). Sho back row from about 7-7 to 9-10, defending right back.** Akaashi disguised sets: Konoha's line past Sho's right hand (7-9); Sarukui cut a short sharp cross off Sho's foot (8-10). Noya: "Kiyose." **Sho invited the eye on Akaashi between serves ("*If you'd like to come.*"); it came easily; the ghost's wrists pushed out late (out = line, Sho's ch 32 read); Sho dug Konoha's line; Daichi scored: 9-10. From 9-10 to 23-23 Sho is front row and Kageyama back row.** Eyes "used, and fine." **Akaashi turned his hands over once, palms up;** then set Bokuto the pipe.
+- **The new quick (Hinata and Kageyama's):** landed at 11-11 past Onaga, Sho watching from the net (12-11); **at 13-14 Washio jumped a whole beat late on purpose and stuffed it: 13-15.** Sho gave no notes. "AGAIN!" "Obviously."
+- **Ukai's timeout at 19-21** (Fukurodani stayed ahead while Bokuto was back row: Washio twice, Konoha off the block, a Bokuto pipe off Sho's hands into the ceiling lights; Bokuto just back to the front): "Bokuto's just come up front. He's there till the end of the set, near enough. Tsukishima... You've stopped him twice today. Keep doing the thing you're doing." "I wasn't planning to change it." New quick: "use it when you want." **Daichi's hand on Sho's back: "Last set of the summer... Next time we're in Tokyo, it's January... So let's get some practice in."** Sho thought of Mio's fish magnet on August.
+- **Endgame rotations:** Tanaka's straight past Akaashi's outside hand (his line shot since June) sided out: 20-21. **Karasuno front row: Sho (R), Tsukishima (M), Tanaka (L); Hinata served (Noya off).** Daichi dug Washio; Tanaka off Washio's hands 21-21; Bokuto a meter long 22-21 (Karasuno's only lead late; Akaashi: "Bokuto-san"); Washio's quick 22-22. Akaashi served; Bokuto past Tsukishima at Noya's feet 22-23. **Akaashi served again: Tsukishima's quick touched, Konoha dug, Akaashi set Bokuto; Sho took the line, Tsukishima the cross (his block; Sho didn't call it); Bokuto hit cross into Tsukishima's hands, straight down: 23-23.** Yamaguchi: "*Tsukki*."
+- **23-23, Sho served (position 1): a short float in front of Bokuto's knees (front row middle): "Make the ace pass."** Bokuto passed fine; Akaashi set Washio's quick; off Tsukishima's finger; Noya (in Hinata's spot) a hand short: **23-24, Fukurodani match point.** Fukurodani rotated: Washio to serve; Bokuto to front right, switching to the left.
+- **Last rally:** Karasuno front Tanaka (L), Tsukishima (M), Kageyama (R); back Daichi (L), Noya (M, for Hinata), Sho (R). Fukurodani front Bokuto (L), Onaga (M), Sarukui (R); back Washio (server), Akaashi, Konoha. Washio's float at Daichi; good pass. **Kageyama (left front on receive, cutting right) set Sho a back-row ball from the right at match point (run in practice, kept for a match); Sho hit the open line past Bokuto's late hands; Konoha (3 years behind Bokuto, "knew where the balls went that got past Bokuto's hands") dug it on 1 knee.** Akaashi 4 m off the net: only Bokuto. **The map (no eye; he left it alone): Tsukishima on the cross (3 stops on Bokuto today); Bokuto's best line; Bokuto at match point doesn't tip ("The big 1, you hit. That's the whole point of the big 1.", invented, his 2nd night in the 3rd gym). Sho in the line, a step inside the sideline, 2 inside the end line, set for "a whole second". Bokuto turned in the air and hit the line over Kageyama's outside hand. The ball hit Sho's platform "like a car door shutting"; the right arm gave a few degrees; off the right forearm into the bench between Takeda and Yachi, under Takeda's chair. 23-25.** Bokuto keeps the last point.
+- Sho's forearms red, the right more, panel lines visible. Analyst line: *Correct read, correct position, platform collapsed on contact (strength).* He was smiling.
+- **Bokuto at the net, both hands: "13! YOU WERE THERE!... HOW DID YOU KNOW?" "I dug you for 5 nights, Bokuto-san." "YOU KNEW IT WAS LINE!" "Yes." "AND IT STILL WENT THROUGH YOU!... THAT'S MY BALL!... Get bigger arms! Then come to Nationals and dig that! And then I'll hit a better 1!"** Akaashi: "Shake hands with the rest of them." "I'M BUSY!" "They're waiting." **Akaashi: "At 8-10. The line." Then only "Thank you for the match, Kiyose-kun."** (He saw the dig and doesn't ask.)
+- **Ukai (ace path seed): "Show me your arms... Tell me." "The read was right. My feet were right. My arms gave on the right side. A few degrees." "Your platform was where it had to be. The ball was heavier than your arms are... You can't read your way out of that. Nobody can... That's a weight room." Takeda found 1 under the old gym (a squat rack from about 1990, rusty plates). "You're going to hate it." "I won't." "You'll hate it a bit." "Can I start on Monday?" "Go run the hill."**
+- **Kageyama at the bottom of the hill, tying his shoe: "Oi." "Yes." "You were there." "It went out." "You were there. All 3."** (Pays Arc 2's "can he play all 3 sets?": Kageyama saw him go off after set 2 at Seijoh.) He ran up the hill.
+- **The penalty: the hill (canon: Karasuno does the hill after the final).** Sho laughed from a 3rd of the way up; Tanaka: "WHY'S HE LAUGHING? WE LOST!" "I know, senpai." "HE'S BROKEN!" Noya: "He's FINE," then laughed; Tanaka too ("STOP IT, I'M TRYING TO BE UPSET"). At the top: on his back in the grass; a plane drawing a white line; charcoal smoke from the barbecue below; Bokuto shouting about meat; eyes tired like legs after a hill.
+- **Hinata in the grass: "There wasn't a bad 1. In the 3rd... So the next 1's still mine." "It's still yours." "On the bad 1. In the 2nd... Like you'd seen it before." "Who's yours?... Your Little Giant. Everybody's got 1. Somebody you saw and went, *that*."** Sho's answer in his head: a white shirt with a navy 5 in a gym in Sendai (never named in prose). Ukai: "IF YOU WANT MEAT, GET DOWN HERE BEFORE NEKOMA EATS IT!" **Hinata: "Tonight. You're telling me tonight."** Sho moved his lips around the name once, with no sound.
+- Ace path: hit at Bokuto's real block (stuffed, then tooled); back-row attack at match point; Ukai names the weight room (Arc 4 program). Mio's magnet still on August.
+- Next: ch 45 "Barbecue" (Sho), end of Arc 3: the aces talk (Bokuto on the top 3: Ushijima, Kiryu, Sakusa; speaker per 03_canon flag 3); Hinata gets his answer, once: "Matsumoto. Number 5." "Nobody's heard of him." "I'll remember him."; home: Mio names the eye "fast-forward" and moves her magnet to January; Sho pays the 4 puddings; new notebook, ace lines on page 1; status card (Block E to D, Serve D to C, Mentality B to A, Emperor's Eye: Conditioned, Meta Vision: Half map).
