@@ -3204,7 +3204,7 @@ The whistle went. Oikawa walked in, 1 step, 2, and threw the ball up.
 
 The gym went silent.
 
-Sho knew the silence. It had come in the 3v3 on Hinata's first freak quick, and at Golden Week, and twice since, always on its own, never when he asked. The crowd and the drums and the squeak of shoes all went somewhere far off, as if somebody had shut a door. Oikawa turned into points of light. Shoulder, elbow, wrist, hips, knees, a skeleton made of light hanging in the air over the end line, and the brightest point of all was his right hand, burning white.
+Sho knew the silence. It had come in the 3v3 on Hinata's first freak quick, and at Golden Week, and once more against Date Tech, always on its own, never when he asked. The crowd and the drums and the squeak of shoes all went somewhere far off, as if somebody had shut a door. Oikawa turned into points of light. Shoulder, elbow, wrist, hips, knees, a skeleton made of light hanging in the air over the end line, and the brightest point of all was his right hand, burning white.
 
 A ghost peeled off the hand, 1 blink early, and swung. Sho saw its path. It went across the ball and down, and the line it drew pointed at his own right hip, half a step from the seam, deep.
 
@@ -4138,7 +4138,7 @@ The slap of the spike, and then a different sound, like a hand on a table.
 
 "Better than in set 1."
 
-Sho thought about that under the cold pack. Seijoh had beaten Karasuno's quick in set 2 by breaking the pass, and they were still doing it. Every serve went at the weakest receiver on the court. For 8 rallies in set 2 that had been Sho, and now Sho was on the bench, and it was Tanaka again.
+Sho thought about that under the cold pack. Seijoh had beaten Karasuno's quick in set 2 by breaking the pass, and they were still doing it. Every serve went at the weakest receiver on the court. For 11 rallies in set 2 that had been Sho, and now Sho was on the bench, and it was Tanaka again.
 
 "It's the same plan," he said. "Theirs. They haven't needed a new one."
 
@@ -4612,9 +4612,9 @@ Oikawa's eyes went to the back pocket where the notebook was. Then to Sho's face
 
 "Whatever the strange one was, it cost you. You couldn't find your bench. You sat through set 3 holding a cold thing on your face. And you knew, and you kept going." He said it like reading out a list. "How many rallies? 10?"
 
-"8."
+"11."
 
-"8." Oikawa nodded. Then he bent and pulled up the right leg of his track pants, to just above the knee.
+"11." Oikawa nodded. Then he bent and pulled up the right leg of his track pants, to just above the knee.
 
 There was a brace on it. Black, with a hole for the kneecap and straps above and below, worn soft at the edges. Sho had seen it before, at warm-ups, from the rail. Half the players in the building wore 1. He hadn't written it down.
 
@@ -4943,7 +4943,7 @@ At the far end Yamaguchi was crying into his miso with his hand over his eyes. T
 
 Sho ate.
 
-The pork was sweet and salty and hot, with ginger in it that went up his nose. The rice was the sticky good kind. There were little cubes of tofu in the miso. He'd had nothing since an onigiri at 10 in the morning, and he'd played 8 rallies that felt like 80, and his body wanted the food more than it had ever wanted anything.
+The pork was sweet and salty and hot, with ginger in it that went up his nose. The rice was the sticky good kind. There were little cubes of tofu in the miso. He'd had nothing since an onigiri at 10 in the morning, and he'd played 11 rallies that felt like 100, and his body wanted the food more than it had ever wanted anything.
 
 He'd lost bigger than this. Satoshi had lost a whole career in the time it took a ligament to make a sound. And after the surgery he'd eaten dinner alone in a hospital bed, off a tray with a plastic lid, rice gone hard at the edges, while a TV on a bracket showed a match he should have been playing in.
 
@@ -5694,7 +5694,7 @@ Sho made himself go through it in order, the way he'd go through a rally on tape
 
 Sho looked at the desk.
 
-On Sunday the burning had come on the 1st serve he took at 18-20, before the block, before the line shot, before he'd decided anything at all. He'd felt it, and held on, for 8 rallies.
+On Sunday the burning had come on the 1st serve he took at 18-20, before the block, before the line shot, before he'd decided anything at all. He'd felt it, and held on, for 11 rallies.
 
 "I understand," he said.
 
@@ -5856,7 +5856,7 @@ He picked up the pen.
 
 He looked at the 4 lines. Then he thought about a hallway with a vending machine at the end of it, and a white and teal jacket walking backward, and a coffee can lifted at him like a toast. *Next time, Tall-kun, play all 3 sets. I want to see what you look like when you can see.*
 
-He'd played 8 rallies. Then he'd sat behind glass for a whole set, holding a cold pack.
+He'd played 11 rallies. Then he'd sat behind glass for a whole set, holding a cold pack.
 
 He wrote the last line at the bottom of the page and underlined it once.
 
@@ -5884,7 +5884,7 @@ Then he looked at the phone again, at *several sets a day*, for a long time, wit
 - Wednesday breakfast: Dad kept Tuesday's paper, folded to the article: Shiratorizawa beat Aoba Johsai in Monday's Miyagi Inter-High final; grainy photo of Ushijima Wakatoshi (3rd year), left arm back; 1 line: Aoba Johsai "pushed the 1st set to deuce" (invented; canon set scores unverified). Whether Oikawa fixed his tell is unknown. Mio: "Good." "He gave me a can of melon soda afterward." "I know. I drank it." Sho: "Thanks, Dad. For keeping it." "Mm."
 - Mom works an office job (navy cardigan, white blouse, ID lanyard); met Sho at the ticket gate at 3:58, watched his feet, turned for the gate.
 - Clinic, Wednesday 4:30: chart to the bottom line; near point much closer; **the fly stood up off the page**. Depth back; convergence "still a bit weak"; **no MRI for now** (same-day scan if it happens like Sunday again). **Cleared:** light practice from Monday; nothing hard till the end of next week; screens 1 hour a day, not before bed. Doctor: "Your husband and the little one were very good."
-- **Warning sign:** burning, then pressure, then depth. Doctor: "Stop at the burning. Every time." Sho: the burning came on the 1st serve he took at 18-20; he held on 8 rallies.
+- **Warning sign:** burning, then pressure, then depth. Doctor: "Stop at the burning. Every time." Sho: the burning came on the 1st serve he took at 18-20; he held on 11 rallies.
 - Taiyaki (red bean, 2). Mom: "The burning," and waited. Sho: "I'll put my hand up at it... So I'll stop at it." Mom folded the paper small like Dad. Mio will come to watch Saturday practice.
 - Sho texted Ukai from the train (depth back, no scan, light practice from Monday, stop at the burning, hand up at the burning). Ukai: *Good. Watch Thursday. Stage only.*
 - Thursday: stage only. Sho begged Ukai for soft tosses ("5. Underhand." "3?"); Ukai: "Stage." *Observation Haki. Benched.* Hinata and Kageyama still not speaking, running the old quick.
