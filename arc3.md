@@ -4100,3 +4100,287 @@ Sho lay with his aching fingers folded on his chest and listened to the cicadas 
 - **Futons:** "Tomorrow. We're going to win 1." "Shinzen's 1st." "We've never beaten Shinzen." "I know." Tanaka sleep-talking: "That's my spot... rice."
 - Ace path: "The bad ball... Somebody has to hit it." / "That's the ace's ball." Hinata wants it too (healthy rivalry). Sho's roll shot vs Bokuto.
 - Next: ch 41 "Four into one" (Sho): day 8, game 1 vs Shinzen: **Karasuno's 1st win of the camp, 25-23 (user approved flip)**; Sho as the all-rounder (the dig, the call, the serve at the right man); eye and map agree on Shinzen's setter; **Tanaka finishes it.** 1 line of the ace.
+
+## Chapter 41: Four into one
+
+On the last morning Yaku served 10 at him at 6:05, and Sho passed 10, and Yaku served the 11th at Lev's face and went on serving at Lev's face for the rest of the half hour, which was how Sho knew.
+
+At breakfast Hinata ate 4 bowls of rice and said "Shinzen" between every 1, the way he'd said "tempo" 3 weeks ago, as if the word might run off if he stopped holding it.
+
+At 8:15 Ukai read the lineup in the corner of the main gym.
+
+"Kageyama. Hinata. Tsukishima. Daichi. Tanaka. Nishinoya." He paused. "Kiyose, Asahi's spot. Whole set."
+
+Asahi nodded at once. His back had been stiff since the 6th day, from 3 days of jump serves, and he'd told Ukai about it at dinner, which a year ago, Suga said later, he'd never have done. He put his big hand on Sho's shoulder on the way to the bench.
+
+"Um," said Asahi. "Borrow it."
+
+"Thank you, senpai."
+
+Tanaka was standing beside Sho with his arms folded and his chin up. He'd started every game all week except the 1 on the 6th day, when he'd sat on the bench with the paddle across his knees and watched somebody else play his spot.
+
+"Same team today," said Tanaka. He didn't look at Sho. He looked at Shinzen, warming up across the net. "We've never beaten them."
+
+"I know, senpai."
+
+"Not once. Not in the whole history of the whole camp. Ennoshita looked it up."
+
+"I didn't look it up," said Ennoshita, from the bench. "I asked their coach. He laughed."
+
+Tanaka's jaw went tight. "He LAUGHED."
+
+"Kindly," said Ennoshita.
+
+"There's no kind way to laugh at somebody," said Tanaka, and turned round and walked out onto the court as if he were going to fight it.
+
+---
+
+Shinzen was plain.
+
+That was the word Sho had for them, after a week. Nekoma read you. Fukurodani overpowered you. Ubugawa served you off the court. Shinzen did none of that. Shinzen did the ordinary things, receive and set and hit and block and cover, very well, every time, in the same order, without fuss, and waited for you to make a mistake. Against a team that was trying a lot of new things at once, which Karasuno was, that was usually enough.
+
+They'd beaten Karasuno twice already that week. On the 6th day Ukai had banned the new quick in the middle of 1 of those games, and Shinzen had seen the old 1 often enough by now that their middle had started guessing it.
+
+Sho had watched their setter on Nekomata's tape and from the bench all week. A 3rd year with tidy hands and a calm face, who set the ball the same way every time and liked to set his ace on the left when he was in trouble. The ace was tall and hit flat and hard. The right-side hitter was smaller and smarter. The libero was quick and cheated toward the ace, a step, every time the ace was in the front row.
+
+He had them in his head before the 1st whistle. 6 of them, not 3. More than last night. But plain.
+
+---
+
+The 1st point was Shinzen's. The 2nd was Shinzen's.
+
+Their ace hit the 3rd ball into the floor between Daichi and Sho, a flat hard cross that Sho had crossed out the line for and stood in the right strip for, and was still a half step late on, because the ace hit earlier than his approach said he would.
+
+"Sorry," said Sho.
+
+"Mine," said Daichi, at the same time, and they looked at each other.
+
+"Yours," said Sho.
+
+"Yours," said Daichi.
+
+Nishinoya, on his knees behind them, looked from 1 to the other and burst out laughing. "Somebody take it next time!"
+
+0-3.
+
+Sho went back to his spot and looked at the ace again. Earlier than his approach said. He put it in his head next to everything else. The next time the ace came in from the left, Sho moved half a beat sooner, feet 1st, Yaku's feet, while he was still looking, and the ball came at his chest, and he was there. It went up to Kageyama, soft. Kageyama set Tanaka, and Tanaka hit it into Shinzen's floor so hard the sound came back off the roof.
+
+1-3.
+
+"YEAH!" said Tanaka. He turned round and found Sho and pointed at him, both arms. "NICE PASS!"
+
+---
+
+It went the way games against Shinzen went: slowly, 1 point at a time, never more than 2 apart.
+
+Sho served at 3-4 and sent his float at Shinzen's right-side hitter, the smaller smarter 1, who was about to rotate into the front row. The right-side hitter passed it, and then had to run to hit, and Shinzen's setter went to the ace instead, and Tsukishima, who had been waiting all week for the ace to come to him, waited 1 beat longer than the ace expected, and went up late and soft, and the ball came off his hands and went straight up into Karasuno's court. Nishinoya dug it.
+
+"NICE, TSUKISHIMA!" Noya shouted.
+
+Tsukishima pushed his glasses up, and on the bench Yamaguchi's whole face went bright.
+
+Kageyama set Hinata, the normal quick, the 1 Coach had said, and Hinata hit it, eyes shut, the old way, and it went in. Hinata landed with a face that was 2 things at once, pleased and furious, and then just pleased, because it had gone in.
+
+5-5.
+
+In the back row Sho called the short 1s. "Short!" when Shinzen's setter dumped, and Daichi was there. "Tip!" once, over Hinata, and Noya was there. He didn't call Tsukishima's blocks. Tsukishima wouldn't have thanked him.
+
+In the front row he blocked Shinzen's right side, and waited, the way he'd learned to, and twice the ball came off his hands up into his own court, and once it went straight down, a stuff, the 1st block he'd ever put straight down at a camp, and Tanaka slapped the back of his head so hard he saw stars.
+
+"GOOD!" Tanaka yelled. "THAT'S GOOD! DO IT AGAIN!"
+
+He hit, too. It was his 3rd whole set on the wing, and Kageyama set him 6 times, on the right, and he hit 4 of them in, high hands and a full swing, and 1 he tooled off the end blocker on the outside, and 1 went into the net because he ran under it. Shinzen started putting 2 blockers on him when he was in the front row. The 3rd time they did it, Kageyama saw it, and set the middle instead, and Hinata was there.
+
+13-13.
+
+---
+
+At 13-13 Shinzen's coach changed something, and Sho saw it at once, because it was the kind of thing he'd have put in a clip for a coach by 8 in the morning.
+
+Shinzen's libero stopped cheating toward the ace.
+
+All game he'd been taking a step toward the ace's side whenever the ace was in the front row, the way he had all week. Now he stood square, in the middle of the back row, the way a libero stands when somebody has told him *they've noticed you leaning.*
+
+Sho looked at Ukai, on the bench.
+
+Ukai was already looking at him. He lifted 2 fingers off his folded arm, very slightly, and lowered them again.
+
+Sho didn't know what the 2 fingers meant. But he knew what he'd noticed, and he knew Ukai had noticed it too, and that was enough.
+
+---
+
+They were level at 15, and at 18, and at 21.
+
+At 21-21 Tsukishima went up for a quick and Shinzen's middle went up with him, early, guessing, and got his hand on it, and the ball went straight up off his fingers. Daichi dug it. Kageyama set Tanaka, and Tanaka was blocked, and Noya dug the block, flat on his back, and the ball went up high and wild toward the antenna.
+
+Sho was at the net on the right. He watched it go up. It was a bad ball, too tight and drifting, the kind he wanted, and it was going to the left antenna, the whole width of the court away from him, and Tanaka was already running for it.
+
+Tanaka took it at the antenna with 2 blockers in front of him and hit it straight through both of them, so hard that it went off the 2nd blocker's wrist and into the floor behind him.
+
+22-21.
+
+Tanaka landed, and spun round, and roared, a sound with no words in it, and the whole Karasuno bench came off the bench. On the end line Sho found he'd shouted too, a sound with no words in it either, and didn't care.
+
+That was Tanaka's ball. It had been Tanaka's ball all week. Sho had wanted it, and Tanaka had wanted it more, and had taken it.
+
+---
+
+Shinzen came back. They always came back. 22-22. 22-23, on a tip that dropped between Sho and Daichi, the same seam as the 1st point, and this time they both went and nearly collided and neither got it. Shinzen's bench went up. Their ace stood at the net with his hands on his knees and breathed.
+
+23-23, on a Kageyama dump that Shinzen's setter didn't see coming, and Kageyama didn't smile, but his ears went red.
+
+The rotation brought Sho to the end line.
+
+He served at the libero, square in the middle of the back row, and the libero passed it, a good pass, because he was a good libero. Shinzen's setter set the ace. Tsukishima got a hand on it; Daichi dug it; Kageyama set Tanaka on the left, and Tanaka hit it cross, hard, past the block and in.
+
+24-23. Sho's serve again.
+
+---
+
+Shinzen's coach called a timeout.
+
+Sho stood on the end line with the ball in his hands while the others went to the bench. That was what you did, if you were the server and the other team called a timeout to make you think about it. You stood there and thought about it.
+
+He thought about it.
+
+He thought about the libero standing square now, in the middle of the back row. He thought about the right-side hitter, the smaller smarter 1, who'd rotated to the right back and was standing beside the libero in the passing line, a step closer to him than usual. 2 good passers, close together. And between them, the seam.
+
+A ball at the seam, between 2 good passers, made both of them think *mine* and both of them think *yours*, for 1 beat. The way Daichi and he had said *mine* and *yours* at the same time on the 1st point.
+
+Tanaka came out of Karasuno's huddle before the whistle and walked down the side of the court to the end line, where he wasn't supposed to be, and stood next to Sho.
+
+"Kiyose."
+
+"Senpai."
+
+"If it comes to me," said Tanaka, low, looking at the net and not at Sho, "I'm finishing it."
+
+"Okay."
+
+Tanaka nodded, once, and went back to his spot.
+
+The whistle went.
+
+---
+
+Sho bounced the ball twice. He looked at the seam.
+
+He tossed it and hit it, flat and slow and plain, his ordinary float that was worse than Yamaguchi's, and it went over the net and straight at the place between the libero and the right-side hitter, and both of them moved, and both of them stopped, for 1 beat, the beat of *mine* and *yours*, and then the libero went, a fraction late, and got it up, off the net, high and outside, a long way from the setter.
+
+The setter ran.
+
+Sho came in off the end line into the middle of the back row and stopped.
+
+He knew enough of where Shinzen's setter could go from there. A ball that far off the net, high, outside, with the setter running: the quick was gone. You can't set a middle quick off a pass like that. The back set to the right was gone; the setter's shoulders were facing the wrong way and he'd be setting off 1 foot. The dump was gone; he was too far from the net. What was left was the ball a setter throws when he's in trouble. High, outside, to his ace, on the left. The 1 everybody can see coming.
+
+Most of the court went dark. What was left was a shape.
+
+Across the net, Tsukishima had seen the same thing. He was already sliding out to the right, toward where Shinzen's ace was coming in, with Kageyama beside him. He went up late and soft with his hands angled, the way he'd learned on the 4th night. Sho moved to the edge of Tsukishima's shadow, the bit just off the outside hand, where Kuroo had told him the ball comes when a hitter tries to go round.
+
+And the gym went quiet.
+
+It came on its own. He hadn't asked. It came the way you feel somebody sit down beside you on a bench, and it was looking at the same thing he was looking at.
+
+Shinzen's setter hung in the air under the ball in points of light, and the ghost peeled off his hands a blink early, and went high and outside to the left, to the ace.
+
+The map had said the ace. The eye said the ace.
+
+Then the ghost moved to the ace, peeled off his hand, and turned at the top, soft, up and off the outside edge of Tsukishima's late hands, the way a clever hitter goes round a block that's waiting for him.
+
+Sho was standing in front of it before the ace's hand touched the ball.
+
+The noise came back. The ball came off Tsukishima's fingertips, exactly where the map had said a ball off Tsukishima's fingertips would come, and dropped into Sho's arms, and he gave with it, soft, Yaku's give, and it went up, high and slow, toward the net.
+
+Toward Kageyama.
+
+Kageyama was landing from the block, off balance, on the wrong foot. He wasn't going to make it. Sho saw that from the back row, the way he'd seen everything in the last 2 seconds: Kageyama was a step and a half from the ball and falling, and the ball was coming down 2 meters off the net with nobody under it.
+
+Sho was already running.
+
+"MINE!"
+
+He got under it. His hands were up before it arrived, the small window between the thumbs and forefingers, the shape already there. He bent his knees and let the ball come down into the pads of his fingers, and stood up, and the ball went up because he stood up. Legs 1st, then the trunk, then the arms, the hands only finishing it, the way Akaashi had said, upside down, like hitting.
+
+It went high and outside to the left. Ordinary: high enough, off the net enough, a ball a hitter could hit.
+
+Tanaka was already coming in.
+
+He came in from the left with his whole body, the big shouting approach he'd had since April, with Shinzen's 2 blockers lining up in front of him, and he went up into Sho's ordinary set as if it were the best set anybody had ever given him.
+
+He hit it straight down past both of them, between their hands, into the floor.
+
+25-23.
+
+---
+
+Nobody on the court moved.
+
+Then Hinata screamed, high and enormous, with no words in it, and it went up into the roof, and then Hinata was running, and Noya was running, and the bench was off the bench, Yamaguchi and Ennoshita and Narita and Kinoshita and Asahi with his stiff back, all of them, and Suga, and Takeda was standing up in front of the bench with his hands over his face.
+
+Tanaka had landed on the other side of the 3-meter line and was standing with his arms straight out, both fists clenched, his head back, his mouth open. No sound was coming out of it. Then a sound came out of it, and it was the loudest sound Sho had ever heard a human being make.
+
+Sho stood in the middle of the back row with his hands still up in front of his face in the shape of the window.
+
+He looked at them.
+
+They'd done it. Yaku's feet had got him to the dig. Kuroo's shadow had told him where to stand. Ikkei's crossing-out had made the court small enough. Akaashi's hands had set it. And his own eyes, the eye that came on its own, had sat down next to him on the bench of all of that and agreed.
+
+4 people's lessons. 1 point.
+
+His right hand was at his side. It hadn't moved. He noticed that, and said, under his breath, to the hand, anyway, the way Mio had told him to: "It's fine."
+
+Then Tanaka hit him.
+
+It was a hug, technically. It came in at full speed from the side and lifted Sho off his feet and swung him round, and Tanaka was shouting in his ear, "YOU SET ME! YOU SET ME THE BALL! I FINISHED IT! I SAID I'D FINISH IT!" and then Hinata hit them both from the other side and they all went down in a heap on the floor of Shinzen's main gym, with Noya landing on top, and Sho lay at the bottom with somebody's knee in his ribs and somebody's elbow in his ear, laughing so hard he couldn't breathe.
+
+---
+
+On the bench Ukai was sitting very still with his arms folded and the cigarette behind his ear. Sho saw him over Tanaka's shoulder, upside down, from the floor. Ukai's face wasn't doing anything at all. Then it did something, at the very corner of his mouth, and he looked down at his own knees, and stayed like that.
+
+Across the court, Shinzen's players were lining up at the end line.
+
+Sho got up out of the heap, slowly, and stood and watched them.
+
+They went to the hill. They went up it, all of them, the whole Shinzen team, running, and walked down, and ran up again, while the rest of the camp watched from the gym door. Karasuno stood in a row on the grass and watched another team run their hill for the 1st time all week, and nobody cheered, because you don't, and Hinata held Sho's sleeve with 1 hand the whole time as if he might float off if he didn't.
+
+At the top, on the 1st run, Shinzen's ace stopped and turned round and looked back down the hill at them, at Tanaka, and raised 1 hand.
+
+Tanaka raised 1 back.
+
+---
+
+Nekoma were next. They were already warming up on the near court, red shirts in the morning light.
+
+Sho walked back toward the gym with the others, and at the door, where the shade started, somebody was sitting on the step with a game console in his lap.
+
+Kenma looked up.
+
+His eyes went to Sho's face. Then, as always, down to his feet.
+
+"Next is us," said Kenma.
+
+"I know."
+
+Kenma kept looking at Sho's feet. Sho was standing in the doorway, easy, with his heels where they always were.
+
+"You still stop," said Kenma. "It's a circle now. But you still stop."
+
+Then he got up, and put the console in his pocket, and went in to warm up.
+
+**Continuity (ch 41)**
+
+- Sho POV, day 8 (last day) of the Shinzen camp, game 1. **Karasuno's 1st win of the camp: 25-23 over Shinzen (user approved; flips canon).** The eye fired once, on its own, in agreement with the map (bible: "Eye and map agree on Shinzen's setter"). No status card.
+- **Morning:** Yaku's 10 again at 6:05; Yaku served the 11th at Lev's face (approval). Hinata said "Shinzen" between bowls.
+- **Lineup (8:15):** Kageyama, Hinata, Tsukishima, Daichi, Tanaka, Noya (L); **Kiyose in Asahi's spot, whole set (his 3rd whole set on the wing).** Asahi's back stiff from 3 days of jump serves; he told Ukai at dinner (Suga: a year ago he'd never have). Asahi: "Um. Borrow it." (callback). Tanaka: "We've never beaten them... Not in the whole history of the whole camp. Ennoshita looked it up." Ennoshita: "I asked their coach. He laughed... Kindly." "There's no kind way to laugh at somebody."
+- **Shinzen (plain; invented players by role):** setter (3rd year, tidy hands, calm, sets the ace on the left when in trouble); ace (tall, flat hard hitter; hits earlier than his approach says); right-side hitter (smaller, smarter); libero (quick, cheats a step toward the ace when the ace is front row). Shinzen beat Karasuno twice earlier in the week (incl. day 6).
+- **Rallies:** 0-3 (ace's early cross; Sho half a step late; "Mine"/"Yours" with Daichi; Noya laughing). 1-3: Sho's pass, Tanaka kill ("NICE PASS!"). **3-4: Sho serves the right-side hitter about to rotate front; setter goes to the ace; Tsukishima's late soft block up; Noya digs ("NICE, TSUKISHIMA!"; Yamaguchi's face).** Hinata's normal quick, eyes shut, in (5-5). Back-row calls ("Short!", "Tip!"); never calls Tsukishima's blocks. Front row: waited; 2 soft blocks up; **1 stuff (his 1st straight-down block at camp); Tanaka slapped his head.** **Hitting: 6 sets, 4 in (high hands, full swing), 1 tooled, 1 into the net (ran under it); Shinzen started double-blocking him; Kageyama went middle to Hinata.**
+- **13-13:** Shinzen's libero stopped cheating toward the ace (stood square). Ukai lifted 2 fingers.
+- **21-21:** Shinzen's middle touched Tsukishima's quick; Daichi dug; Tanaka blocked; Noya dug the block; **the bad ball went to the left antenna with Sho at the net on the far right; Tanaka took it and hit through 2 blockers (22-21). "That was Tanaka's ball... Sho had wanted it, and Tanaka had wanted it more, and had taken it."** (The out-of-system kill for Sho is still saved for ch 43-44.)
+- 22-22; 22-23 (tip between Sho and Daichi, the same seam, near collision); 23-23 (Kageyama dump, side-out; ears red); **rotation brings Sho to serve; 1st serve at the square libero, good pass, Tanaka cross: 24-23; Sho serves again.**
+- **Shinzen timeout:** Sho alone on the end line, thinking: the libero square now, the right-side hitter beside him; the seam ("*mine*... *yours*, for 1 beat"). **Tanaka walked to the end line: "If it comes to me, I'm finishing it." "Okay."**
+- **The last rally ("4 into 1"):** Sho's plain float at the seam; both passers hesitated 1 beat; the libero got it up, off the net, high and outside; the setter ran. **Map: quick gone, back set gone (shoulders, 1 foot), dump gone (too far): high outside to the ace.** Tsukishima slid out with Hinata and blocked late and soft. Sho at the edge of Tsukishima's shadow (Kuroo). **The eye came on its own ("the way you feel somebody sit down beside you on a bench") and agreed: the setter's ghost went to the ace; the ace's ghost turned up off the outside edge of Tsukishima's hands.** Sho there before contact; dug it soft (Yaku's give) toward Kageyama, who was landing off balance from the block (Kageyama and Tsukishima blocked; Tanaka front left); **"MINE!": Sho set Tanaka with Akaashi's hands (window, pads, legs 1st), "Ordinary. A ball a hitter could hit." Tanaka killed it straight down between 2 blockers. 25-23.**
+- **After:** Hinata screamed; the bench emptied (Yamaguchi, Ennoshita, Narita, Kinoshita, Asahi, Suga); Takeda's hands over his face; Tanaka's silent then enormous roar. **Sho's hands still in the window: Yaku's feet, Kuroo's shadow, Ikkei's crossing-out, Akaashi's hands, and the eye "agreed". "4 people's lessons. 1 point."** His right hand never moved; he told it anyway: "It's fine." (Mio, ch 39.) Tanaka: "YOU SET ME! YOU SET ME THE BALL! I FINISHED IT! I SAID I'D FINISH IT!" Pile on the floor; Sho at the bottom, laughing. Ukai: still, then the corner of his mouth; looked at his knees.
+- **Shinzen ran the hill; Karasuno watched another team run it for the 1st time;** nobody cheered; Hinata held Sho's sleeve. Shinzen's ace raised a hand to Tanaka from the hilltop; Tanaka raised 1 back.
+- **Hook:** Nekoma warming up (red). **Kenma on the gym step: "Next is us." "I know." "You still stop. It's a circle now. But you still stop."**
+- Ace path: 3rd whole set on the wing (4 of 6 in, 1 tool, Shinzen double-blocking him); a stuff block; but the bad ball went to Tanaka (his).
+- Next: ch 42 "The lie" (Sho): game 2 vs Nekoma: the showcase: **he fakes the stillness Kenma learned to read** (the lie) and digs 2; ears + map + the eye he invites; Tanaka: "FACE LIES!"; Nekomata calls a timeout for #13; **Kenma switches to his feet and wins it 26-24 with a dump into the 1 spot the map ruled out. "You patched it." "Mostly."**
