@@ -2741,3 +2741,351 @@ Meta Vision: Scanning
 - **Night 3, the 3rd gym (canon venue; Kuroo mentioned it at the gate as bait):** Bokuto: "HEY! YOU! 13!... The 1 who got my best 1 in Tokyo!... We need a digger! Kuroo's useless at it and your tall blond 1 won't stay!... You stood in the wrong place 3 times on the 1st day, I saw!... I'll give you 50 of them!" Akaashi: "Bokuto-san. He's just had a bath." "He can have another 1!" **Sho went.**
 - Bible note: Kagemane (Kuroo's "stand in my shadow") now debuts in ch 37.
 - Next: ch 37 "Moonrise" (Sho): nights 3 to 5 in the 3rd gym; Akaashi sets, Bokuto hits, Kuroo blocks; **Sho invites the eye for the 1st time** (on Bokuto) and it comes; digs Bokuto 1, then 3, then 6 a night; Kuroo: "Stand in my shadow." The moonrise night (Tsukishima/Yamaguchi, Tsukishima's question, Bokuto's "the moment") stays theirs; Sho leaves before it.
+
+## Chapter 37: Moonrise
+
+The 3rd gymnasium was the oldest building at Shinzen. It had a wooden floor gone gray at the edges and gold in the middle where 100,000 shoes had polished it, and windows that didn't close properly, and a stage at 1 end with a dusty red curtain nobody had drawn in years. The lights hung on long wires from the roof, and moths went round every 1 of them. Through the open windows came the cicadas, and the smell of cut grass, and the dark.
+
+There were 4 people in it when Sho came in with his towel still round his neck.
+
+Bokuto, already at the net, bouncing. Akaashi at the ball basket, sorting the soft balls to 1 side. Kuroo at the net on the other side, rolling his shoulders, with Lev beside him looking enormous and doubtful. Behind Kuroo and Lev, nobody. The whole back court on their side was empty: 9 meters by 9 of gray-gold wood, with the lights swinging slightly overhead.
+
+"Notebook!" said Kuroo. "You came. He's been begging for a digger for 3 days."
+
+"HEY HEY HEY!" Bokuto came round the end of the net at a jog and stopped in front of Sho, close, beaming. Close up he was barely taller than Sho, and about 3 times as loud. "13! You came! What's your name?"
+
+"Kiyose. Kiyose Sho."
+
+"Kiyose! You got my best 1, in Tokyo. My best cross." He held up 1 finger. "Nobody gets that 1."
+
+"It was line, Bokuto-san," said Akaashi, from the basket, still sorting. "The 1 he got."
+
+Bokuto thought about this. "My best line," he said. "Nobody gets that 1 either." He pointed at the empty back court. "Go and stand there. I'm going to hit everything at you."
+
+---
+
+Akaashi made the rule plain before the 1st ball, in the same voice he used for everything. A dig counted if it went up to the setter's spot on Sho's own side of the net, high enough that somebody could have set it. Anything else was a touch. Kuroo, coming down from the block, would catch the good ones and roll them back under the net.
+
+Bokuto didn't count digs. Bokuto counted, out loud, with tremendous satisfaction, every ball that hit the floor.
+
+The 1st hit the floor before Sho had moved.
+
+The 2nd hit him on the shoulder and went into the stage.
+
+The 3rd, he crossed out the line, and Bokuto turned in the air, the way he had on the 1st day, and hit the line anyway, and it went past Sho's right hand so close he felt the air of it.
+
+"3!" said Bokuto. "HEY! 4!"
+
+"You're counting the wrong thing, Bokuto-san," said Akaashi.
+
+"I'm counting the GOOD thing!"
+
+By 20 Sho had touched 4 and dug none. His forearms were already red. Bokuto's ball was heavier than anybody's he'd stood in front of in this life, heavier than Iwaizumi's, heavier than anything Satoshi had dug at 19. It arrived all at once, with the weight of a whole body behind it.
+
+He tried Ikkei's way, crossing out, and it was too slow. He tried Yaku's way, feet first, and it was better, and still too slow. Bokuto decided in the air. That was the trouble with him. A spiker who decides in the air gives you nothing to cross out until he's chosen, and by then the ball is on the floor.
+
+On the 38th ball, Sho crossed out nothing at all. He just went where Bokuto's shoulder pointed at the last instant, and threw his arms at it. It came off them and went up, high and wild, but up, near enough to the 3-meter line that Kuroo, landing, took 2 steps and caught it.
+
+"1!" said Bokuto. He spun round to the whole empty gym. "AKAASHI! HE DUG 1!"
+
+"I saw, Bokuto-san."
+
+Sho was flat on his back on the gray-gold floor with his arms out, looking up at the lights on their long wires and the moths going round them, and laughing. It had come out of him the moment the ball went up.
+
+"Why is he laughing?" said Lev.
+
+"He's from Karasuno," said Kuroo, and rolled the ball under the net to Akaashi. But he was watching Sho over the tape with his head on 1 side, the way he'd watched him at the gate.
+
+At 9:20, after the 50th ball, Sho got up and bowed to all of them and said thank you, and that he had to go.
+
+"GO?" said Bokuto. "We've only done 50!"
+
+"I'm sorry. I promised somebody. 9:30."
+
+Bokuto looked at him, and then at the clock over the stage, and then back at him, with deep suspicion.
+
+"Tomorrow," said Bokuto. "Same time. And you dig 2."
+
+---
+
+On the 4th morning, at 6:05, he passed Yaku's 10 again. It took him 2 tries. Yaku counted it out loud to the end, and said, "Hm," and turned round and served at Lev.
+
+The games that day went badly, though less badly than the 1st day. Hinata and Kageyama still weren't speaking. Hinata still jumped with his eyes open, and still got up off the floor every time with his jaw clenched and went again. Kageyama still couldn't make the ball stop at the top. Sho played his pieces, a rotation here and a rotation there, and passed Ubugawa's servers, and some of his passes went to the setter now. When Ubugawa's #9 came on to serve, he looked at Sho first, and then away.
+
+At 7:40 Sho went back to the 3rd gym.
+
+---
+
+It was Kuroo who saw it.
+
+They'd been going about 20 minutes, and Sho had touched 6 and dug none. He was reading Bokuto with everything he had: approach, shoulder, hips, hand. He crossed out what he could and stood in what was left, and Bokuto kept turning into somebody else at the top.
+
+After the 23rd ball Kuroo came down off his jump and didn't go back to his spot. He ducked under the net and walked across the back court to Sho with his hands in his pockets.
+
+"Notebook," he said. "Can I tell you something?"
+
+"Please."
+
+"You're reading Bokuto."
+
+"Yes."
+
+"Don't." Kuroo jerked his head back at the net. "Read me."
+
+Sho looked at him.
+
+"I'm the block," said Kuroo. "When Bokuto comes in from the left, I take his line away. I put my hands there." He held up his right hand, flat, angled. "Lev's supposed to take the middle, and he doesn't, because he's Lev, but he's getting there. So between the 2 of us there's a big piece of your court Bokuto can't hit. He can try. He'll hit my hands." He let his hand drop. "Behind my hands, that's dead. Nothing lands there. The edge of it, just off my outside hand, that's where the ball comes when he tries to go round me. Stand on the edge of my shadow. Let it come to you."
+
+"So you're crossing things out," said Sho slowly. "For me."
+
+Kuroo's eyebrows went up.
+
+"Is that what it's called? Sounds clever." He grinned. "It's just blocking."
+
+He went back under the net and up to his spot without waiting to see whether Sho understood.
+
+Sho stood in the back court and looked at Kuroo's hands.
+
+They were the best hands on the court. He'd written it in May, on the bench, in the notebook: *Kuroo's hands at the net, open early, steering instead of stopping.* He'd never once, in May, thought of standing behind them.
+
+Akaashi set. Bokuto came in. Kuroo went up, and his hands went out over the net, angled to take the line, and behind them, on the floor, a piece of the court went dark. Kuroo had crossed it out for him.
+
+Sho stood on the edge of it.
+
+Bokuto hit at Kuroo's outside hand, trying to go round, and the ball came off the edge of the block, and Sho was standing in front of it, and it came onto his arms and went up in a soft arc to the setter's spot.
+
+Kuroo landed, caught it, and rolled it under the net.
+
+"1!" said Bokuto.
+
+Kuroo looked over his shoulder at Sho, and grinned, and went back to his spot.
+
+The 2nd came 10 balls later. Kuroo's hands. The edge of the shadow. Up.
+
+"2!" said Bokuto. "AKAASHI! 2! He wants 50!"
+
+"He doesn't want 50, Bokuto-san."
+
+"EVERYBODY wants 50!"
+
+The 3rd came on the very next ball, and Bokuto was still turning round to celebrate the 2nd when Kuroo caught it.
+
+"3!"
+
+---
+
+And then Bokuto rushed.
+
+He came in on the next set before Akaashi's hands had finished it, too early, and hit it into the net. Then he hit 1 a meter long. Then 1 into Lev's flailing hands, which surprised Lev more than anybody. And Bokuto came down from that 1 and stood at the net with his arms hanging, and his hair, which had been sticking up in 2 proud points all evening, seemed to sag.
+
+Sho had seen this before, from the other side of a net in Tokyo: 3 rallies of sulking after a block.
+
+"Don't set me," said Bokuto, to the floor. "I'm no good today."
+
+Kuroo sighed and sat down on the floor where he was, like a man waiting for a train he knew would come eventually.
+
+Akaashi picked up a ball from the basket and turned it over in his hands as if he were checking the seams. Then he walked to his spot under the net and stood there with it, and waited. He didn't call Bokuto. He stood there, quite still, until Bokuto turned his head and saw him standing there.
+
+Then Akaashi tossed the ball up to himself, and set it.
+
+Sho saw it from 9 meters away, because he knew how to read Akaashi's sets now. In Tokyo he'd worked it out: tight to the net meant Akaashi wanted cross; out toward the antenna meant line. This set was neither. It was a fraction higher than any all evening, and a fraction slower, and a fraction off the net, and it hung at the top in the place where Bokuto's hand would be if Bokuto went now. It didn't tell Bokuto where to hit. It only told him to come.
+
+Bokuto's head came up. His feet moved before he'd decided anything, 1 step, 2, and then he was running, and he went up into that ball and hit it with everything, straight down into Kuroo's side of the court, so hard it bounced up and hit a light, and the light swung on its wire, and the moths scattered.
+
+"HEY HEY HEY!" said Bokuto, and his hair was back up.
+
+"I set it, Bokuto-san," said Akaashi, and picked up another ball.
+
+Sho had been that, once. At 19, in a white shirt with a navy 5 on it, after a ball he should have killed. Somebody had set him the next 1 a fraction higher than usual. He'd never asked who decided that, or why.
+
+Kuroo got up off the floor, dusting his shorts, and went back to the net.
+
+At 9:20 Sho bowed and went to call his sister, and Bokuto shouted after him across the dark grass, "4! Tomorrow you dig 4!"
+
+---
+
+The 5th night was hot and still. The moths were thicker round the lights than ever, and somewhere beyond the trees a dog was barking at nothing.
+
+At dinner Tsukishima wasn't at Karasuno's table. Yamaguchi was, in his usual place, with his chopsticks in his hand and his rice untouched, looking at the empty place beside him, and then at the door, and then at the empty place again.
+
+Sho saw it. He ate his rice. At 7:40 he went to the 3rd gym.
+
+---
+
+He dug 2 in the 1st 15 minutes, both off the edge of Kuroo's shadow. Bokuto counted them at the top of his voice. Lev, who was beginning to understand what Kuroo was doing with his hands, put his own hands somewhere useful for once, and Kuroo said "There!" and Lev nearly fell over with pride, and the dead piece of the floor behind them grew a little wider.
+
+Then, on the 16th ball, Bokuto went up, and Kuroo's hands went out, and Sho stood on the edge of the shadow, and Bokuto turned in the air.
+
+Bokuto had learned too. He turned his whole body and hit the ball high off the very tips of Kuroo's fingers, so it went up and back, deep, over Sho's head, into the corner by the stage. Nobody's shadow covered that.
+
+Sho ran it down and got a hand to it, flat out on the floor, and it went into the curtain.
+
+He lay with his cheek on the floor, looking at the dusty red curtain with a volleyball-shaped dent in it, and breathing. Then he got up and went back.
+
+After that there wasn't much for him to do. Lev's hands kept being useful. Kuroo's hands were always useful. Between them the court behind the net was mostly dark now, and what was left was small enough that Sho could stand at its edge and wait, with his weight easy and his breathing slow, and let the edges of the gym come to him the way Ikkei had said. The net, the tape, the space over Kuroo's hands. The moths. The swinging lights. It was quiet inside him in a way it hadn't been all week.
+
+He'd asked before. In April, in May, on courts in Miyagi, he'd stood with his jaw clenched and begged it to come, and it never had. It came when it wanted.
+
+Tonight he asked differently. He stood on the edge of Kuroo's shadow with nothing in particular riding on the answer, and thought, at nothing, *If you'd like to come, now would be a good time.* And if it didn't, he'd dig what he could, and that would be fine.
+
+Akaashi set.
+
+Bokuto came in from the left, the big slapping approach, and went up, and Kuroo and Lev went up with him, and Bokuto's arm went back.
+
+The gym went quiet.
+
+He felt it arrive the way you feel somebody sit down next to you on a bench.
+
+Bokuto hung over the net in points of light. The ghost peeled off his hand, a blink early, and Sho saw the turn in it, the whole body twisting at the top, the wrist going high, aimed at the very tips of Kuroo's outside fingers. That was all the ghost showed. The rest Sho already knew. He'd lain on his face 10 minutes ago looking at the dent that ball had made in the curtain.
+
+He was already going, 3 steps back and to the right, toward the stage. He got there with time to turn round and wait, and look up, and watch the ball come off Kuroo's fingertips exactly where it had come off before, and look at it all the way down onto his arms, the long still look, Yaku's look. It fell into his arms and he gave with it, soft, and it went up.
+
+High. Slow. To the setter's spot.
+
+Kuroo, coming down, didn't have to move. He caught it at chest height, and stood holding it, and turned round to look at Sho.
+
+On the other side of the net, Akaashi had gone very still. Before Kuroo had rolled the ball back under the net, before Bokuto had started shouting, Akaashi was looking across the court at Sho, and he went on looking while Kuroo rolled the ball to his feet, and he picked it up without looking at it.
+
+"3!" Bokuto roared. "THAT WAS MY BEST FINGERTIP 1! AKAASHI, HE GOT MY BEST FINGERTIP 1!"
+
+The noise came back. Sho stood by the stage with the ball's warmth still on his forearms. His eyes felt clear and wide, the way the court looks in the morning before anybody has come in.
+
+He didn't ask again. He dug 3 more that night off the edge of Kuroo's shadow, the ordinary way, with his feet and his eyes and somebody else's hands. 6 in all.
+
+"6!" said Bokuto. "Tomorrow he'll get 10! The day after, 50!"
+
+"Bokuto-san, the camp ends in 2 days."
+
+"Then he'll have to dig fast!"
+
+---
+
+At 9:20 Sho bowed.
+
+"No!" said Bokuto. "You can't go now! You're good now! 10 more!"
+
+"9:30, Bokuto-san."
+
+"Who is it, anyway?" said Kuroo, from the net. "Every night. Girlfriend?"
+
+"My sister."
+
+"How old?"
+
+"10."
+
+Kuroo laughed. "And you're scared of her."
+
+"Yes," said Sho.
+
+Kuroo stopped laughing, and looked at him, and nodded slowly. "Fair," he said. "Go on."
+
+Akaashi, at the ball basket, straightened up and gave Sho a small bow, and said, "Thank you for the digs, Kiyose-kun," and Sho bowed back and went out of the side door into the dark.
+
+---
+
+The moon was coming up over the hill.
+
+It was huge, low and orange, the way the moon only is when it's just come up behind something, and it was coming up over the penalty hill, so that the road going straight up seemed to go into it. The grass was silver on 1 side of the path and black on the other. Behind him, through the open windows, he could hear the crack of Bokuto's hand on the ball, and Bokuto's voice, and Kuroo laughing.
+
+He'd gone about 30 meters along the path when he saw somebody coming the other way.
+
+Tall. Thin. Hands in his pockets. Walking slowly, as if he hadn't quite decided to walk in this direction and was waiting to find out whether he had.
+
+Tsukishima stopped when he saw Sho. They stood on the path, 3 meters apart, in the light of the moon.
+
+Tsukishima's face was doing nothing. It always did nothing. His shoulders were a little high and his chin a little low, and Sho, who had watched people's shoulders for a living, made himself stop reading them.
+
+"Are they still in there?" said Tsukishima. "Bokuto-san. And Kuroo-san."
+
+"Yes."
+
+Tsukishima looked past him at the lit doorway, at the light coming out of it onto the grass, and didn't move.
+
+Sho stepped off the path onto the grass, to give him room, and went on.
+
+When he'd gone another 20 meters he looked back, once.
+
+Tsukishima was standing in the lit doorway of the 3rd gym, a long dark shape against the light, with his hands in his pockets. Then he went in.
+
+Sho walked on toward the dining hall with the moon on his right.
+
+---
+
+"Who'd you play," said Mio.
+
+"Bokuto-san. And Kuroo-san's hands."
+
+"Whose hands?"
+
+"Kuroo-san. The tall 1 with the bad hair. He blocks." He was on the bench outside the dining hall, with the moon a little higher now over the hill and going from orange to gold. "If you stand at the edge of where his hands are, the ball comes to you."
+
+"That doesn't make sense."
+
+"It does when you do it."
+
+"How many?"
+
+"6. Out of about 60."
+
+"That's still bad."
+
+"Still bad," he said. "Better."
+
+"Eyes."
+
+He looked at the moon.
+
+"Once," he said. "And it was different."
+
+"Different how?"
+
+He thought about how to say it to a 10-year-old sitting on the stairs at home in her pajamas, with a pencil and a notebook with *SHO* on the cover, so that it would be true.
+
+"It always just comes when it wants," he said. "I can't make it. I've tried. Tonight I asked. The way you'd ask somebody to come over. And it came."
+
+The line went quiet.
+
+"Did it hurt?"
+
+"No."
+
+He heard her pencil. Then it stopped.
+
+"Then ask it again tomorrow," said Mio.
+
+"It might not come."
+
+"Then ask it nicely."
+
+She hung up. He sat on the bench with the phone in his hand and the moon going gold over the hill.
+
+A lighter clicked in the dark, near the vending machines. Ukai came along the path from the staff building with Takeda beside him, Takeda carrying a clipboard against his chest and talking quietly about tomorrow's games, Ukai with the cigarette lit for once and held low. They were nearly past the bench when Ukai's eyes went to Sho's forearms, purple to the elbow under the light.
+
+He stopped.
+
+"3rd gym?" said Ukai.
+
+"Yes, Coach."
+
+Ukai looked at the forearms a little longer. Then at Sho's face. Then he said to Takeda, without taking his eyes off Sho, "Tomorrow. 1st game. He starts. Whole set."
+
+Takeda wrote it on the clipboard.
+
+"Hm," said Ukai, to nobody, and walked on.
+
+**Continuity (ch 37)**
+
+- Sho POV, nights 3 to 5 of the Shinzen camp (day 4 in brief). The eye: **invited on night 5, on Bokuto, and it came; no cost.** (Bible "Conditioned": "he can invite it in calm moments" begins here, early and once.) No status card.
+- **The 3rd gym (canon venue; details invented):** oldest building; gray-gold wooden floor; windows that don't close; stage with a dusty red curtain; lights on long wires; moths; cicadas. **Present nights 3 to 5: Bokuto, Akaashi, Kuroo, Lev** (Kuroo coaching Lev's blocking, canon). Tsukishima arrives only at the end of night 5. Hinata not there yet.
+- **Rules (Akaashi):** a dig counts if it goes up to the setter's spot on Sho's own side, settable; anything else is a touch. **Kuroo, landing, catches good digs and rolls them under the net.** Bokuto counts the floor ones ("You're counting the wrong thing, Bokuto-san." "I'm counting the GOOD thing!").
+- **Night 3:** "Kiyose. Kiyose Sho." Bokuto: "My best cross." Akaashi: "It was line, Bokuto-san." Bokuto barely taller than Sho (185 vs 182), 3 times as loud. Line passed Sho's right hand. 4 touches in 20. Bokuto decides in the air. **1st dig on ball 38** (went where the shoulder pointed at the last instant); "1!... AKAASHI! HE DUG 1!" Laughing on his back. Lev: "Why is he laughing?" Kuroo: "He's from Karasuno." **9:20 he leaves every night to call Mio at 9:30.** "Tomorrow... And you dig 2."
+- **Day 4:** Yaku's 10 again in 2 tries ("Hm"). Games lost, less badly. Hinata eyes open; Kageyama's set won't stop (theirs). Ubugawa's #9 looks at Sho and away.
+- **Night 4, Kuroo's shadow (Kagemane debut):** "You're reading Bokuto... Don't. Read me... I take his line away... Behind my hands, that's dead... The edge of it, just off my outside hand, that's where the ball comes when he tries to go round me. Stand on the edge of my shadow." "So you're crossing things out. For me." "Is that what it's called? Sounds clever. It's just blocking." (May notebook: *Kuroo's hands at the net, open early, steering instead of stopping.*) **Digs 1, 2, 3** off Kuroo's outside hand. "He wants 50!" "EVERYBODY wants 50!"
+- **Bokuto's sulk (canon trait; this instance invented, short):** rushed 3 balls (net, long, into Lev's hands); "Don't set me. I'm no good today." Kuroo sat down to wait. **Akaashi waited with the ball until Bokuto looked, then set a ball that was neither tight (cross) nor out (line): higher, slower, off the net, hanging; "It didn't tell Bokuto where to hit. It only told him to come."** Bokuto killed it into a light. "I set it, Bokuto-san." Satoshi at 19 (white shirt, navy 5) had been set "the next 1 a fraction higher" after a ball he should have killed; never asked who decided.
+- **Night 5 (moonrise night):** at dinner Tsukishima absent; Yamaguchi's rice untouched, looking at the empty place and the door (theirs). In the gym: 2 digs; Lev's hands useful ("There!"). Ball 16: Bokuto turned and hit high off Kuroo's fingertips, deep to the stage corner (dent in the curtain). Calm: little left to do; wide gaze. **He'd asked before (April, May) with his jaw clenched, never answered. Tonight: "*If you'd like to come, now would be a good time.*" It came "the way you feel somebody sit down next to you on a bench."** The ghost showed only Bokuto's turn and the high wrist at Kuroo's outside fingertips; **Sho's memory of ball 16 supplied the corner.** 3 steps, waited, Yaku's long look, soft give, **high and slow to the setter's spot; Kuroo caught it at chest height without moving.** Akaashi went still and kept looking at Sho. "THAT WAS MY BEST FINGERTIP 1!" Eyes "clear and wide." He didn't ask again. **6 digs in all.** "Bokuto-san, the camp ends in 2 days."
+- **9:20:** "9:30, Bokuto-san." Kuroo: "Girlfriend?" "My sister." "How old?" "10." "And you're scared of her." "Yes." "Fair. Go on." Akaashi: "Thank you for the digs, Kiyose-kun."
+- **Moonrise:** huge orange moon over the penalty hill. **Tsukishima on the path: "Are they still in there? Bokuto-san. And Kuroo-san." "Yes."** Sho stepped onto the grass; looked back once; Tsukishima went in. **The night inside is Tsukishima's (canon: his question, Bokuto's "the moment", Kuroo's blocking advice).**
+- **Night 5 call:** "Bokuto-san. And Kuroo-san's hands." "If you stand at the edge of where his hands are, the ball comes to you." "That doesn't make sense." "It does when you do it." "6. Out of about 60." "Still bad. Better." **"Tonight I asked... And it came." "Did it hurt?" "No." "Then ask it again tomorrow." "It might not come." "Then ask it nicely."**
+- **Ukai and Takeda pass (lighter, clipboard):** Ukai sees Sho's forearms purple to the elbow. "3rd gym?" "Yes, Coach." **"Tomorrow. 1st game. He starts. Whole set."** Takeda wrote it down. "Hm."
+- Next: ch 38 "Hand up" (**surprise Ukai POV 2**): day 6 from the bench; Ukai watches Sho play a whole set and sees a 1st year become an all-rounder (the dig, the block that waits, a 2nd-ball set, the serve at the right man, standing at the edge of the block's shadow); once, out of habit, Sho's hand twitches toward the rule: "Burning?" "...No." "Then stay on." Ukai's word: IQ. Hinata and Kageyama "back in action" around here (canon ch 90; theirs).
