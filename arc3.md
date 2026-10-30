@@ -1891,3 +1891,396 @@ Yachi switched the torch off. In the dark, the page was just a pale shape on Sho
 - **Monday tape: 13 of 14 stops right** (nobody looking for it).
 - **Ukai 8:10:** went to the kerb 1st ("Tanaka. Walk him home."; Tanaka carried both bags, talked loudly about ramen). Read Sho's margin; stopped on *So keep it. Then what?* **"Thursday. After practice. Bring that page." "Where are we going?" "My grandfather's."** Tapped *Then what?*
 - Next: ch 35 "Ikkei" (Sho): Thursday at Ukai Ikkei's (Hinata's own tempo lessons with Ikkei are canon and separate; Keishin takes Hinata). Ikkei on looking at what can't happen; the stop. Kageyama back from Oikawa: "He asked if you still squint." Hinata and Kageyama not speaking (canon: about 3 weeks).
+
+## Chapter 35: Ikkei
+
+Hinata came back on Wednesday with a word.
+
+Nobody knew where he'd been on Tuesday evening. He'd left practice early with Coach, the 2 of them getting into the shop's white van in the car park without explaining anything, and on Wednesday morning he came up the hill to the gym at 6:50 saying the word under his breath, over and over, like somebody trying to keep a phone number in his head.
+
+"Tempo," said Hinata, to the gym door. "Tempo. Tempo."
+
+"What's tempo?" said Noya.
+
+"I don't know yet," said Hinata, and went in.
+
+He didn't tell anybody else. He said the word all through Wednesday, to the ball, to the wall, to his own hands in the receive line. He jumped differently, too, in the spike drills, a little later than before, as if he was listening for something before he went. Sometimes it worked and mostly it didn't, and every time it didn't he went straight back to the end of the line without a word to anybody.
+
+He and Kageyama still weren't speaking. They were at practice, both of them, every morning and every evening, just as Sho had told Yachi they'd be, except on Tuesday evening, when Kageyama had left early too, separately, 10 minutes after the van. They worked hard at not speaking. If Kageyama was setting at the near court, Hinata hit at the far one. If they passed each other at the water bottles, they both looked at the bottles.
+
+Sho watched it the way you'd watch weather, and kept out of it.
+
+---
+
+On Thursday, at the evening water break, Kageyama came and stood next to him.
+
+Sho was sitting against the wall under the window with his bottle. Kageyama stayed standing, with his own bottle in his hand, not drinking from it, looking out at the court where Tanaka and Noya were arguing about a line call.
+
+Sho waited. Kageyama was 1 of those people you had to wait for.
+
+"I saw Oikawa-san," said Kageyama at last.
+
+"Oh?"
+
+"On Tuesday. At the old Coach Ukai's class. The kids' one." Kageyama frowned at the court. "His nephew goes there. He was picking him up."
+
+Tuesday. Sho kept his face where it was. He could see the shape of a story in how stiffly Kageyama was holding the bottle.
+
+"He asked about you," said Kageyama.
+
+"About me?"
+
+"He asked if you still squint." Kageyama finally drank, a short angry swallow, as if the question had been his own fault. "I said I'd never noticed. He said, 'Typical.'"
+
+Sho laughed before he could help it. Kageyama's ears went red.
+
+"Do you?" said Kageyama.
+
+"Squint?"
+
+"Still."
+
+Sho checked, the way he'd check a pass. In June, after Seijoh, he'd squinted at everything till the Wednesday clinic: menus, the board, Mio's handwriting. Now the board at the front of 1-5 was sharp from the back row. Akaashi's hands had been sharp across 2 courts.
+
+"No," he said. "Not anymore."
+
+Kageyama nodded slowly, as if he'd guessed and wanted it confirmed, and stayed where he was, looking at the court. Hinata was at the far end of it, alone, tossing a ball to himself and jumping for it with his eyes wide open, over and over, landing badly, going again.
+
+"When he jumps like that," said Kageyama. He stopped. He started again, lower. "With his eyes open. You're in the back row. You see it." He didn't look at Sho. "What do you see?"
+
+Sho looked at Hinata. He saw a great deal. He saw the arm waiting. He saw the head lifting a fraction late. He saw, as he'd seen on Monday from the back row, a boy trying to watch the ball arrive and a set that had been built to arrive before anyone could watch it. He could have put it in 3 lines on a page. He'd been doing that for other people's setters for 9 years.
+
+"Too much," said Sho.
+
+Kageyama turned his head and looked at him at last. "Too much what?"
+
+Sho drank from his bottle.
+
+Kageyama kept looking at him, his eyebrows pulling together the way they did when a set had gone somewhere he hadn't meant it to. Then he looked back at Hinata, jumping alone at the far end of the court with his eyes open.
+
+"Tch," said Kageyama, to nobody, and went back to the court.
+
+Ukai blew the whistle. Sho got up. On the way past the bench he saw Yachi on it, cross-legged, with the camcorder on her knee, and she gave him a small serious thumbs up, like somebody signaling from a submarine.
+
+At 6:10, in the middle of a serve drill, Ukai said, "Kiyose. Get changed," the way he'd said it to Hinata on Tuesday, and went out to the van.
+
+---
+
+The van smelled of cigarettes and cardboard and the sweet chemical smell of the shop's air freshener, which was meant to be lemon and wasn't. There were boxes of instant noodles stacked in the back, and a crate of bottled tea, and a folded-up banner for the shop's summer sale that had slid off the pile onto the floor.
+
+Ukai drove with 1 hand on the wheel and his window down and the cigarette, for once, actually lit, held out of the window between 2 fingers so the smoke went backward into Miyagi and not into Sho.
+
+"I said after practice," he said, at the 1st set of lights. "He finishes at 7. So I lied. He's going to be rude, too."
+
+"You said."
+
+"I'm saying it again. He's rude to everybody. He was rude to the doctor who saved his life. He's rude to the kids, and the kids love it, which I don't understand." He tapped ash out of the window. "Don't take it personally."
+
+"Okay."
+
+"Or do. I don't care." The light went green. "Just don't argue with him. He likes it when you argue, and then you're there till 10."
+
+Sho had the notebook on his knee, closed, with his thumb in the page.
+
+"What happened to him?" he said. "Last year."
+
+"Collapsed," he said. "In the gym. In the middle of a practice. He was 71, and he'd been coaching Karasuno like it was the national team, every day, 7 days a week, and his heart said no." He turned onto a narrower road between rice fields, gone blue-green in the evening. "Doctor told him to rest. Stay home. Watch television. Grow tomatoes."
+
+"Does he?"
+
+"He grows tomatoes," said Ukai. "And twice a week he coaches 8-year-olds in a community gym. That's his idea of rest." He flicked the cigarette end into an ashtray clipped to the dashboard. "He says the kids are easier on his heart than you lot were. The old you lot, I mean. My lot. I was 1 of the ones who wasn't easy on it."
+
+Sho looked out of the window at the rice. A heron was standing in it, on 1 leg, absolutely still, watching the water.
+
+"Why are you taking me?" he said.
+
+Ukai didn't answer that 1 for longer. The road went over a small concrete bridge, and the van rattled.
+
+"Because you wrote *Then what?* at the bottom of a page," he said, "and I don't know the answer. And he might."
+
+---
+
+The community gym was on the edge of a town Sho had never been to, a low building with a green roof next to a primary school and a playground and a vending machine glowing in the dusk. Its doors were open. The noise coming out of it was the noise of a lot of small children who'd been running for an hour and were nowhere near tired.
+
+Inside, the gym was half the size of Karasuno's Second Gymnasium, with a lower ceiling, and a net set at the height for children, barely over Sho's head. About 15 kids between 7 and 10 were doing what was probably meant to be a receiving drill. 2 of them were receiving. The rest were chasing a ball that had got away into the corner, shrieking.
+
+At the side of the court, on a folding chair, sat an old man with a whistle.
+
+He was thin, much thinner than the man in the old team photo in Karasuno's club room, the one everybody looked at and nobody talked about. He had a blanket over his knees, in July, and a towel round his neck, and a face that looked as if it had been carved out of something hard and then left out in the weather for 70 years. He was watching the children chase the ball with an expression of total disgust.
+
+"5!" he shouted, in a voice much bigger than his body. "5 of you after 1 ball! Is it a hamster? Is it going to escape? Kota! You're a receiver! Receivers stay home! STAY HOME!"
+
+A small boy in a T-shirt 3 sizes too big ran back to his spot, grinning.
+
+"Gramps," said Ukai, from the door.
+
+The old man looked round. His eyes went to Keishin, and then past Keishin to Sho, and stayed there.
+
+They were sharp eyes, set deep. They went over Sho once, quickly, head to feet: his height, his shoulders, his hands, his knees. Then they came back up and rested on his face. Sho had been looked at like that before, a few times, in the other life, by the 2 or 3 oldest coaches in the V.League, the ones who'd been scouting players since before Satoshi was born. It was the look of somebody pricing you.
+
+"That's him?" said Ukai Ikkei.
+
+"That's him."
+
+"Hm." The old man turned back to the children. "Sit down. Both of you. Class finishes at 7. I'm not stopping for you."
+
+They sat on the low bench by the wall, Sho with his knees almost up to his chin. He watched the old man coach.
+
+He'd watched a hundred coaches on tape in the other life. He'd never watched one teach 8-year-olds. The old man was good. Under the shouting he was the real thing. He saw everything those children did. He saw the girl in the yellow shirt who flinched every time the ball came near her face, and put her at the back, in the corner, where it would only come at her arms. He saw the boy called Kota, who was fast and wild and wanted every ball, and gave him every ball, until Kota's arms were red and he was laughing and didn't care. He coughed, sometimes, a dry cough into the towel round his neck, and kept going.
+
+Sho had been 20, with a ruined knee and everything else still working, and he'd gone and found a room with no windows and stayed in it for 9 years.
+
+He looked down at his own hands, folded on the notebook. Then up at the old man, shouting at a 7-year-old about her feet.
+
+At 7, the parents came. The children ran off to them shrieking about who'd won, and nobody had won, because it hadn't been a game. A mother bowed to the old man and he waved her off like a fly. The girl in the yellow shirt came back from the door to give him a sweet from her pocket, and he took it and told her to go home, and put it in his own pocket, carefully.
+
+Then it was quiet. Just the 3 of them, and the low net, and the lights humming, and the sound of cicadas through the open doors.
+
+Ikkei turned his chair round to face them.
+
+"Keishin," he said. "Get a ball. Go over there. Hit at him."
+
+Ukai looked at him. "I thought you were going to talk to him."
+
+"I'm going to look at him. Then I'll know if he's worth talking to." Ikkei pointed at the court with his chin. "You. Boy. Go and stand there. Middle of the back. Like a receiver. Do what you do."
+
+Sho went and stood there. The net came barely over his head; he could have blocked over it flat-footed. On the other side Ukai picked up a children's ball, soft and light, and stood up on a folding chair so he'd be hitting down from roughly a spiker's height, and looked at his grandfather as if to say *happy now?*
+
+"Hit," said Ikkei.
+
+Ukai threw it up and hit it.
+
+It was an ordinary hit, a coach's hit, cross, at Sho's left. Sho watched Ukai's shoulder and hips and the way his arm came round, and his heels came down, and he went, and the ball came to his arms, and he passed it high back into the middle.
+
+"Again," said Ikkei.
+
+Line. Sho's heels came down; he went; he got it.
+
+"Again."
+
+Short, a tip, off the fingers. Heels; go; he got there with a step to spare.
+
+"Again. Again." Sho, glancing at him between hits, saw where the old man's eyes were: low, on Sho's feet, the whole time.
+
+After 10, Ikkei held up his hand.
+
+"Stop."
+
+Ukai got down off the chair.
+
+Ikkei folded his hands on the blanket. Then he said, to Sho, "What are you looking at?"
+
+"His shoulder, sir. And his hips. Where his arm comes round."
+
+"No. Before that."
+
+"You moved before he hit it," said Ikkei. "3 times out of 10, you were going before his hand touched the ball. Keishin's a terrible hitter, and you were still early on him." He coughed into the towel. "So what were you looking at?"
+
+Sho stood in the middle of the children's court with his hands at his sides, and felt his mouth begin to do the thing that Mio had written down as number 1.
+
+He stopped it.
+
+"I don't know how to say it," he said. "It's true. I don't know."
+
+Ikkei looked at him with those deep sharp eyes, and Sho let himself be looked at.
+
+"Hm," said Ikkei. Then he put his hand out, palm up, toward the notebook on the bench.
+
+"Keishin says you wrote something. Show me."
+
+---
+
+Ikkei read the whole notebook.
+
+He started at the 1st page and turned them over 1 by 1 with a dry thumb, the April pages and the May pages, Nekoma in May with the box drawn round *Kenma*, the pages from Seijoh in June in 2 different handwritings, Suga's round and careful where Sho had been holding a cold pack on his face. He didn't comment. Sometimes he grunted. Once he went back a page to check something. Ukai sat on the bench with his arms folded and the cigarette back behind his ear and looked at the ceiling.
+
+It took a long time. The cicadas went on outside. Sho sat on the bench and kept still.
+
+In the middle of June, Ikkei stopped.
+
+It was the page Sho had written on the train home from the clinic, the 1st page of the new part, with the date at the top and 5 lines under it in his own careful hand:
+
+*Hand up at the burning.*
+
+*Tell Coach 1st.*
+
+*Build the map so I don't need the eye.*
+
+*Listen.*
+
+*Play all 3 sets.*
+
+Ikkei read it, and stayed on it. He didn't turn the page.
+
+Sho found that his left hand had gone to his left knee. It was resting there, on the kneecap, the way Mio had drawn it in her notebook with *LEFT* in capitals. He felt it there and left it, because taking it away now would be worse.
+
+Ikkei's eyes went once from the page to Sho's hand on his knee, and back to the page. Then he turned it over and went on.
+
+At last he got to Sunday's page, and the bottom of it: *So keep it. Then what?*, and under that, smaller, *11:04. Mio said 11.*
+
+He read it twice. Then he laughed.
+
+It was a short, rough laugh, and it turned into a cough halfway through, and he coughed into the towel, and Ukai half stood up, and Ikkei waved him back down.
+
+"Who's Mio?" said Ikkei.
+
+"My sister, sir. She's 10."
+
+"She said 11?"
+
+"She said stop at 11."
+
+"Did you?"
+
+"No," said Sho. "4 minutes late."
+
+Ikkei grunted, and looked at him over the top of the notebook for a beat longer than he'd looked at anything else in it. Then he tapped *Then what?* with 1 finger. "Who read you? Nekomata's setter? The pudding-head Keishin told me about?"
+
+"Kozume-san. Yes, sir."
+
+"Nekomata always did love a boy who watches." Ikkei closed the notebook on his finger, keeping the page. "When I was coaching against him, I scratched my ear before I called a timeout. Here." He touched his right ear. "Every time. Nekomata knew it by our 2nd match. He called his own timeout 1 second before mine, every time, for 40 years, and grinned at me across the gym."
+
+He held up the closed notebook. "So. You stop when you know where the ball's going. You found that out. Good. And you tried hiding it, and it got worse. And you tried being careful, and you got boring." He looked at the page through the closed cover, as if he could still read it. "And you think the problem's the stopping."
+
+Sho waited.
+
+"The stopping's fine," said Ikkei. "Everybody good stops. You can't move right from a wobble. The problem is what you've decided when you stop."
+
+"Where the ball's going."
+
+"Where the ball's going." Ikkei nodded. "1 place. You pick 1 place and you go there, and you're right most of the time, because you're a clever boy who looks hard, and when you're wrong, you're 2 steps the wrong way with your arms out like a scarecrow, and Nekomata's setter has his ball in the floor." Ikkei put the notebook down on his blanket. "Listen. You're looking at where the ball's going to go. Stop that. Look at what can't happen."
+
+Sho looked at him.
+
+"Keishin. Up on the chair." Ikkei didn't look round. "Same as before. Don't hit it. Just get ready to."
+
+Ukai sighed, and climbed back up on the folding chair, and held the children's ball up in his left hand at the top, where a toss would be, and drew his right arm back, and held that too, looking extremely tired of his grandfather.
+
+"Look at him," said Ikkei to Sho. "Tell me where he can't hit it."
+
+Sho looked.
+
+It was a strange thing to be asked. He'd crossed things out for 9 years, on paper: *never sets the pipe from rotation 4*, *never serves short to the libero*. He'd never once crossed anything out with his feet, standing on a court, with a ball about to come. He looked at Ukai's shoulder, turned toward the left; at his hips, square to the net; at his elbow, low; at the ball, a little behind his head.
+
+"He can't hit line," said Sho slowly. "Not hard. His shoulder's turned too far. And he can't hit deep cross, he's too close under it, it'd go out."
+
+"What else."
+
+"He can't tip. His arm's all the way back and his hand's open. He's going to swing."
+
+"So?"
+
+Sho looked at the court. The children's court, small and low, with the line taped on the floor. In his head, without his choosing it, bits of it went dark. The line went dark. The deep cross went dark. The strip just over the net went dark. What was left was a shape, a lopsided strip across the middle of the court, short cross to the middle of the back.
+
+"It's somewhere in there," said Sho.
+
+"So stand in there," said Ikkei. "Keishin. Hit it."
+
+Ukai hit it, short cross. Sho was already in the strip, and he took a half step, and the ball came to him, and he passed it, and his heels had come down, he felt them, but they'd come down somewhere that was right for 3 different balls instead of 1.
+
+"Again," said Ikkei. "And this time do it in your head before he's at the top."
+
+They did it 10 more times. It was slow. It was terribly slow. Sho could feel his head working like an old computer, crossing out 1 thing and then another while the ball was already on its way, and twice he hadn't finished crossing out before Ukai hit it, and he went for a ball he'd already ruled out and missed it. Once he crossed out the wrong thing entirely, and the ball went straight into the place he'd decided it couldn't, and he stood there looking at it.
+
+"Ha," said Ikkei, and clapped his hands once.
+
+"He couldn't hit that from there," said Sho.
+
+"He's a terrible hitter. Terrible hitters do things that can't happen. So do good ones, sometimes." Ikkei pulled the blanket up on his knees. "It'll be slow for a month. Maybe 2. Then it won't be. Then you'll do it without words, the way you do the other thing, whatever that is."
+
+"And stop looking at everything like you're counting change in a shop," said Ikkei. "I watched you watch my class. Your eyes went everywhere. Flick, flick, flick. Look at the middle. The setter, the middle of the net, something. Let the edges come to you. They'll come. You don't have to go and fetch them."
+
+Sho stood in the middle of the children's court, and tried it, there and then: his eyes on the middle of the low net, on the tape, and the edges of the gym lying round it, Ukai on his chair, the bench, the open door, all there at once without his going to look at any of them. It made him dizzy. It made the edges blurry and wide.
+
+"Slow," said Ikkei. "Also for a month. Go home. You're tiring me out."
+
+---
+
+They were at the door, Ukai jingling the van keys, when Ikkei spoke again behind them.
+
+"Keishin."
+
+Ukai turned round.
+
+"That one sees the hit before the hitter does." Ikkei was sitting in his folding chair with the blanket over his knees, unwrapping the sweet the little girl had given him, with his eyes on the wrapper. "Bring him back after the camp. I want to see if he's done it."
+
+Ukai looked at his grandfather. Then at Sho.
+
+"Yeah," he said. "Okay."
+
+Sho bowed from the door, low, the full bow he used for Mom's parents at New Year.
+
+"Thank you very much, sir."
+
+Ikkei put the sweet in his mouth and flapped a hand at him.
+
+---
+
+It was dark by the time the van got back onto the main road. The rice had gone black on both sides, and the headlights of the cars coming the other way came and went across the windscreen.
+
+Ukai drove back with both hands on the wheel, which he never did, and the cigarette stayed behind his ear.
+
+"*Look at what can't happen,*" he said, at the next junction. "He said that to me when I was 12. About blocking. I've been working out what it means for 14 years."
+
+"Do you know now?"
+
+"Some of it." Ukai turned off toward Karasuno. He glanced at Sho in the dark, a short sideways look, and back at the road. "*Sees the hit before the hitter.* What's that about?"
+
+Sho looked out of the windscreen.
+
+"I see things early," he said. "It's IQ."
+
+Ukai's head turned. "You heard that?"
+
+"You said it to Takeda-sensei. In the gym. Before exams."
+
+"Hm." A car passed them, and then another. "Annoying old man," said Ukai, to the road.
+
+The car in front of them was a small blue one, in the left lane, with its indicator off.
+
+Sho looked at it. Before he'd decided to, his head did the new thing, slowly. It can't turn right: wrong lane, no signal. It can't stop: there's nobody behind it, the light's green. It's going straight, or left into the petrol station.
+
+It went left, into the petrol station.
+
+He tried it on the next car. A white van, a delivery van like Ukai's. It can't turn, it's too big for that road. It can't speed up, there's a bend. It went straight, slowly.
+
+He did it all the way back to Karasuno, car after car, at every junction, while Ukai drove with both hands and the radio off. He got most of them. It was slow, and his head ached a little behind the forehead the way it did after Classical homework, and it was the most fun he'd had all week.
+
+At the last set of lights before the school a taxi in front of them did a complete U-turn across 2 lanes, without signaling, in a place where no car could possibly turn.
+
+Sho laughed out loud.
+
+"What?" said Ukai.
+
+"Taxi," said Sho.
+
+Ukai looked at the taxi, and at Sho, and shook his head, and the light went green.
+
+He pulled up at the school gate at 8:20, by the dead lamp post, and Sho turned on the little light in the van's roof and opened the notebook on his knee to Sunday's page. Under *So keep it. Then what?* he wrote:
+
+*Look at what can't happen. Stand in what's left.*
+
+*Slow for a month. (He said maybe 2.)*
+
+Then, under that, because Takeda had pinned the camp letter to the club room door that morning and he'd counted the days on the way out:
+
+*Saitama: 16 days.*
+
+Ukai leaned over and read it upside down, and grunted, and turned the roof light off.
+
+**Continuity (ch 35)**
+
+- Sho POV, Tuesday to Thursday of the week after trip 1. No eye. No status card. Seeds: **ruling options out** ("Look at what can't happen") and **wide gaze** (taught, not working yet). Both "slow for a month."
+- **Hinata (canon, his):** left practice early on Tuesday with Keishin in the shop's white van (to Ikkei's kids' class); came back Wednesday saying "Tempo" ("I don't know yet"); jumps a little later in spike drills; mostly misses. Kageyama also left early Tuesday, separately, 10 minutes after the van. Hinata and Kageyama still not speaking; both at every other practice.
+- **Kageyama, Thursday water break:** met Oikawa on Tuesday at Ikkei's kids' class (canon: Oikawa picking up his nephew; their talk is Kageyama's, offstage). **"He asked if you still squint." "I said I'd never noticed. He said, 'Typical.'"** "Do you?" "No. Not anymore." (squinted after Seijoh till the Wednesday clinic.) Kageyama: "When he jumps like that... With his eyes open... What do you see?" **Sho: "Too much."** (guardrail line) "Too much what?" Sho drank. "Tch." Yachi's submarine thumbs up.
+- **6:10 Ukai pulled Sho out of a serve drill ("Kiyose. Get changed.")**, like Hinata on Tuesday. ("I said after practice... He finishes at 7. So I lied.")
+- **The van:** cigarettes, cardboard, fake-lemon air freshener, instant noodles, bottled tea, the summer-sale banner. "He was rude to the doctor who saved his life." "Just don't argue with him... then you're there till 10." **Ikkei (invented details): collapsed in the gym mid-practice at 71; told to rest; grows tomatoes; coaches 8-year-olds twice a week ("his idea of rest").** Keishin was "1 of the ones who wasn't easy on it." Heron in the rice. "Because you wrote *Then what?*... and I don't know the answer. And he might."
+- **Community gym (canon: Ikkei teaches a kids' class; details invented):** green roof by a primary school; children's net barely over Sho's head; about 15 kids aged 7 to 10. Ikkei: thin, blanket over his knees in July, towel round his neck, dry cough, voice bigger than his body ("5 of you after 1 ball! Is it a hamster?... Receivers stay home! STAY HOME!"); Kota (wild, gets every ball); the girl in the yellow shirt (flinches; put in the back corner; gave him a sweet). Keishin calls him "Gramps." Sho: never watched a coach teach 8-year-olds; Satoshi at 20 chose "a room with no windows" for 9 years.
+- **The test:** Keishin on a folding chair hitting a children's ball from his left; Ikkei watched Sho's feet. 10 balls (cross, line, tip...). "What are you looking at?" "His shoulder, sir. And his hips." "No. Before that." "You moved before he hit it... 3 times out of 10... Keishin's a terrible hitter, and you were still early on him." Sho's mouth started to lie (Mio's number 1); he stopped it: "I don't know how to say it. It's true. I don't know." Ikkei: "Hm."
+- **Ikkei read the whole notebook** page by page; **stopped on the June page** (*Hand up at the burning. / Tell Coach 1st. / Build the map so I don't need the eye. / Listen. / Play all 3 sets.*); **Sho's left hand went to his left knee (Mio's number 3) and he left it there; Ikkei's eyes went once to the hand.** Then *So keep it. Then what? / 11:04. Mio said 11.*: Ikkei laughed and coughed. "Who's Mio?" "My sister, sir. She's 10." "Did you?" "No. 4 minutes late." "Nekomata's setter? The pudding-head Keishin told me about?" **Ikkei's tell (invented): scratched his right ear before calling a timeout; Nekomata knew by their 2nd match and called his own timeout 1 second earlier for 40 years.**
+- **The lesson:** "The stopping's fine. Everybody good stops. You can't move right from a wobble. The problem is what you've decided when you stop." "Look at what can't happen." Keishin frozen on the chair (ball held up in his left hand, right arm back): "Tell me where he can't hit it." Sho (crossed things out on paper for 9 years, never with his feet): no hard line (shoulder turned), no deep cross (too far under), no tip (arm all the way back, hand open); **those parts go dark; what's left is a shape ("It's somewhere in there")**; "So stand in there." Heels come down somewhere right for 3 balls. 10 more: slow; 2 misses from not finishing in time; 1 ball into a spot he'd ruled out ("Terrible hitters do things that can't happen. So do good ones, sometimes."). "It'll be slow for a month. Maybe 2... Then you'll do it without words, the way you do the other thing, whatever that is."
+- **Wide gaze:** "I watched you watch my class. Your eyes went everywhere. Flick, flick, flick. Look at the middle... Let the edges come to you." Dizzy, edges blurry. "Slow. Also for a month."
+- **At the door: "Keishin. That one sees the hit before the hitter does. Bring him back after the camp. I want to see if he's done it."** Sho's full New Year bow.
+- **Drive back:** Ukai drove with both hands. "He said that to me when I was 12. About blocking. I've been working out what it means for 14 years." (Keishin 26.) "*Sees the hit before the hitter.* What's that about?" "I see things early. It's IQ." "You heard that?" "You said it to Takeda-sensei. In the gym. Before exams." (ch 30) "Annoying old man." Sho practiced ruling out on traffic (blue car, delivery van); slow; a little ache like after Classical homework; "the most fun he'd had all week." A taxi U-turned where nothing could turn: "Taxi."
+- **8:20 at the gate, roof light:** under *So keep it. Then what?*: *Look at what can't happen. Stand in what's left. / Slow for a month. (He said maybe 2.) / Saitama: 16 days.* (Takeda pinned the camp letter to the club room door.) Ukai read it upside down, grunted, turned the light off.
+- Next: ch 36 "Saitama" (Sho): the doctor's check-up before leaving ("adapted, like any muscle"); midnight bus to Shinzen; the week-long camp; begs Yaku for reps; Reception D to C (status card); serve targeting on Ubugawa; the eye holds 2 rallies without soreness for the 1st time.
