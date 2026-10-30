@@ -36,9 +36,12 @@ SHO
 - Never cruel to teammates.
  
 HARD RULES
-1. Canon is fixed unless Sho is physically in the scene and his actions
-   could change it. Use the timeline and KB I paste. If a fact isn't in
-   them, ask me or keep it vague. Never invent canon scores or names.
+1. Canon is where the story starts. Characters, voices,
+   relationships and the big results I choose stay. Everything near
+   Sho bends: scores, rally order, who scores, what opponents adjust
+   to. A 13th player with a pro analyst's brain changes things, and
+   the story shows it. Never invent canon names; invented scores are
+   fine once Sho has changed a match. See "Canon and divergence".
 2. Sho has no system. No windows, quests or status screens in the
    story. All growth comes from training and matches shown on the page.
 3. Emperor's Eye partially awakens at Hinata's first freak quick in
@@ -56,9 +59,18 @@ HARD RULES
    down to make Sho look good.
 7. Canon characters keep their canon voice and personality.
 8. Sho loses matches canon Karasuno loses, unless I say otherwise.
+   Losing the match doesn't mean losing the chapter: inside a loss,
+   Sho can be the reason a set is won.
+9. Every chapter carries the soul of its characters (see "Soul
+   sheet"). Each chapter ends on something a reader wants answered,
+   and that question comes out of a character's soul.
+10. After ch 22, POV chapters from other characters are sprinkled
+   between Sho's chapters, one character each (see "POV chapters").
  
 CHAPTER FORMAT
-- 2,000 to 3,000 words. One chapter per reply.
+- As long as the chapter needs. Slow pace: every rally that matters is
+  told clearly, in order, with who touched the ball, where, and why it
+  worked. Nothing important is skipped or summarized.
 - Title line: "Chapter N: <title>".
 - End on a hook (a question, a threat, a reveal).
 - If a stat or skill changed rank, add a reader-only status card after
@@ -67,7 +79,8 @@ CHAPTER FORMAT
   and which canon event comes next.
  
 STYLE
-- Close third person on Sho, past tense.
+- Close third person on Sho, past tense. POV chapters: close third on
+  that one character.
 - Short paragraphs, 1 to 3 sentences. Vary sentence length.
 - Volleyball action is concrete: who touched the ball, where, how.
 - No em dashes. No "not X, but Y" lines. No purple prose.
@@ -87,7 +100,7 @@ When a chapter's Continuity block adds a new noun or stat change, copy it into t
  
 ## Writing guide: interactions and culture
  
-**Workflow:** before every chapter, run 3 research agents: (1) canon events and character voices, built from fetched wiki pages with every beat sourced; (2) THE INTERACTIONS AGENT (mandatory, never dropped): drafts the chapter's main conversations in full, following "How these people talk" below; (3) one chapter-specific topic. Write only after all 3 report back.
+**Workflow (rewritten Oct 30, second pass):** plan Sho's chapter first: what he wants this chapter, what it costs, what changes because he's there, and what question the last scene leaves. Then check canon against that plan. The canon check answers questions (who's on court, how someone talks, what the rule is); it no longer hands over a list of beats to fill in. Before writing, read each main character's entry in the "Soul sheet" and ask what that person wants in this scene.
  
 ### How these people talk (rewritten Oct 30)
  
@@ -168,6 +181,8 @@ After the eye awakens at Nationals, Sho's minutes grow. Whether he becomes a sta
 - Sho pushes Tanaka to train harder, and Tanaka gets better because of it.
 - The competition stays healthy: no sabotage, no bitterness, and nobody gets written down to make Sho look good. Sho's shamelessness is aimed at himself, never at teammates.
 - Asahi's big moments (beating Date Tech's wall, his return) stay his. Sho can be on court beside him or on the bench, never in place of him.
+- A back-row sub for Asahi to receive a serve run is ordinary volleyball and doesn't take anything from Asahi. Ukai makes that call.
+- From ch 22 Ukai listens to Sho's notebook. Sho tells him what he saw in plain words; Ukai checks it and decides. That keeps the coach the coach and lets Sho change things.
 ### All-rounder and the libero role
  
 Emperor's Eye and Meta Vision make Sho a natural back-row defender. In matches he plays as a receiving outside hitter: he takes serve receive with Noya and Daichi, then attacks.
@@ -529,6 +544,10 @@ Meta Vision is learned, grown from Satoshi's analyst habits, with no awakening. 
 | Field map (Lv1) | Spring High prelims | A top-down map in his head, updated every touch | Can't run it while the eye fires |
 | Predictive map (Lv2) | Nationals | The map plus where each player is about to go | Mental fatigue by the 3rd set |
 | Dual (eye inside the map) | Pro era | The eye's exact read placed inside the full map | Forced early: migraine and nosebleed |
+
+**Forced fusion, once (ch 22, set 2 vs Seijoh).** The eye fires on its own on Oikawa's serve, and Sho, already running his notebook lines as a crude map, holds on to it and keeps forcing it rally after rally. For about 8 rallies he plays like a much better player: early on serve receive, early on digs, and he calls Seijoh's attacks for his blockers. He doesn't keep it. The cost is the old cost pushed past its limit: burning eyes, a thumb of pressure behind them that grows into a migraine, depth perception sliding in and out, and a nosebleed after the last point. He's out for the rest of the match, and the depth doesn't come back properly until the next morning. The eye goes back to firing on its own, at 0.2s, never on command, and Sho knows he can't do it again until something about him changes. The real fusion stays in the pro era.
+
+**Why he forces it:** Satoshi lost his knee by training through 3 months of pain and telling nobody. Sho knows that. In ch 22 he does the same thing on a smaller scale, on purpose, for 1 set, with his eyes open. The story never says whether that was right. Mio, Ukai and Sho himself each answer it differently in the chapters after.
  
 ### Status cards (for readers only)
  
@@ -564,27 +583,175 @@ Emperor's Eye: Partial awakening
 Meta Vision: Film brain
 ```
  
-## Arc 2 outline: Inter-High prelims (ch 16 to 27)
- 
-Covers canon Ch 35 to 71. Ends with the Seijoh loss and the Tokyo invite. Sho's thread: the 2-look rule under official pressure, the eye refusing requests, and his first real loss as a Karasuno player. Canon moments stay with canon characters (Asahi vs the Iron Wall, Yamaguchi's pinch serve, the final quick).
- 
-| Ch | Title | Canon | Canon beats | Sho beats |
+## Canon and divergence (Oct 30, second pass)
+
+The user's call: the fic had turned into canon with a guy on the bench. Every chapter was mapped to a canon chapter range, the scores were fixed in advance, and Sho was only allowed to "offer a small unsure observation". That is over. These rules replace it.
+
+**What stays from canon**
+
+- Who people are: personality, voice, history, relationships.
+- The big results the user picks. Arc 2: Karasuno beats Tokonami and Date Tech, then loses to Seijoh in 3 sets. Shiratorizawa wins Miyagi.
+- A short protected list of moments that define someone else. They happen, and they stay with that person:
+  - Asahi breaking Date Tech's wall (done, ch 19).
+  - Tanaka's arc: the slump against Oikawa's serve, the self-slap, the comeback (done, ch 21), and later Inarizaki.
+  - Kageyama coming back in set 2 changed by watching Suga, and asking his hitters what they want from his sets (canon, ep 22 "Evolution": "Kageyama begins to try to communicate with each of his teammates" and "tries to get a bit closer to Tsukishima").
+  - Yamaguchi's pinch serve in set 3.
+  - The final quick getting blocked at the end of set 3.
+  - Takeda's speech and the team crying over dinner.
+
+**What bends**
+
+- Anything Sho touches. Scores, rally order, who scores, timeouts, what an opponent changes. If Sho is there, the match is different, and the story shows how.
+- Opponents react to Sho. Oikawa especially: he noticed Sho on day 1, and from ch 22 he plays against him.
+- Ukai listens to Sho. Sho says what he saw; Ukai checks and decides.
+
+**How a chapter gets built now**
+
+1. Sho first: what does he want, what does he do about it, what does it cost, what changes.
+2. Then the people around him: what each one wants in this scene (Soul sheet).
+3. Then canon, as a fact check: who is on court, what the rules are, how someone talks.
+4. The last scene leaves a question a reader wants answered, and the question comes from someone's soul.
+
+**Pace and clarity (user, Oct 30):** slow down. Explain everything clearly. Every rally that matters is told in order: who served, who passed, who set, who hit, where it went, and why it worked or didn't. When Sho sees something, the reader sees what he saw and why it matters, in plain words. No skipping, no "a few rallies later" over anything important, no compressing a run of points into a line.
+
+## Soul sheet
+
+Each entry is the thing under the voice: what the person wants, what hurts, what they'd never say out loud, and how it shows in their body. The voice notes (Dialogue playbook) say how people talk. This says why. Canon entries are built from the series; fic entries are ours.
+
+### Kiyose Sho (fic)
+
+- **Wants:** to be on the court. Satoshi spent 9 years watching other people play through a monitor, rewinding their rallies at quarter speed, and died at his desk at 3:14 a.m. doing it. Sho got a second life with a body that works. Every minute on a bench feels like that room.
+- **Wound:** the knee. Satoshi trained through 3 months of knee pain at 20, told nobody, and lost it. Sho knows the lesson (twice as hard, and twice as smart) and believes it.
+- **Shadow:** the notebook. It's the analyst life, and it's useful, and it's also where he hides. Writing something down and telling nobody is exactly what Satoshi did with the knee. In ch 21 he did it with Seijoh's tells.
+- **Shamelessness, underneath:** a man who has already lost everything once has nothing left to protect. Asking for a toss costs nothing compared to dying at a desk. That's why it never looks like bravado.
+- **Cold, underneath:** he counts time like money. He knows careers end, knees go, and a 3rd year has a few months left. He sees Suga's last summer more clearly than Suga does.
+- **Never says:** anything about Satoshi. Anything about being scared of the bench.
+- **Shows it:** he's always holding something (bottles, a jacket, a towel, the notebook) when he's not playing. His hands go still when he's reading a court. When he wants something badly, he gets more polite.
+- **Arc 2 question:** will he stop watching and speak? (ch 22: yes, and he pays for it.) Arc 2 after that: was it smart, or was it the knee again?
+
+### Hinata Shoyo (canon)
+
+- **Wants:** to stay on the court as long as possible, and to be the one standing at the top. He hates the bench more than anything.
+- **Wound:** his only middle-school match, a team made of borrowed players, crushed by Kageyama's team. Being small.
+- **Never says:** that he's scared he's only good because of Kageyama's sets. It shows when the quick fails.
+- **Shows it:** moves before he thinks, bounces, can't keep still on a bench.
+- **Sho to him:** the 1 person who understands the bench the way he does, without knowing why.
+
+### Kageyama Tobio (canon)
+
+- **Wants:** to win, and (since Karasuno) to be a setter people run for.
+- **Wound:** the King of the Court. His middle-school team stopped going for his tosses, and he turned around and found nobody behind him. His grandfather taught him volleyball.
+- **Never says:** that the empty court still frightens him. That Suga's way of talking to people is something he can't do yet.
+- **Shows it:** gets faster and flatter when he's rattled. Goes red and stiff when praised. Drinks milk when he doesn't know what to say.
+- **Set 2 (canon):** comes back having watched Suga, and starts asking his hitters what they want, Tsukishima included.
+- **Sho to him:** the first year who keeps saying weird things and handing him milk; a hitter whose timing he's had to fit.
+
+### Tanaka Ryunosuke (canon)
+
+- **Wants:** to be someone his juniors can lean on. To keep swinging.
+- **Wound:** knows he's ordinary next to geniuses. Fears being "just average" (that fear is his Inarizaki arc).
+- **Never says:** that Sho scares him a little.
+- **Shows it:** loud when it matters most, cries easily, slaps his own face when he's playing badly, keeps the second nikuman in his jacket. Was at the gym before Sho 7 mornings running.
+- **Sho to him:** the kohai who'll take his minutes if he lets him. So he doesn't let him, and he teaches him anyway.
+
+### Sugawara Koshi (canon)
+
+- **Wants:** to play. Every minute on court in his 3rd year is one of the last.
+- **Wound:** gave up the setter's spot to a 1st year and meant it, and it still stings.
+- **Never says:** how much he wanted to stay on in set 1, until he does ("I still didn't want to come off").
+- **Shows it:** touches people before serves, says their names, cold hands before he goes in.
+- **Sho to him:** a 1st year who notices too much. Suga noticed him back on day 3.
+
+### Sawamura Daichi (canon)
+
+- **Wants:** to take these people to Tokyo before he graduates.
+- **Never says:** how much the "fallen crows" years hurt.
+- **Shows it:** a hand on someone's back until the whistle. Receives everything and asks for nothing.
+
+### Azumane Asahi (canon)
+
+- **Wants:** to be the ace who gets the ball and doesn't flinch.
+- **Wound:** the Date Tech wall last year. He quit for a while.
+- **Shows it:** apologizes first, holds a bottle with the cap on. Since ch 19 he stands a little straighter.
+- **Sho to him:** Satoshi stopped asking for the ball once too. Sho never told him.
+
+### Nishinoya Yu, Tsukishima Kei, Yamaguchi Tadashi, Ennoshita Chikara (canon, short)
+
+- **Noya:** wants to be the guardian behind everyone. Loud certainty is how he keeps people steady.
+- **Tsukishima:** won't care too much because his brother cared and got hurt. Plays smart, gives the minimum on purpose. Notices Sho noticing.
+- **Yamaguchi:** wants to matter on court before Tsukki notices he's trying. His float is a secret.
+- **Ennoshita:** ran from practice once and came back. Watches everything; says little.
+
+### Ukai Keishin (canon)
+
+- **Wants:** to be a real coach, and to be good enough for the name on the gym's history.
+- **Wound:** the grandson of the great Ukai, playing at being a coach in a convenience-store apron.
+- **Never says:** he's not sure he's good enough.
+- **Shows it:** gruff, short, cares through instructions. When he explains, he explains properly. Pulls a player the moment health is at risk.
+- **Sho to him:** a 1st year who sees things a coach should've seen. Ukai's pride and his honesty fight about that, and honesty wins.
+
+### Takeda Ittetsu (canon)
+
+- Not a volleyball man. Writes everything down. Says sincere, slightly poetic things and means them.
+
+### Oikawa Toru (canon)
+
+- **Wants:** to beat the geniuses with hard work. To get to Nationals with these 6.
+- **Wound:** Ushijima above him, Kageyama behind him. He built everything he has by work, and the talented keep coming. "Talent is something you make bloom."
+- **Never says:** that he's afraid of being overtaken.
+- **Shows it:** the smile, the wave to the balcony, the nicknames. Under it, he reads everyone and then breaks the weakest link.
+- **Sho to him:** the most dangerous kind of player: someone who watches the way Oikawa watches, with something extra Oikawa can't name. Oikawa likes him and wants to crush him, and both are true.
+
+### Iwaizumi Hajime (canon)
+
+- Oikawa's childhood friend, the ace, the vice-captain. Keeps Oikawa honest ("Shittykawa"), headbutted him out of a slump in middle school. Plain, fair, rough. Doesn't play head games; hits hard.
+
+### Kiyose Mio (fic)
+
+- **Wants:** her brother to keep doing the thing that made him come alive this spring. Also 3 puddings.
+- **Wound (unspoken):** before the hit, Sho quit every sport by 12. Then he came home one day different. She checks his knees and forearms at the door when she thinks nobody sees. She's scared something will take it away again.
+- **Never says:** any of that. "Only if you quit. I said fair."
+- **Shows it:** frozen edamame for his arm. Standing on her seat. Sitting down when the crowd screams for the other team.
+
+### Dad (fic)
+
+- Quiet. Folds the newspaper small. Looked up libero rules on his phone. Moved his fan to dry Sho's jersey. Came to watch without telling anyone. Says "Mm."
+
+### Mom (fic)
+
+- Up at 4:40 making onigiri. Doesn't ask, notices everything. Covered plates, "Before the bath."
+
+## POV chapters (from ch 23)
+
+From ch 23, chapters told from another character's point of view are sprinkled between Sho's chapters.
+
+- **One character per POV chapter.** Never a group, never a rotating head-hop.
+- **Close third on that person, past tense.** Their vocabulary, their eyes, what they notice. Mio notices different things from Oikawa. Nobody narrates like Sho.
+- **Their soul drives it.** Build it from their Soul sheet entry: what they want in this stretch of time, what they'd never say.
+- **The story moves forward.** A POV chapter covers new time, or shows a moment from the inside that Sho couldn't see (Mio in the stands while he's bleeding). It never just replays Sho's chapter.
+- **Sho from outside.** At least once, the reader sees Sho the way someone else does, which is different from how he sees himself.
+- **Same rules:** pace, dialogue, no tics, no named feelings in narration, the hook at the end.
+- **Title format:** "Chapter N: <title> (<character>)".
+
+## Arc 2 outline: Inter-High prelims (ch 16 to 30, rewritten Oct 30)
+
+Ends with the Seijoh loss and the Tokyo invite. Sho's thread from ch 22: he stops watching and speaks, carries set 2 by forcing the eye inside his notebook map, and pays for it. The rest of the arc asks whether that was smart or whether it was Satoshi's knee again, and gives the family their own chapter in it.
+
+| Ch | Title | POV | What happens | Soul thread |
 | --- | --- | --- | --- | --- |
-| 16 | The map | 35 to 36 | Ukai lays out Miyagi's strong teams; Kiyoko's banner; first official uniforms | Ennoshita receive feeds; Tanaka's "foot thing" lessons; Mio's summer bet; Sho studies the bracket like a scout |
-| 17 | First official serve | 37 to 40 | vs Tokonami, won 25-12, 25-14; the quick silences the arena | Sho's first official serve; nerves he analyzes instead of feels |
-| 18 | Iron Wall | 41 to 44 | vs Date Tech; Aone reads Hinata; Asahi blocked again | Sho on the bench reading Aone; the eye won't touch a commit block |
-| 19 | Ace | 45 to 47 | Noya's foot save; Asahi breaks the wall; won 25-19, 25-22 | Sho subs for Tanaka to change pace; Asahi's breakthrough stays his |
-| 20 | Scouting Seijoh | 48 to 50 | Day 2; Oikawa's team; Kindaichi and Kunimi | Sho and Oikawa: 2 people who watch the same way |
-| 21 | Set 1 | 51 to 55 | Seijoh takes set 1 (15-25) | Oikawa reads Sho's 2 looks |
-| 22 | Set 2 | 56 to 60 | Karasuno takes set 2 (25-23) | Sho in for a rotation; one clean tool off Iwaizumi |
-| 23 | Pinch server | 61 to 64 | Set 3; Yamaguchi's pinch serve at 15-15 | Sho on the bench beside Yamaguchi; says nothing that steals it |
-| 24 | Deuce | 65 to 68 | 31-33; final quick blocked | Sho in for set 3; 1 flicker, then nothing when he needs it most |
-| 25 | Dinner | 69 to 70 | Takeda's speech; the team cries over dinner | Sho eats; Satoshi has lost bigger, and that doesn't help |
-| 26 | Stay | 71 | 3rd years stay; Shiratorizawa wins Miyagi | Sho's notebook gets a new first page |
-| 27 | Invitation | 71 to 72 | Nekoma's Tokyo camp invite | Status card; hook into the Tokyo arc |
- 
-Titles are working titles. Chapter numbers in the Canon column are approximate; check them before each chapter.
- 
+| 16 to 21 | (written) | Sho | Tokonami, Date Tech, Seijoh set 1 | |
+| 22 | Set 2 | Sho | Set break: Sho takes his notebook to Ukai (Seijoh hears the spoken quick calls; hand signals fix it). Kageyama back, asks his hitters what they want (canon). Set 2 opens with the silent quick working. Oikawa sees where it came from. At 17-20, on Oikawa's serve run, Ukai sends Sho in for Asahi to receive. The eye fires on its own; Sho holds it inside the notebook map and keeps forcing it. He takes Oikawa's serve, hits off Iwaizumi's hand using the chin trick as bait, reads Seijoh's attacks for his blockers, serves at set point and digs the last ball. Tanaka kills it. 25-23. Then the nosebleed, depth gone, out for the match. Mio's voice from the rail | Sho speaks instead of writing it down. Twice as hard, and was it twice as smart? |
+| 23 | The rail | Mio | From the stands: watching her brother play set 2 without knowing volleyball; the blood; Dad; wanting to go down; set 3 starts | What Mio has been afraid of since spring, and what she does about it |
+| 24 | Set 3 | Sho | On the bench, eyes half useless, hearing more than seeing. Oikawa adjusts. Yamaguchi's pinch serve. Deuce. The final quick blocked. 31-33 (canon score; Sho isn't on court for it) | Sitting behind glass again, the exact thing he swore off |
+| 25 | Tall-kun | Oikawa | Seijoh's side: what Oikawa saw in set 2, what he worked out it cost, handshake line, a last conversation with Sho, Iwaizumi | The genius he didn't see coming, and the part of Sho that's just like him |
+| 26 | Dinner | Sho | Ukai's dinner, Takeda's speech, the team crying over the food. Home: the family, nobody pretending anymore | What Satoshi never had after a loss |
+| 27 | 8 mornings | Tanaka | The next morning gym. Tanaka's thoughts on the kohai who carried a set he couldn't. Sho turns up, or doesn't | Ordinary next to a genius, and choosing to keep swinging |
+| 28 | Stay | Sho | 3rd years decide to stay. Shiratorizawa wins Miyagi. The notebook gets a new first page | What he'll do differently with the eye |
+| 29 | The phone call | Ukai | Ukai's side of the week: the decision to play Sho, the decision to pull him, the call that leads to Tokyo | Is he good enough to coach a kid like this? |
+| 30 | Invitation | Sho | Nekoma's Tokyo invite. Status card. Hook into the Tokyo arc | |
+
+POV slots can change character if a chapter needs someone else, but always 1 character, and never 2 POV chapters in a row.
+
 ## Dialogue playbook (rewritten Oct 30)
  
 Conversations are still the user's top priority. This replaces the Oct 29 playbook, whose templates (self-praise audit, rule-of-three invoice, snark duel with a score, third-wheel button and the rest) produced quippy, artificial dialogue. The rules in "How these people talk" (Writing guide, above) come first. This section adds scene rules, Sho's voice and canon voice notes.
