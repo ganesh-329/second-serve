@@ -30,7 +30,8 @@ Read this first, then the story bible's "Canon and divergence", "Soul sheet", "P
 - **User, Oct 30: always keep chapters slow and stretched out.** The user will later revise the early chapters (arc 1) to weed out drawbacks.
 - **Arc 3 chapters live in `arc3.md`** (ch 30 onward).
 - Ch 30 "Red pen" (Sho) is written: Monday to Wednesday before exam week. Tanaka's ritual back; exam-trouble hands (Hinata, Kageyama, Noya; Tanaka's Classical 33); the seam pass ("You went before it crossed." "His shoulder opened, Coach."); Ukai to Takeda: "It's IQ. You can't teach it."; Hinata and Kageyama ask Tsukishima (theirs); the library trade (English for Classical); Suga's red pen: Sho's Classical practice test **38** (the line is 30). Sho asks for every day.
-- Next: ch 31 "Village person B" (Sho): Thursday onward; Kiyoko approaches Yachi in the corridor (canon, theirs; Sho is her classmate in 1-5, 1 small kind thing); daily Classical with Suga; exam week; the Classical exam; Ennoshita on "you go still".
+- Ch 31 "Villager B" (Sho) is written: Kiyoko asks Yachi (theirs); Sho's 1 kindness ("Are they scary?"); Hinata's eyes-open quick fails in front of Yachi; Sho's 1-look snapshot debuts; Ennoshita: "You go still. Right before. Every time." (it's a habit of his body now, eye or not; *So Kenma will.*); Hinata's "VILLAGER!" push (theirs); Yachi's poster and her mother's red seal; exams (3 days); Classical **58** ("who's bowing"); Tanaka 31 and Noya 34 pass; Hinata and Kageyama fail English: bus at 6, make-up at 9.
+- Next: ch 32 "Flying falls" (Sho): trip 1 to Fukurodani Academy, Tokyo; the morning without Hinata and Kageyama (Suga sets, no quick, 2 empty front-row spots); Sho plays real minutes, is read by Akaashi; the eye fires on Bokuto (soreness gone by the next game, no drama); flying-fall penalties, he laughs on the floor; Saeko's drive is Hinata and Kageyama's (offstage). Akaashi wears #5 (Satoshi's college number).
 
 ## User's rules (hard)
 
