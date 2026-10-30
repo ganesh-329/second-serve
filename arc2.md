@@ -2884,3 +2884,642 @@ Sho closed the notebook and put it away.
 - Kageyama beside Sho: "Don't need it" (towel), "Hinata was late" (Sho thought: *He wasn't*), "He talks to them. Every time." "What did Suga-san say to you? Before." "To give you water." Then at the set break: "When I'm back, I'll set you so many you'll be sick of hitting."
 - Next: ch 22 "Set 2" (canon ch 56 to 60): the end of the set break; Sho decides whether to say anything to Ukai about the notebook; Suga's set 2; Karasuno takes it 25-23; Sho in for a rotation, one clean hit off Iwaizumi.
 - No status card.
+## Chapter 22: Set 2
+
+The notebook was a cheap one from the konbini by the shrine, 120 yen, with a gray cover gone soft at the corners from his back pocket. Sho had it on his knee with his thumb in the Seijoh page.
+
+4 lines. Small writing, close together.
+
+*watch the hitters*
+
+*end guy moves the outside hand late. After the hitter looks.*
+
+*Kindaichi: goes with H on the fast one. Reads the plain one.*
+
+*Suga: finger. Their middle late.*
+
+He'd written the last 2 about 20 minutes apart and drawn nothing between them. He looked at them now, and they were the same thing. They had been the same thing the whole time.
+
+Kageyama said *send* out loud before the plain quick, 1 short word barked at the net. Kindaichi could hear it as well as Sho could. And when Suga had used a finger by his hip instead, with no word at all, Seijoh's middle had gone up late.
+
+Satoshi had cut this exact clip a dozen times for V.League coaches, a team's calls getting picked off by the other bench. It was the kind of thing you put in a meeting on a Tuesday with a red circle on the screen.
+
+He knew it, and he'd been sitting on it for most of a set.
+
+For 9 years that had been the job. See it, write it down, hand it to somebody else in a room with the lights off. Somebody else went on court with it. Somebody else got to find out whether it was true.
+
+There were maybe 2 minutes left in the break.
+
+Ukai was crouched in front of Suga and Kageyama with the line-up paper on his knee and a pencil behind his ear. Takeda stood beside him with his own notebook open, writing whatever Ukai said. On the other side of the court the Seijoh girls had started the chant again.
+
+Sho stood up. He had Suga's empty bottle in 1 hand, and he put it down on the bench, and walked over.
+
+"Coach."
+
+Ukai didn't stop writing. "What."
+
+"Seijoh can hear Kageyama-kun's calls."
+
+The pencil stopped. Kageyama looked up. Suga, who'd been bent over retying a shoe, sat up slowly with the lace still in his fingers.
+
+"Say that again," said Ukai.
+
+Sho held out the notebook, open, though nobody could read it upside down at that size. "Kageyama-kun says *send* before the plain quick. Out loud. Every time. The tall 1st year, Kindaichi. When Hinata's going fast, he jumps with him, right away. When it's the plain one, he waits and reads it. He did it every time I saw." He turned a page back without needing to. "And when Suga-san used his finger instead, their other middle was late. He didn't know which one was coming."
+
+Ukai took the notebook out of his hand. He looked at it for a while, though there was nothing in there that Sho hadn't just said.
+
+"Suga."
+
+"Yes."
+
+"When you put the finger up. Did you say anything? Anything at all?"
+
+Suga thought about it. His eyes went up and to the left, the way people's did when they were really looking. "No. Hinata was watching my hand. I didn't need to." He looked at Kageyama. "It was just quicker."
+
+Kageyama was staring at the floor between his feet. His lips moved once without a sound, as if he was saying the word to himself to hear how loud it was.
+
+"They're listening," he said.
+
+"EH?!" Hinata had come back from the water and was standing behind Ukai with the bottle squeezed in his fist. "They can hear us?! The whole time?!"
+
+"Not so loud," said Suga.
+
+Ukai stood up. He looked across at Seijoh's huddle, and at Oikawa, who'd taken the towel off his head and was talking with his hands, and then back at his own people. Sho watched him work it through. He'd seen coaches do it on tape: the half-second where a man decides whether something a 15-year-old said is real. Ukai's jaw moved to the side and back.
+
+"Okay. No more calls out loud." He pointed at Kageyama. "You and Hinata. Hand signals. Before the serve, behind your back, like normal teams do. In the rally, if you've got to change it, use your hand down low where they can't see it. Like Suga did."
+
+"I don't have hand signals," said Kageyama. "For him. We never needed them."
+
+"You do now. Suga."
+
+Suga was already up. He stood next to Kageyama and put his right hand down behind his own hip. "Like this. 1 finger for the fast one. Fist for the plain. Then he doesn't have to hear anything." He looked at Hinata. "Hinata, you watch his hand before every serve. Every time. Okay?"
+
+"Every time!" Hinata turned to Kageyama and stuck his face close. "Show me again."
+
+Kageyama put his hand behind him. 1 finger. Then a fist. His hand was big and the fist looked like it meant it.
+
+"1 is fast," Hinata said, staring at it. "Fist is the slow one."
+
+"The plain one," said Kageyama.
+
+"The plain one."
+
+The buzzer for the end of the break hadn't gone yet. Ukai gave Sho the notebook back. He didn't let go of it straight away, and they both stood there holding it.
+
+"How long have you had this?"
+
+"The bottom one, since Suga-san went in. The Kindaichi one before that." Sho thought about lying and didn't. "Most of the set."
+
+Ukai let go of the notebook.
+
+"Next time you see something, you tell me right then. I don't care if I'm in the middle of yelling at somebody." He pulled the pencil from behind his ear and pointed it at Sho's chest. "You hear me? You don't sit on it."
+
+"Yes."
+
+"...Good eye," said Ukai. He was already turning back to the paper.
+
+Sho went back to the bench. He sat down. His hands were cold, the way Suga's had been, and the gym was hot.
+
+---
+
+Kageyama was starting set 2. The line-up reset between sets, and Ukai wrote his name back in at setter. Suga put on the jacket he'd been holding and zipped it to the top, and sat down in his place from set 1, next to Sho, with his hands in his lap.
+
+The 2nd referee was checking the line-up sheet against the players. Karasuno walked on. Sho expected Kageyama to go straight to his spot. Kageyama went to Tsukishima instead.
+
+He stopped in front of him. Tsukishima was taller by a good few centimeters and looked down at him with his eyebrows slightly up, the way he looked at everything.
+
+"Tsukishima."
+
+"What."
+
+"My tosses. Is there something you want different?"
+
+Tsukishima's eyebrows went up the rest of the way.
+
+On the bench Suga's hand closed on Sho's sleeve.
+
+"...What's this, suddenly," said Tsukishima.
+
+"Is there," said Kageyama. He said it exactly the same way, the way you'd ask somebody for the time.
+
+Tsukishima looked at him. He looked over at the bench, at Suga, and then back. "A little further off the net," he said. "On the quick. If you can manage."
+
+"Okay." Kageyama nodded once. He went down the line. To Tanaka he said something Sho couldn't hear, and Tanaka's whole face went bright red and he yelled "HIGHER! AND FASTER! BOTH!" so that the referee turned around. Kageyama said something else, and Tanaka said "...Higher, then," at a normal volume. Asahi took a while to answer. Kageyama waited. Then he went to his spot.
+
+Suga let go of Sho's sleeve. He'd held it so tight there were creases.
+
+"Sorry," he said. He was still watching Kageyama. "He's never done that. Not once since he came." He put his hands back in his lap, and then he laughed a little, out of his nose, and wiped 1 eye with his thumb.
+
+Ennoshita, on Sho's other side, said, "He looks like he's going to be sick."
+
+"He always looks like that," said Yamaguchi.
+
+"No," said Ennoshita. "Look at his hands."
+
+Kageyama was standing at the net with his hands at his sides, opening and closing them.
+
+---
+
+Before Tsukishima served, Sho saw Kageyama's right hand go behind his back. 1 finger. Hinata, at the net, nodded at nothing.
+
+Karasuno served first. Tsukishima put it in, a plain float, safe, at Seijoh's libero, and Seijoh's pass went up nicely to Oikawa. Oikawa set the left side to the number 3. Hanamaki hit cross, hard, and Daichi dug it. It came up a little off the net toward the 3-meter line, and Kageyama ran under it.
+
+Kageyama's mouth stayed shut. All set 1 he'd barked at the net, and now there was just the squeak of his shoes. Hinata was already in the air on the right side when the ball left Kageyama's hands, fast and flat. Kindaichi was across from him. Kindaichi bent his knees to go, and then held, because he'd been waiting for a word that didn't come. When he went it was a quarter-beat late. Hinata's hand was already through the ball. It hit the floor behind Kindaichi's heels and went into the boards.
+
+The bench came up. Yamaguchi had both fists over his head. Takeda was clapping with his notebook still in his hand.
+
+On the court Kindaichi was looking at Kageyama.
+
+"Hah," said Ukai, and sat back on the bench.
+
+Takeda bent down to him. "Ukai-kun. Was that the signal? The finger?"
+
+"Yeah." Ukai rubbed his mouth. "Okay, sensei. Here's what's going on. The quick's got 2 speeds. The fast one, Hinata jumps before Kageyama even touches the ball, and the ball goes where his hand already is. Nobody can read that. Only way to block it is to jump with Hinata and hope. The plain one's slower. Kageyama sets it, Hinata jumps after. That one you can read, if you wait."
+
+"So the tall boy jumps with him on the fast one, and waits on the plain one."
+
+"Right. Which means he has to know which is which before it happens. And he did, all of set 1. Because our setter was telling him." He tipped his head toward the bench. "Kiyose caught it."
+
+Takeda turned all the way round on the bench and looked at Sho. Sho didn't know what to do with his face, so he kept it where it was.
+
+"Now he doesn't know," said Ukai. "So he has to pick. He jumps with Hinata every time, he's in the air too early on the plain one and comes down while Hinata's going up. He waits every time, he can't touch the fast one. He's guessing now."
+
+Takeda wrote it down. He wrote for a long time.
+
+Seijoh sided out on the next rally, Iwaizumi off the left, and Hanamaki went back to serve for them.
+
+Sho watched Kageyama's hand this time instead of the ball. Before Hanamaki tossed, the hand went behind Kageyama's back and closed. A fist. The plain one.
+
+Hanamaki's serve was deep. Daichi passed it, a good one, high and soft toward the net. Hinata ran in. Kindaichi watched him run, and he had nothing else to go on, so he went when Hinata went. He jumped with him, right with him, the way he would have for the fast one. But this was the plain one. Kageyama hadn't set it yet. Kindaichi was already at the top of his jump when the ball left Kageyama's hands, and he was coming down when it reached Hinata, and Hinata was still going up. Hinata hit it over Kindaichi's falling hands into the floor.
+
+Kindaichi landed and looked at his own hands.
+
+Karasuno kept the serve. On the next rally Kindaichi waited, and it was the fast one, and Hinata hit it past his ear before he'd left the ground. On the one after that he jumped with Hinata again, and this time he guessed right. It was the fast one and he got his fingers on it, and the ball went high off them back toward Karasuno's end line. Noya ran it down. Kageyama set Tanaka on the left, high, and Tanaka hit a cross so hard it bounced into the 2nd row of seats.
+
+"YEAAAAAAH!" Tanaka ran a little circle with his arms out.
+
+Kageyama walked up to him. "Was that okay?"
+
+Tanaka stopped in the middle of his circle. "...Huh?"
+
+"The toss. Higher? Or that?"
+
+"It was GREAT! It was perfect! Why are you asking me like that?!"
+
+"Okay." Kageyama went back to his spot.
+
+Tanaka turned to Asahi with both hands out. "Kageyama's being *nice*. Asahi-san. What do I do."
+
+The scoreboard said 8-4 when Seijoh called a timeout.
+
+---
+
+Sho watched them go in. He wasn't writing. The notebook was closed on his knee, and his pen was in his pocket.
+
+Oikawa didn't go into the huddle straight away. He stood at the edge of it with a towel in 1 hand and his head turned toward Karasuno's side. He was looking at Kageyama first. Then he looked at the bench. His eyes went along it, at Ukai, at Takeda with his notebook, at Suga in his zipped-up jacket, and stopped on Sho.
+
+He smiled. He lifted 2 fingers off the towel, a small wave, the kind you'd give someone you'd seen across a station.
+
+*He knows,* thought Sho. *He saw who Takeda turned round to.*
+
+Then Oikawa turned and went into the huddle, and Seijoh closed up around him, and a white and teal ring of backs hid him again. When they came out, Kindaichi had stopped looking at Kageyama. He looked at Hinata, and only at Hinata, and his knees were already bent.
+
+"He's going to jump with him every time now," said Ukai.
+
+"Then the plain one beats him," said Suga.
+
+"Yeah. If we get a good pass."
+
+He was right. Sho saw it 3 rallies later, when Seijoh's server stopped serving to the middle of the court and started serving at people. Every serve went at the seam between 2 receivers, or short at the 3-meter line, or deep at the end line at someone's feet. Nothing came up perfect. When the pass was off the net, Kageyama couldn't run the quick at all, fast or plain, and Hinata ran in as a decoy and nobody bought him, because a decoy only works if the ball could have gone to him. Kindaichi stayed on Hinata, and the other 2 blockers spread out to the wings, and the wings started getting stuffed.
+
+At 8-5 a serve went short, at Tanaka's feet. He got it up, but only to the 3-meter line, and Kageyama had to set Asahi high from back there. 2 blockers were waiting. Asahi hit into them and the ball came straight down. 8-6.
+
+At 10-8 Seijoh's server put one deep into the corner between Daichi and the end line. Daichi passed it backward over his own head, and Noya kept it alive and sent it over with 1 arm, easy, and Oikawa set Iwaizumi off it. 10-9.
+
+At 12-11 Iwaizumi hit a ball so hard off Daichi's forearms that it went up into the stands. Daichi shook his arms out and nodded across the net, as if to say fair enough. 12-12.
+
+Kunimi tipped a ball over Tanaka's block, so soft and late that Noya, who'd been set for a hard spike, was on the wrong foot and couldn't get there. Kunimi didn't celebrate. He walked back to his spot like a boy going to a class he didn't care about.
+
+"The sleepy one," Ennoshita said to Yamaguchi. "He's been doing that since it got close."
+
+15-15.
+
+Sho had stopped seeing the score as numbers somewhere around 12. He saw it as rotations. He'd been counting since the set began without meaning to, the way Satoshi used to count in the video room, and he knew where every Seijoh player was standing and where they'd be in 2 rotations. He knew Oikawa was in position 2 now, front right. He knew that 1 Seijoh side-out from now Oikawa would rotate to the back right corner and walk to the end line with the ball.
+
+17-16 Karasuno. Then Iwaizumi hit a ball off the top of Tanaka's block, and Seijoh had it back. 17-17.
+
+Oikawa rotated back. A ball boy bounced him the ball. He caught it and walked to the end line and put his toes 6 big steps behind it, the way he had all day, and the girls on the 2nd floor went quiet before the drums did.
+
+On the bench Sho's pen was out. He didn't remember taking it out.
+
+---
+
+The 1st one went at the seam between Asahi and Daichi. Asahi was in the back row now, on the left. The ball came in fast and dipping and both of them moved for it, and neither of them took it, and it hit the floor between their shoes.
+
+17-18.
+
+"Don't mind!" Suga had his hands cupped round his mouth. "Don't mind, Asahi! Daichi!"
+
+The 2nd went at Asahi. He got his arms on it. It came up off them low and too fast, and went straight back over the net, a free ball for Seijoh. Kindaichi didn't even have to jump hard. He swatted it down into the middle of Karasuno's court where nobody was standing.
+
+17-19.
+
+Asahi lifted his hand. "Sorry! Sorry, that's mine..."
+
+"Next one!" yelled Noya, with his fists up. "Give the next one to me! Asahi-san, the next one's mine!"
+
+The 3rd went at Asahi again. Oikawa didn't care who Noya wanted. Noya ran across in front of Asahi and got under it himself, flat out, and the ball came up high. Kageyama got there and put it up to Tanaka on the left, and Tanaka hit it hard into a 3-man block, and it came straight back down on Karasuno's side.
+
+17-20.
+
+Ukai stood up and made the T before the ball stopped rolling.
+
+They came in. Asahi came in last. He took a bottle from Kiyoko and held it. Noya stood right next to him with his fists shut at his sides.
+
+"Okay," said Ukai. "He's going to keep serving that spot until somebody stops him. So we're going to stop him."
+
+He looked down the bench, and Sho saw where he was going to look before he looked. He'd known since 17-18.
+
+"Asahi."
+
+Asahi straightened up. "Yes."
+
+"I'm taking you off. Just for his serve. Back row only. When you rotate to the front, you're coming back on." Ukai said it fast and plain, the way you'd tell somebody their bus was leaving. "This is about his serve and that spot. Your hitting's fine."
+
+"...Yes." Asahi nodded, and kept nodding a bit too long. "Okay. Yes. That's... Okay."
+
+"Kiyose."
+
+Sho was already standing.
+
+"Your receive's the worst on this bench," said Ukai. "You've also watched this guy serve more than anybody in this building, Ennoshita included, and you've got that book." He jabbed a finger at Sho's back pocket. "Get it up. High, in the middle. Ugly's fine."
+
+"Yes."
+
+"Noya. You take everything you can reach. Kiyose takes what's left."
+
+"LEAVE IT TO ME!" Noya thumped his chest. Then he turned round and grabbed Sho's arm. "Kiyose! Low! Get low and don't swing your arms! Let it hit you!"
+
+"Okay."
+
+"And don't think!"
+
+Sho nodded.
+
+Asahi was holding out his hand. Sho didn't know what for until he saw that Asahi wanted to slap his. He slapped it. Asahi's hand was huge and wet with sweat.
+
+"Sorry," said Asahi. "Thanks."
+
+"Please let me borrow it for a bit," said Sho.
+
+Asahi's face did something halfway between a laugh and wincing. He sat down on the bench. Suga moved over to make room and put a hand on his back.
+
+Sho walked to the substitution zone. The buzzer went. The 2nd referee checked his number against the paddle and waved him on. He went to Asahi's spot in the back left, and the floor was warm through his shoes, and the lights were hard and white.
+
+Across the net, behind the end line, Oikawa was bouncing the ball. He watched Sho walk all the way to his spot. He smiled.
+
+"Tall-kun," he said. He said it to the ball.
+
+---
+
+Sho got low.
+
+He put his feet a little wider than Noya had told him, and his weight on the front of them, and his hands loose in front of his knees. He could hear Daichi breathing next to him, on his right, and past Daichi the shuffle of Noya's shoes. Tanaka was in front of him at the net with his back to him. Hinata was in the middle, on his toes. Kageyama was at the right, front row, waiting to run to wherever the pass went.
+
+*He's going to serve me,* thought Sho.
+
+There was no question about it. He was the newest thing on the court. He'd come on cold, off a bench, with a reputation Oikawa had personally watched him earn: the 1st year who couldn't pass. Oikawa had spent 3 serves hunting Asahi because Asahi was the softest spot in Karasuno's receive. Now there was a softer one, standing exactly where Asahi had been.
+
+So he was the target. And if he was the target, then the only questions were where on him, and how fast.
+
+He knew things about this serve. He'd written them down yesterday from the rail, and again this morning, and he could see the page without opening it. Oikawa tossed with his left hand, high and out in front. When the toss drifted right, the serve went cross. When he wanted the seam he looked at it, once, before he started his walk in, and then never again. He hit the top of the ball and it dove late, in the last 3 meters.
+
+At the net, Kageyama's right hand went behind his back and closed. A fist. The plain one.
+
+Oikawa bounced the ball. He looked up. His eyes went to the space between Sho and Daichi, for half a beat, and then went to nothing.
+
+*The seam. On my side of it.*
+
+The whistle went. Oikawa walked in, 1 step, 2, and threw the ball up.
+
+The gym went silent.
+
+Sho knew the silence. It had come in the 3v3 on Hinata's first freak quick, and at Golden Week, and twice since, always on its own, never when he asked. The crowd and the drums and the squeak of shoes all went somewhere far off, as if somebody had shut a door. Oikawa turned into points of light. Shoulder, elbow, wrist, hips, knees, a skeleton made of light hanging in the air over the end line, and the brightest point of all was his right hand, burning white.
+
+A ghost peeled off the hand, 1 blink early, and swung. Sho saw its path. It went across the ball and down, and the line it drew pointed at his own right hip, half a step from the seam, deep.
+
+He moved before Oikawa hit it.
+
+He took 1 step back and to the right and dropped his hips. He kept his arms still and put them where the ghost had pointed and let the platform sit there. Then the sound came back, all at once, the smack of the serve and the drums and someone on the 2nd floor screaming, and the ball was already on him. It dove in the last 3 meters exactly the way it did on the page, and it dove into his forearms because they were already there.
+
+It came up high. A little toward the net, a little right of the middle. High.
+
+"UP!" Noya shouted.
+
+Kageyama was there. Hinata ran in, and Kindaichi went up with him, because now he went up with Hinata every time. This was the plain one. Kindaichi was at the top of his jump when the ball left Kageyama's hands, and coming down when it reached Hinata, and Hinata, still rising, put it over his falling hands and into the floor inside Seijoh's 3-meter line.
+
+18-20.
+
+The bench was on its feet. He could hear Tanaka yelling his name as if it were a curse word. Noya slammed into his back with both hands. "KIYOSE! THAT'S IT! THAT'S IT!"
+
+Sho stood where he was with his arms still out, and his eyes were burning. It was the old feeling, the one from the 3v3. Dry and hot, as if he'd been staring into a light. The ghost was going. He could feel it thinning out, the way the afterimage of a bright window thins out when you close your eyes, and the court was coming back to ordinary depth.
+
+He held on to it. He didn't know how. He just kept hold of it, the way you'd keep a tune in your head by humming it before it faded. He kept it there, the faint burning outline of things, and then he did the other thing, the thing he'd been doing all day without the eye: he put the court together in his head, from above. Where every Seijoh player was. Who was front row. Who'd hit cross from which spot. Kindaichi always with Hinata. The end guy moving his outside hand when the hitter looked at it. Kunimi waking up when it was even. All 4 lines in the notebook and everything he hadn't written down. He laid the map out flat, and he put what was left of the eye inside it.
+
+It held. It hurt. A thumb pressed from inside his skull, right behind his eyes, and pushed.
+
+*Byakugan,* thought Sho. *The discount version.*
+
+He knew what this was. He knew exactly what this was. A 20-year-old in Osaka with a knee that clicked every time he landed, taping it tighter, telling nobody, playing through it for 3 months because the team needed him and it was only pain. He'd sworn twice as hard and twice as smart. He'd meant it.
+
+*1 set,* he thought. *3 months is what took the knee. This is 1 set.* He didn't tell anybody.
+
+---
+
+Karasuno rotated. Kageyama went back to serve, and Sho moved up to the front row on the left. That was the rule: when you won back the serve, everybody moved 1 spot clockwise, and the back-left player moved up to the front left. He was a hitter now. At the serve Tanaka was in the middle and Hinata on the right, and once the serve was over they'd switch, Tanaka out to the right side and Hinata into the middle.
+
+At the sideline Asahi was standing in the substitution zone. Ukai had said it: when you rotate to the front, you're coming back on. Sho saw Asahi look at Ukai, ready.
+
+Ukai was looking at Sho, with his arms folded.
+
+"Not yet," Ukai said. "Iwaizumi's on his side now. I want to see one more."
+
+Asahi sat back down. He had his towel in both hands and was twisting it, and his eyes stayed on the rotation. Suga said something to him, and he nodded without taking his eyes off the court.
+
+Across the net Iwaizumi was on the right side of Seijoh's front row, straight across from Sho. In this rotation he was the one who'd block Sho, and the one who'd hit at him.
+
+Kageyama served. It was a good serve, deep, and Seijoh's libero passed it a little off the net. Oikawa ran it down. Sho watched him, and only him, and the burning outline came up around Oikawa's body like a light switching on. His hands. The ghost of his hands went *back*. Over his own head, toward his right side.
+
+"Right side!" Sho shouted. "Back set! The 4!"
+
+He was already moving along the net. Hinata heard him and came with him. Oikawa's set went exactly where the ghost had gone, back over his head to Iwaizumi, and Iwaizumi came in hard from the right and hit, and the ball hit Sho's hands and Hinata's together and went up off them, high, back toward Karasuno's end line.
+
+Daichi ran it down. He got it up with 1 arm, the ball spinning off it toward the middle. Kageyama was under it.
+
+"Kiyose!"
+
+He was calling him. Sho came off the net, back behind the 3-meter line, turned, and ran in.
+
+The set came out flat and quick to the left, out toward the antenna, the way Kageyama had given it to him at Date Tech. Sho went up. He was at the top of his jump when the ball arrived, for once, and in front of him was Iwaizumi, just landed from his own hit and up again already, with his hands over the net and his outside hand out by the antenna.
+
+*When you look at the hand, they'll move it.*
+
+Oikawa had said it at the sink with a can in his hand. He'd meant it as a warning, or a joke, or a thing to get stuck in Sho's head. All 3, probably.
+
+Sho looked at the hand. He turned his chin to it, down and to the side, so that anyone watching his face would know where he wanted to hit.
+
+Iwaizumi saw. He pulled his outside hand in toward the middle, to take away the ball off the hand, the shot Sho had just told him was coming. It was a good block. It was the right thing to do. It closed the angle off the hand and opened the line beside it, down the sideline, a ball's width inside the antenna.
+
+Sho hit the line.
+
+It went past the edge of Iwaizumi's hand without touching it and landed on the sideline, inside, 2 meters from the end line. The line judge's flag pointed down. In.
+
+19-20.
+
+Iwaizumi came down and looked at his own hand. Then he looked at Oikawa. Oikawa was standing in the back row with his hands on his hips, and his smile had gone. He was looking at Sho the way Sho had been looking at him all day.
+
+"WHAT WAS THAT?!" Tanaka grabbed Sho by both shoulders and shook him. "You LOOKED at him! You looked right at the hand and then you hit somewhere else! What was THAT?!" He slapped Sho's back hard enough to rattle his teeth and ran back to his spot, still yelling it.
+
+---
+
+Kageyama served again.
+
+The pressure behind Sho's eyes had gone from a thumb to a fist. He let it. He kept the map up and the eye inside it and watched the court, and every rally, at the moment that mattered, the outline came up around whoever had the ball.
+
+Seijoh passed. Oikawa set the left, to Kunimi. Sho was blocking on the far side from him, too far to get there, but the eye put its outline around Kunimi as he went up, and his arm was slowing. The ghost of it went soft, a short swing that stopped early, a tip over the top of Tanaka's block.
+
+"TIP!" Sho yelled, before Kunimi touched the ball. "Short! Behind Tanaka-san!"
+
+Noya was already running when Kunimi's fingers touched it. He got there with his whole body flat out on the floor, and his hand went under the ball like a lid, and the ball popped up. Kageyama put it up to Tanaka on the right. Tanaka hit it so hard into the middle of Seijoh's court that the libero ducked.
+
+20-20.
+
+Noya came up off the floor shouting. "How'd you know?! Kiyose! How'd you *know* that?!"
+
+"He slowed down," said Sho. His voice came out ordinary.
+
+"Do it again!"
+
+"Okay."
+
+Kageyama served. Seijoh passed. This time Oikawa set the right, to Iwaizumi again, and Sho saw Iwaizumi's ghost go up and swing down the line, toward Karasuno's left sideline, where Sho was standing.
+
+"The 4! Line!"
+
+Hinata came across fast, faster than anybody Sho had ever seen move on a court, and they went up together on the line side. Sho knew where the ball was going and when, and he put his hands there and held them still, and the ball hit them and came straight down on Seijoh's side, between Iwaizumi's feet.
+
+21-20.
+
+Hinata landed and screamed, a noise with no word in it, and grabbed Sho's arm with both hands. "WE BLOCKED HIM! Did you see?! We blocked the 4!"
+
+"Yeah," said Sho. "We did."
+
+He couldn't quite see Hinata's face. It was there, bright and close, but it was flat, like a photo of a face held up in front of him. The lines on the floor had doubled at the edges. When he looked at the net, the white tape had a second, fainter tape beside it.
+
+*Kakashi,* he thought. *Kakashi always fell over afterwards. Every single time. I used to think that was the writers being lazy.*
+
+Kageyama served. It came back. Seijoh got a big dig on Tanaka's spike, and the ball came over high and easy, a free ball, floating down short toward the 3-meter line right in front of Sho.
+
+It was the easiest ball of the set. A free ball. Satoshi could have passed it at 10 years old.
+
+He watched it come. It was close. It was further. It was close again. The depth went in and out like a camera that couldn't find focus, and he stayed when he should have stepped. He reached. The ball dropped a step in front of his hands and bounced on the 3-meter line.
+
+21-21.
+
+"Don't mind!" Daichi called. "Don't mind!"
+
+"Sorry!" Sho's hand went up. "Mine. Sorry."
+
+He blinked hard. The gym came back in pieces. He looked at the bench. Ukai was looking straight at him, and Ukai had unfolded his arms.
+
+---
+
+Seijoh rotated, and Iwaizumi went back to serve.
+
+His serve was a jump serve, all power, and it went at Sho, because Sho had just shanked a free ball and the whole building had seen it. The eye didn't come. He reached for it and there was nothing to reach for, only the fist behind his eyes. He had the map. Iwaizumi was a big hitter who served the way he spiked, straight, at the body. So Sho didn't move his feet. He stood square, low, with his arms out in front of his chest, and let the ball come to him.
+
+It hit him in the forearms and the chest at the same time and went up. Ugly. Up. Kageyama ran it down at the sideline and put up a finger behind his hip, and Hinata was already running. The ball got to him at the top of his jump, and he hit it straight down past Kindaichi's arms.
+
+22-21.
+
+Karasuno rotated. Hinata went back to serve, and Sho moved from the left side into the middle of the front row. Hinata's serve was a plain one, safe, and Seijoh passed it easily. Oikawa set Hanamaki on the left, and Sho went up to block him a beat late. The ball went past his hands, cross, and Daichi got a forearm on it, and it flew off into the boards.
+
+22-22.
+
+Seijoh rotated. Their new server put the ball deep at Daichi, who passed it the way Daichi passed everything, high and in the middle. Kageyama set Tanaka on the right. It was high, higher than anything he'd given Tanaka all day, because Tanaka had told him *higher* before the set started. Tanaka hit it down the line with his whole body behind it.
+
+23-22.
+
+Karasuno rotated again. Tanaka went back to serve, and Sho moved from the middle to the right side of the front row. Tsukishima came back on for Noya, because Noya's spot had come round to the front and a libero can't play there. On his way past Sho to the left side of the net Tsukishima stopped for half a step.
+
+"Your eyes are red."
+
+"It's the lights."
+
+Tsukishima looked at him a little longer than he looked at most things. Then he went to his spot.
+
+Tanaka served. Seijoh passed, and Oikawa set their other middle, the number 2, on a quick right in front of Sho. Sho jumped. The ball was closer than he'd seen it, and he got there late, and it went off his fingertips and out past the end line.
+
+23-23.
+
+At the dead ball Kageyama came up to him. He stood a little too close, the way he did when he was going to say something he'd decided on in advance.
+
+"Kiyose."
+
+"Yes."
+
+"My tosses. What do you want."
+
+Sho looked at him. Kageyama's face was flat and photograph-thin, and there was a faint second Kageyama standing just to the left of the first one.
+
+"Flat," said Sho. "Out to the antenna. Like Date Tech."
+
+"Okay."
+
+Seijoh served. Daichi passed. Sho was on the right side now. Across the net Oikawa had rotated up to the front row, on the left. A setter in the front row usually ran over to the right side of the net as soon as his team served, to be ready to set. Oikawa stayed on the left, right in front of Sho, and swapped with his hitter for this one rally. He was standing across the net with his hands up, smiling again, and he was looking right at Sho's chin.
+
+*He knows the trick,* thought Sho. *It's his trick. So when I look at the hand, he won't move it. He'll hold it still and wait for me to hit the line.*
+
+The eye didn't come. He could do this one without it, the old way, the film-room way: what does this player know, and what will he do because he knows it.
+
+Kageyama's set came out flat and fast to the right, out toward the antenna, exactly as asked. Sho went up. He turned his chin to Oikawa's outside hand, down and to the side.
+
+Oikawa's hand didn't move. He kept it out by the antenna with the palm turned in, sealing the line, and Sho could see in his face that he knew he'd won.
+
+Sho hit the hand.
+
+He hit the outer edge of it, the fingertips nearest the antenna, hard, and the ball went off them sideways past the antenna and into the stands. The 1st referee pointed to Karasuno's side and brushed the fingers of 1 hand across the other. Touch. Karasuno's point.
+
+24-23.
+
+Oikawa came down and stood there with his hand still half up. He looked at his fingers. Then he looked at Sho, and he laughed. It was a short laugh, out of his nose, and it didn't have anything nice in it.
+
+"Rude," Oikawa said, across the net.
+
+Sho couldn't answer. The fist behind his eyes had become a nail.
+
+---
+
+Karasuno rotated. Sho went back to the end line to serve.
+
+Somebody bounced him the ball. He caught it on the 2nd try. The end line was a white stripe with another, fainter stripe beside it, and he put his toes behind both of them to be safe.
+
+Set point.
+
+The gym was loud enough to feel in his teeth. He could hear the Seijoh girls, and Karasuno's 2 rows of supporters, and Shimada's voice somewhere yelling his name, and all of it sounded far away. He looked up once, without meaning to, at the 2nd floor across the court, behind the Seijoh girls, and saw a small figure standing on a seat with both hands on the rail. He couldn't see her face. He could see that she was standing.
+
+*Yamaguchi's toss,* thought Sho. *Low. In front. Don't think.*
+
+He threw it up low and in front, the way he'd stolen it from Yamaguchi at Tokonami, took 2 steps, jumped low, and hit the middle of the ball with a flat hand. A float. Nothing on it. It went over the tape and wobbled and dropped toward Seijoh's libero, who passed it perfectly, because it was an easy serve.
+
+Oikawa set.
+
+Sho was in the back right now, running into his defensive spot, and he reached for the eye one more time and pulled. It was like pulling a nail out with his fingers. It came.
+
+The gym went silent and the light came up, and he saw all of it. Oikawa in the front row with his hands over his head. Kindaichi going with a fake. Hanamaki running a fake on the left. And Iwaizumi, from the back row, behind the 3-meter line, coming through the middle on a back-row attack. Everybody looked good. Every hitter on Seijoh's side looked like he was getting the ball.
+
+*When all of them look good, that's him,* Ukai had said about a setter.
+
+The outline went up around Iwaizumi. His ghost swung down and across, at the right back corner. At Sho.
+
+Sho was already there, standing where the ball was going to be, low, with his arms together, and Iwaizumi's spike came into them like it had been posted there.
+
+It went up. High, clean, in the middle of the court.
+
+"NICE!" That was Noya, from somewhere. "NICE KIYOSE!"
+
+Kageyama got under it. He was in the front row on the left, and Daichi was on the right side, front row, coming in. Kageyama set Daichi, a plain, honest ball that sat up for him. Daichi hit it as hard as Sho had ever seen him hit anything, down past the end of Oikawa's block and into the floor.
+
+The whistle went.
+
+25-23.
+
+---
+
+The noise came back first. Then the bench, all of it, on the court at once. Hinata's voice cracked on whatever he was yelling. Tanaka was crying already, openly, with his arms around Daichi's neck. Noya jumped on Asahi's back, and Asahi, who'd come off the bench with everybody else, staggered and held him up.
+
+Sho was still standing in the back right corner. His arms were still together in front of him.
+
+Something warm ran over his top lip.
+
+He touched it. This time his fingers came away red. A drop fell past his hand and hit the floor and spread, a bright coin on the yellow wood, and then another one landed next to it.
+
+"Oi." Tanaka had let go of Daichi. He was 2 meters away and coming closer. "Oi. OI. Kiyose. Your nose."
+
+"It's okay," said Sho. "It's just..."
+
+"ARE YOU DYING?!" Hinata had both hands in his own hair.
+
+"No."
+
+The 2nd referee had blown a whistle and was pointing at the floor. Somebody ran over with a towel and a mop. Kiyoko was there. She held tissues in front of his face and he took them and pressed them under his nose and tipped his head forward, the way his mother had taught him when he was 6, and the blood soaked through the first tissue in a second. She gave him another.
+
+Ukai walked across the court and stood in front of Sho, and he held out a bottle.
+
+Sho reached for it. His hand closed on air a hand's width short of the bottle. He reached again, slower, and found it.
+
+"How many fingers."
+
+Ukai had put his other hand up. Sho looked at it. There were fingers. There were a lot of them, and they wouldn't stay still.
+
+"It's fine. Coach, it comes back. In a few minutes it comes..."
+
+"How many."
+
+"...3. Or 4."
+
+Ukai breathed out through his nose.
+
+"You're done," he said.
+
+"I can play set 3. I just need..."
+
+"You're done for today." He said it the same way he'd said *not yet* to Asahi, as if there was nothing to argue about because it was already decided. Then, lower, so that only Sho could hear it: "You knew. Out there. You knew it was costing you, and you kept going."
+
+Sho held the tissues under his nose.
+
+"Yes."
+
+Ukai looked at him. Then he looked at the spot on the 3-meter line where the free ball had dropped.
+
+"I saw you miss that one," he said. "And I left you on." He rubbed his face with his whole hand. "So we're both going to talk about it. Later. Sit down."
+
+---
+
+They put him at the end of the bench with a cold towel folded over his eyes and a bag of ice from Kiyoko's cooler on the back of his neck. The blood had slowed. The pressure hadn't. The dark under the towel was much better than the light, and he sat in it with his elbows on his knees and listened.
+
+He could hear Ukai with the line-up paper. Asahi going back in. Takeda saying *Kiyose-kun* to someone in a low voice and someone else answering. He could hear Kageyama ask Suga a question, and Suga answer it. Hinata came and stood in front of him, he could tell from the breathing, and stood there for a while, shifting from foot to foot so that his shoes squeaked, and then went away again.
+
+Then a hand put something on his knee. It was cold and square. He felt it. Carton milk, with the straw already in it.
+
+"Drink it," said Kageyama's voice. The bench creaked as he stood up again. Footsteps went away.
+
+Sho held the milk. For 9 years he had sat in a dark room watching other people play. He'd come back from it, somehow, to a body that worked and a court with real light on it, and he'd sworn he would never sit behind the glass again.
+
+*1 set,* he thought. *I said 1 set.*
+
+The buzzer went for the end of the break. Close, above and behind him, at the rail of the 2nd floor right over Karasuno's bench, a long way round from where she'd stood all morning, over the drums and the girls and everything else, a voice he had known for 10 years shouted his name.
+
+"SHO!"
+
+It cracked in the middle.
+
+Sho took the towel off. The light came in like a slap, and he couldn't find her. He could only hear her, and under her, lower, his father's voice saying, "Mio. Mio, wait," and the sound of someone small running down a flight of concrete stairs.
+
+**Continuity (ch 22)**
+
+- First chapter under the Oct 30 divergence rules (bible: "Canon and divergence"). Set 2 is the fic's own: every score and rally except the final 25-23 is invented, and the match now runs differently from canon because of Sho.
+- Canon kept: Kageyama starts set 2 after watching Suga and asks his hitters what they want from his sets, Tsukishima first (canon, ep 22 "Evolution"; the exact words are invented). Tsukishima's answer ("A little further off the net. On the quick.") is invented. Karasuno takes set 2, 25-23.
+- Set break: Sho told Ukai that Seijoh hears Kageyama's spoken *send* (the plain quick) and reads it, while Suga's silent finger left their middle late. Ukai checked with Suga ("Did you say anything?" "No."), switched Karasuno to hand signals: behind the back before the serve, low by the hip in a rally; 1 finger = fast quick, fist = plain quick (Suga's system). Ukai to Sho: "Next time you see something, you tell me when you see it... You don't sit on it." "...Good eye." Ukai told Takeda on the bench that "Kiyose caught it."
+- Oikawa saw Takeda turn round to Sho and waved 2 fingers at him at the 8-4 timeout. Seijoh's answer: Kindaichi commits on Hinata every time, and every server attacks the pass (seams, short, deep) so the quick can't start. Kunimi tipped over Tanaka's block when it got close (Ennoshita: "He's been doing that since it got close."). Kageyama asked Tanaka "Was that okay?"; Tanaka: "Kageyama's being *nice*. Asahi-san. What do I do."
+- Score path (invented): 8-4 Seijoh timeout; 12-12; 15-15; 17-16; 17-17 (Iwaizumi off Tanaka's block). Oikawa served from 17-17: ace in the Asahi/Daichi seam (17-18), Asahi's shank became an overpass Kindaichi killed (17-19), Noya's receive and Tanaka blocked by 3 (17-20). Karasuno timeout (their 1st of set 2).
+- Rotation at 17-20, Karasuno (bookkeeping): 1 Noya (for Tsukishima), 2 Kageyama, 3 Hinata, 4 Tanaka, 5 Sho (for Asahi), 6 Daichi. Seijoh: Oikawa serving from 1, Iwaizumi at 2 (blocks and hits on the right in this rotation), Iwaizumi to serve after the next Seijoh side-out.
+- Sho in for Asahi at 17-20 (back row, receive). Ukai: "I'm taking you off. Just for his serve... When you rotate to the front, you're coming back on." At 18-20 Ukai kept Sho on instead: "Not yet. Iwaizumi's on his side now. I want to see one more." Asahi twisted his towel and watched the rotation. Asahi: "Sorry. Thanks." Sho: "Please let me borrow it for a bit." Asahi came back on for set 3.
+- The run: 18-20 Sho passes Oikawa's serve (the eye fires on its own; ghost of the arm aimed at Sho's right hip), Kageyama's fist (plain quick), Kindaichi commits and is coming down when Hinata hits. Kageyama serves from 18-20 to the 21-21 rally. 19-20: Sho calls "Right side! Back set! The 4!", he and Hinata touch Iwaizumi's spike, Daichi digs, Sho hits line past Iwaizumi after baiting him with the chin look (Oikawa's sink lesson used against Seijoh). Tanaka: "You LOOKED at him!" 20-20: Sho calls Kunimi's tip early, Noya digs it, Tanaka kills. 21-20: Sho and Hinata block Iwaizumi's line shot ("WE BLOCKED HIM!"). 21-21: Sho misjudges a short free ball at the 3 m line (depth). 22-21: Iwaizumi's jump serve, Sho passes it off chest and arms with no eye, Hinata fast quick. 22-22: Hinata serves, Hanamaki hits cross past Sho's late block, Daichi's touch goes out. 23-22: Kageyama sets Tanaka high ('higher', as Tanaka asked) and Tanaka hits line. Tsukishima back on for Noya: "Your eyes are red." "It's the lights." 23-23: Tanaka serves, Matsukawa (#2) quick off Sho's fingertips. 24-23: Kageyama asks Sho what toss he wants ("Flat. Out to the antenna. Like Date Tech."); Oikawa, front-left, stays on the left to block Sho himself instead of switching to right front; Sho baits him with the chin, Oikawa holds his outside hand still to seal the line, Sho tools the outer edge of it. Oikawa: "Rude." 25-23: Sho serves (jump float, Yamaguchi's toss), Sho forces the eye on Iwaizumi's back-row attack and digs it standing still, Kageyama sets Daichi, Daichi kills past Oikawa's block.
+- Forced fusion (bible: power ladder note). The eye fired on its own once; Sho held it and put it inside his "map" (all 4 notebook lines plus rotations) and kept forcing it. Thoughts: "Byakugan. The discount version." and Kakashi falling over after the Sharingan. Pressure grew thumb, fist, nail. Depth went in and out from 21-20, doubled lines on the floor and net, faces "flat like a photo". After 25-23: nosebleed on the court floor, misses Ukai's bottle by a hand's width, can't count Ukai's fingers ("3. Or 4."). Ukai: "You're done for today." "You knew. Out there. You knew it was costing you, and you kept going." Sho: "Yes." Ukai: "I saw you miss that one. And I left you on. So we're both going to talk about it. Later."
+- Sho's choice in his head: Satoshi's knee (3 months of pain, told nobody). *3 months is what took the knee. This is 1 set.* He told nobody. Tsukishima noticed first ("Your eyes are red."); Ukai unfolded his arms at 21-21 and left him on.
+- Set break before set 3: Sho at the end of the bench with a cold towel over his eyes and ice on his neck. Hinata stood in front of him without talking and left. Kageyama put a carton of milk with the straw in it on his knee: "Drink it."
+- Mio stood on a seat on the 2nd floor across the court, behind the Seijoh girls, during set point. By the end of the break she had come all the way round to the rail above Karasuno's bench and shouted "SHO!" (her voice cracked); Dad: "Mio. Mio, wait." She ran down the concrete stairs. Sho couldn't see her. First time anyone in the family has acknowledged being there.
+- Karasuno timeouts in set 2: 1 (at 17-20). Seijoh: 1 (at 8-4). Subs: Sho for Asahi (1).
+- Next: ch 23 "The rail" (Mio POV): set 2 from the stands through the blood, the break, Dad, and the start of set 3.
+- No status card. The fusion was a one-time spike; no rank changed.
