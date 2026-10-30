@@ -3523,3 +3523,551 @@ Sho took the towel off. The light came in like a slap, and he couldn't find her.
 - Karasuno timeouts in set 2: 1 (at 17-20). Seijoh: 1 (at 8-4). Subs: Sho for Asahi (1).
 - Next: ch 23 "The rail" (Mio POV): set 2 from the stands through the blood, the break, Dad, and the start of set 3.
 - No status card. The fusion was a one-time spike; no rank changed.
+
+## Chapter 23: The rail (Mio)
+
+The girls a few seats along from Mio had fans with a face on them.
+
+It was the same face on every fan, a boy with brown hair and a wink, printed on stiff paper and stuck on a stick. There were 3 girls, standing at the rail in a row in their teal ribbons, and when the boy came out to serve they held the fans up over their heads, all together, and screamed his name in 2 halves. Mio was in the front row too, at the rail, and every time they did it she sat down. Every time Sho's team got a point, she stood up on her seat to see over the fans.
+
+"Mio," said Dad. "Down."
+
+She got down. The next time Sho's team got a point she got back up, and Dad let her. He had the newspaper folded into a square on his knee, so small it was only 1 article, and he'd been reading the same article since 10 o'clock.
+
+Mom hadn't come. Mom said if she came she'd shout at the referee, and they'd get thrown out, and then Sho would never speak to any of them again. So it was just Mio and Dad, on the 2nd floor, on the wrong side.
+
+It was the wrong side on purpose. Dad had said they should sit somewhere Sho wouldn't see them, and Mio had said fine. Now the girls screamed every time the boy with the face did anything, and Mio's ears rang, and Sho's team was on the other side of the net, a long way off, small.
+
+She could still find him. He was the tallest one on the bench.
+
+He'd been on the bench all morning. He gave people water. When they came off the court he held out bottles, and they took them without looking, and when they went back on he picked up what they'd left. Towels too. In set 1 he'd held somebody's jacket for ages, the gray-haired one's, and then given it back.
+
+The water boy, Mio had thought, around 11 o'clock. She'd thought it a few times since.
+
+He had his notebook out, too. The gray one. Mio knew that notebook. It lived in his back pocket, and once, in May, she'd picked it up off the kitchen table to see what was in it, and he'd taken it out of her hands so fast she only remembered to yell about it at dinner. It was full of tiny writing and arrows. He didn't show it to anybody.
+
+So when set 1 finished and everybody walked around and swapped sides, and the man with the hair band crouched down in front of 2 of the players with a piece of paper, and Sho stood up and walked over to him with the notebook open, Mio leaned on the rail to see better.
+
+"What's he doing," she said.
+
+Dad looked up from the article.
+
+Sho was talking to the man with the hair band. He was holding the notebook out. The man took it right out of Sho's hands, and Sho let him.
+
+"Dad. He gave him the notebook."
+
+"Mm."
+
+"He doesn't give *anybody* the notebook."
+
+Dad watched. "That's the coach," he said.
+
+The man with the hair band looked at the notebook. Then he stood up and started pointing at people, and the gray-haired one put his hand behind his back and did something with his fingers, and the orange-haired one stuck his face right up close to the angry setter's face, and then the man gave the notebook back to Sho. They both held it for a bit. Then Sho walked back to the bench and sat down.
+
+Mio didn't know what had happened. She watched Sho's face. It was too far to see properly, but he sat up straight, with his hands on his knees, the way he sat at Grandma's at New Year's when he wanted to be allowed to leave.
+
+---
+
+Set 2 started, and Sho's team started winning.
+
+Mio knew a few things. Dad had looked up the rules on his phone in April and read them out at dinner until Mom told him to stop. So she knew that the team that won the point got to serve, and that a set was 25 points and you had to win by 2.
+
+She didn't know why the orange-haired one kept getting the ball when nobody else did, or why it went so fast. Every time he hit it, the girls at the rail went "Ehhh?!" in the same voice, and the one on the end said, "Again? How?"
+
+"It's the little one again," said the girl with the ponytail. "Why can't Kindaichi block him anymore?"
+
+"He was blocking him before."
+
+"I *know*."
+
+Mio stood on her seat. Sho's team was winning 8 to 4. On their bench, Sho was sitting still with the notebook closed on his knee, and the man with the glasses who was always writing had turned all the way round to look at him.
+
+Then the boy with the face, the one on the fans, stopped at the edge of his team's circle and looked across at Sho's bench. Mio saw him do it. He looked along the bench like Mom looking along the shelf at the supermarket for the right kind of soy sauce. He stopped at Sho. He did a little wave.
+
+"Oikawa-san's waving at somebody," said the ponytail girl.
+
+"At who?"
+
+"Their bench. The tall one?"
+
+"Who's that?"
+
+"No idea. 13."
+
+Mio got down off her seat and sat. "Dad. The face one waved at Sho."
+
+"Mm." Dad had stopped reading. The square of newspaper was just sitting on his knee.
+
+After that it got bad. Mio didn't understand why. The other team started serving harder, or meaner, she couldn't tell which, and Sho's team kept getting the ball up wrong, and the orange-haired one ran around and didn't get the ball anymore. The girls cheered again. 10-9. 12-12. Mio stayed sitting down.
+
+At 17-17 the boy with the face walked to the back to serve. The girls held up their fans and the drums went quiet, and he served 3 times and won 3 times. 17-20.
+
+The man with the hair band stood up and made a T with his hands. Mio knew that one. Timeout.
+
+Then Sho stood up.
+
+He wasn't holding anything. That was the first thing she saw. No bottles, no towels, no jacket. He stood with his hands empty at his sides, and the man was talking to him, and the short one in the different shirt grabbed Sho's arm and shouted something at him, and the big one with the bun held out his hand and Sho slapped it.
+
+Then Sho walked to the corner of the court where the players went in, and a man in a black shirt held up a sign with a number on it, and Sho walked onto the court.
+
+Mio was on her seat before she'd decided to be.
+
+"Dad."
+
+"I see him."
+
+The ponytail girl had seen him too. "13's going in."
+
+"For the big one? That's weird."
+
+"Oikawa-san's going to serve him," said the one on the end, with a little laugh. "Watch. He'll serve the new one."
+
+Mio looked along the rail at her. The girl had a teal ribbon in her hair, the same as the shirts, and she was holding her fan ready.
+
+The boy with the face bounced the ball. He looked at Sho. Mio could see that much, even from here. He looked at Sho like he was something on a plate.
+
+Sho bent his knees. He did the thing he did in the yard after dinner, when he thought nobody was looking out the window: he stood with his feet apart and his hands out in front of him, low, and didn't move.
+
+The ball went at him like a stone, and Mio closed her hands on the rail, and it came up off his arms, high, into the middle of his court. The orange-haired one smashed it down on the other side.
+
+"YES!"
+
+Mio heard it come out of her own mouth. All 3 girls turned their heads along the rail and looked at her.
+
+She stood on her seat and looked back. Then the ponytail girl turned to the court and said, to the girl with the ribbon, "...He got it."
+
+"That was luck," said the ribbon girl.
+
+Mio sat down. Dad had put his hand flat on the newspaper and was holding it there.
+
+---
+
+After that Sho was shouting.
+
+Mio had never heard him shout. Not really. At home he talked normally, or he talked to Mom in his polite voice, the one he'd started using in April, after the ball hit him in the face and he came home with a swollen nose and started saying *thank you for the food* properly. He didn't even shout at her when she took his stuff.
+
+On the court he was pointing at the net and shouting things, and his voice came all the way across the gym, and other players moved when he shouted. The orange-haired one ran where Sho pointed. The short one in the different shirt ran where Sho shouted. Once Sho jumped and hit the ball, and it went right past the boy with spiky hair on the other side, and the loud one with no hair grabbed Sho by both shoulders and shook him like a vending machine that had eaten his money.
+
+"What did he do?" said the ribbon girl. "Iwaizumi-san moved his hand, and then..."
+
+"He looked at it," said the ponytail girl. "He looked at Iwaizumi-san's hand. And then he hit somewhere else."
+
+"Why?"
+
+"I don't know. Oikawa-san's making a face."
+
+Mio looked. The boy with the face wasn't smiling anymore. He was standing at the back of his court with his hands on his hips, looking at Sho. He looked at Sho the same way Sho looked at the TV when there was a match on and Mio was trying to watch something else.
+
+"13's kind of scary," said the girl on the end.
+
+"He looks at people," said the ponytail girl. "Have you noticed? Before the ball comes. He looks at everybody."
+
+Mio had noticed. She had noticed in April. He did it at dinner, too, when Dad was about to say something, and he did it in the mornings when he came downstairs, looking at Mom's hands to see what she was making before she said. He did it to Mio when she was lying, and it worked every time.
+
+Sho's team won the point, and won the next one. Mio was standing up the whole time now. 21-20.
+
+Then Sho rubbed his eyes.
+
+He did it with his wrist, quickly, the way you'd do it if a hair got in. The girls didn't notice. Dad didn't, maybe. Mio noticed because she was looking at him and nothing else. Then the ball came, and he played, and when it stopped he rubbed them again.
+
+The next one was easy. Even Mio could see it was easy. It came over the net slowly, all floaty, like a ball you'd throw to a little kid, and it was coming right to Sho. He watched it come. He leaned. He put his hands out, and the ball dropped on the floor right in front of them.
+
+He stood there and looked at the floor where the ball had been, the way Grandpa looked at the TV when he'd left his glasses in the other room.
+
+"Dad."
+
+Dad had stopped moving.
+
+"Dad, his eyes."
+
+"I know."
+
+"You didn't see."
+
+"I saw." Dad's thumb was pressing the newspaper so hard it had made a dent.
+
+On the court the short one in the different shirt was patting Sho on the back, and Sho put his hand up to say sorry, the way he did. Mio looked at the bench. The man with the hair band had been standing with his arms crossed since Sho went on, and now his arms were hanging down by his sides.
+
+Sho kept playing.
+
+---
+
+He played 6 more points after that. Mio counted them on her fingers against the rail.
+
+She didn't watch the ball for those. She watched him. Between points he blinked hard, 3 or 4 times, and once he put his hand out toward the net as if he was checking it was there. When the angry setter walked up to him and said something, Sho looked at the angry setter's face for a while before he answered, the way you look at a word you can't read. When he jumped, he still jumped higher than anyone on his side. When he landed, he put his hand down on the floor first.
+
+The girls didn't see any of that. They saw the ball go off the hands of the boy with the face and into the seats on the other side.
+
+24-23.
+
+Mio saw the boy with the face laugh, a short one, with his hand still up in the air.
+
+"Did Oikawa-san just get *tooled* by 13?" said the ponytail girl.
+
+"Don't," said the ribbon girl.
+
+Then Sho walked to the back to serve.
+
+The whole place was screaming, both sides, and the drums on Sho's side were going, and a man somewhere over there was yelling *KIYOSE* in a big voice. Mio stood on her seat with both hands on the rail. Sho took the ball. He dropped it. Somebody threw it to him again and he caught it.
+
+Then he looked up.
+
+He looked right at her. All the way across the gym, at the 2nd floor, at the wrong side, past the girls with their fans. Mio was sure of it. She held still. She didn't wave, because Dad had said not to let him see them.
+
+He threw the ball up, low, in front, the same way he did it in the yard against the wall 100 times after dinner, and he hit it over. Mio couldn't follow what came next. It was fast and everybody moved, and the last time the ball came over it went at Sho in the back corner, and it came up off him, and somebody on his side hit it down.
+
+The whistle went.
+
+25-23.
+
+Sho's side of the building exploded. The players all ran together in the middle of the court, all of them, even the ones from the bench, and jumped on each other, and the loud one was crying, and the big one with the bun had the short one in the different shirt on his back.
+
+Sho wasn't with them. He was still in the corner where he'd got the last ball, with his arms out in front of him. Mio watched him lift 1 hand to his face, and look at it.
+
+The loud one stopped running.
+
+Then the tall girl with glasses, the quiet one who'd given out towels all day, was there in front of Sho with something white in her hand, and Sho was bending his head forward, and the white thing was against his nose, and the white thing was red.
+
+Mio knew what that was. She'd seen it before. In April, the week of the club flyers, when the ball hit him in the face at school, he'd come home with his nose packed with tissue, and Mom had wanted to put ice on it, and Mio had asked if a girl had hit him.
+
+The man with the hair band walked across the court to Sho and held up his hand with fingers up, the way the eye doctor did, and Sho looked at it and said something, and the man's shoulders went down.
+
+Mio was off the seat.
+
+"Mio," said Dad.
+
+She was already in the aisle.
+
+---
+
+The 2nd floor went all the way round. Mio had seen it when they came in: a walkway behind the seats, and the seats going down to the rail, all the way round the big room in a square, like the edge of a lunch box. Sho's bench was on the other side. If you went round, you got there.
+
+She went round.
+
+It was further than it looked. There were people in the way, standing up and clapping and talking about the match, grown-ups with towels around their necks and a group of boys in black tracksuits who didn't move until she pushed between them. A man said "Oi" at her. She didn't stop. At the corner there was a door to the stairs, and she went past it, and kept going, and the noise of the drums got louder because she was getting closer to them.
+
+Behind her she could hear Dad saying "Sorry, sorry, excuse me" to everybody she'd pushed past.
+
+Sho's bench was right below. She went down the steps between the seats to the front and got to the rail and grabbed it.
+
+He was sitting at the end. There was a towel folded over his eyes and something on the back of his neck, a plastic bag with ice in it. The rest of his team was standing around the man with the hair band, except for the angry setter, who was standing in front of Sho holding something small. He put it on Sho's knee and walked away.
+
+A buzzer went. The players started walking back onto the court. Sho didn't move or take the towel off.
+
+"SHO!"
+
+It came out wrong. It cracked in the middle, like when she had a cold.
+
+He took the towel off and looked up. His face was white and his eyes were red all round the edges, and there was a dark smear on his top lip that hadn't come off. He looked up at the rail, and his eyes went past her. They went right past her to the left, to a man in a cap, and came back, and went past her again to the right.
+
+He couldn't find her.
+
+She was right there. She was right above him, close enough to drop a pudding cup on his head, and he was looking for her like she was a long way away.
+
+On the bench the quiet girl with glasses had seen her. She leaned down and said something to Sho and touched his arm, and turned him a little, so that he was facing the right way. Sho looked up again. His eyes stopped near Mio. Near. He made a face she'd never seen him make, a kind of squint, as if she were the small print on the fridge calendar.
+
+Dad had got to her. His hand was on her shoulder.
+
+"Mio. Mio, wait."
+
+There was a door in the corner of the court, under the seats. Mio knew where that door went. It went to the hallway with the vending machines and the toilets. They'd walked down it this morning to get grape soda. If they took him anywhere, they'd take him through there.
+
+She shook Dad's hand off and ran for the stairs.
+
+The stairs were concrete, gray, with a metal rail and a sign that said not to run. Her shoes slapped on every one. Behind her, Dad's shoes were slapping too. Mio had never heard Dad run. She hadn't known he could.
+
+---
+
+The hallway smelled like floor wax and the inside of a shoe. It was long and bright and quieter than the gym, and at the far end was the corner with the vending machines and a sink with 2 taps.
+
+Sho was standing by the sink.
+
+The man with the glasses had a hand on his elbow. Sho was holding a wad of tissues against his nose with 1 hand, and in the other hand he had a carton of milk with a straw in it. When Mio came round the corner, both of them turned to look.
+
+Sho's eyes went to the right of her first. Then they found her.
+
+"Mio."
+
+She stopped about 3 steps away. She didn't know why she stopped there. Her chest was going up and down from the stairs.
+
+"You're bleeding," she said.
+
+"It's nearly stopped."
+
+"It's not stopped."
+
+"Nearly."
+
+Dad came round the corner behind her. He was breathing hard, and his face was red, and the newspaper was still in his hand, all crumpled now. He stopped next to her.
+
+The man with the glasses looked at Dad, and at Mio, and then at Sho, and his eyes went big behind his glasses.
+
+"Ah," he said. "Are you... You must be..."
+
+"Kiyose," said Dad. "His father."
+
+The man bowed. He bowed lower than Mio had ever seen a grown-up bow to Dad, so low that his glasses slid down his nose and he had to push them back up.
+
+"I'm Takeda. I'm the club's advisor. I'm so sorry, I should have... We were going to call the house, of course, I want you to know that, as soon as he'd been seen. He's being seen now. That is, he's about to be. The first aid room is just there." He pointed down the hallway at a door with a white sign on it. "The coach asked me to bring him. His nose has been bleeding since the end of the set, and his eyes..."
+
+"His eyes," said Dad.
+
+"They're not focusing properly. He says it happens. He says it comes back." Takeda looked at Sho, and then back at Dad, and pushed his glasses up again. "I'll be honest with you, Kiyose-san. I don't understand volleyball as well as I'd like to. I'm still learning it. But what he did out there, I... Ah." He stopped, and looked at the tissues in Sho's hand. "Sorry. That can wait."
+
+Dad looked at Sho.
+
+Sho was looking at the floor somewhere near Dad's feet. He held the tissues against his nose.
+
+"Sorry," said Sho. "For making you come down."
+
+"We were here anyway," said Dad.
+
+Sho looked up. His eyes went to Dad's face, and to Mio's, and back.
+
+"...Today too?"
+
+"Yesterday too," said Mio. "Both days. We sat near those girls."
+
+"With the fans."
+
+"You saw?"
+
+"I saw you standing on a chair." He moved the tissues to look at them. They were red in the middle. He folded them and put them back. "Yesterday. In the 1st match."
+
+So he'd known. The whole time. He'd known, and he'd eaten his mackerel at dinner and talked about katsu, and so had she, and so had Dad. Mio stood in the hallway and thought about that.
+
+Dad held out his hand for the milk. Sho gave it to him, and Dad held it with the newspaper.
+
+"The first aid room," said Takeda. "Shall we...?"
+
+---
+
+The first aid room had a bed with a paper sheet on it and a lady in a white jacket over a tracksuit, an old lady with short gray hair and a cooler full of ice packs by her feet. She looked at Sho when he came in and said "Sit," and he sat on the bed, and the paper crackled.
+
+She took the tissues off his nose and looked. She pinched the soft part of his nose with her fingers and told him to hold it. Then she held up 1 finger in front of his face.
+
+"Look at this. Follow it."
+
+She moved it left, right, up, toward his nose. Sho's eyes followed it. When it came close to his face, they went the wrong way, out instead of in, and then back.
+
+"Hm," said the lady.
+
+"It comes back," said Sho, through his pinched nose. "It's happened before. A few times. Usually it's a few minutes."
+
+"And this time?"
+
+"It's been more than a few minutes."
+
+"Headache?"
+
+"A little."
+
+"He's lying," said Mio.
+
+Everyone looked at her. She was standing by the door, where Dad had put her. She didn't move.
+
+"He's lying," she said again. "He does his mouth like that when he says it's fine and it's not. He did it when he had the flu in February."
+
+The lady looked at Sho. Sho looked at the ceiling.
+
+"...More than a little," he said.
+
+"Mm-hm." The lady wrote something on a clipboard. "Lie down. Keep pinching. I'll get you a cold pack for your eyes. I'll look at you again in 10 minutes. If you feel sick, or it gets worse, your father takes you to the hospital. All right?"
+
+"Can I go back to the bench?"
+
+"When the bleeding stops."
+
+"It's nearly..."
+
+"When it *stops*."
+
+Takeda was standing by the door with his hands together. Through the wall, far off, there was a whistle, and then the drums started up again, and then a big noise from a lot of people at once.
+
+Sho's head turned toward the wall. He couldn't see anything. It was just a wall, with a poster about heatstroke on it. He turned his head anyway.
+
+"Sensei," said Dad.
+
+Takeda jumped a little. "Yes?"
+
+"I'll stay with him. You should go back. To the team."
+
+Takeda opened his mouth. Then he closed it, and looked at Sho, and then he bowed again, to Dad, not as low this time.
+
+"Thank you. I'll... Kiyose-kun. I'll tell Ukai-kun you're being looked after. Rest. Please. That's an instruction from a teacher." He went out. The door swung shut behind him, slowly.
+
+---
+
+The lady gave Sho a cold pack wrapped in a towel and he lay down on the paper sheet with it over his eyes, still pinching his nose with his other hand. Then the lady went out with her clipboard.
+
+It was just the 3 of them.
+
+Dad sat down on the only chair. He folded the crumpled newspaper back into a square, and it wouldn't go, because it was too crumpled, so he just held it.
+
+Mio went to the bed.
+
+She looked at Sho's knees first. They were fine. Red, and dirty from the floor, but fine. Then his forearms. They had marks on them, big pink blotches where the ball had hit, like they always did. That was normal. She looked at his face under the cold pack, at the dark stuff on his top lip.
+
+"You can look," said Sho. "I know you do it."
+
+"Do what."
+
+"At the door. Every day. Knees, then arms."
+
+Mio kept looking at his arms.
+
+"Can you see me?" she said.
+
+He moved the cold pack off his eyes. He turned his head and looked at her. His eyes landed on her shoulder, and then on her face, a little to the left.
+
+"Yes."
+
+Mio moved a little to the left, so she'd be where he was looking.
+
+He put the cold pack back.
+
+Through the wall the drums were going. Somebody's whistle. A big groan from a lot of people. Sho's head turned, under the cold pack, toward the sound.
+
+"You rubbed your eyes," said Mio. "On the court. I saw you."
+
+"You were watching that closely?"
+
+"I was standing on a chair."
+
+"Right."
+
+"You rubbed them, and then the easy one fell on the floor. And then you kept going."
+
+Sho lay there with the cold pack on.
+
+"Why didn't you come off?"
+
+"Because..." He stopped. The fingers pinching his nose moved a little, and he let go and checked, and pinched again. "Because if I came off, we'd lose the set. I think. Probably."
+
+"So?"
+
+"So I wanted to win it."
+
+"It's only 1 set."
+
+"I wanted it."
+
+Mio didn't understand that. She didn't think she was supposed to. She looked at the poster about heatstroke. It had a cartoon sun on it with a sweaty face.
+
+"The bet," she said.
+
+Sho moved the cold pack up. "Now?"
+
+"I said getting hurt doesn't count. If you get hurt and quit, it doesn't count, because then it's not fair."
+
+"You said it about 4 times."
+
+"I'm changing it."
+
+He waited.
+
+"Getting hurt doesn't count," said Mio. "But if you do it on purpose, it counts."
+
+"Counts as what?"
+
+"Quitting." She'd worked it out on the stairs, or maybe before that, on the walkway, pushing through the boys in black tracksuits. "Because if you hurt yourself on purpose, then you have to stop. And then you're not playing. So it's the same as quitting. So I win."
+
+Sho was quiet for a while.
+
+"That's a weird rule," he said.
+
+"It's my bet."
+
+On the chair Dad made a small sound, from his nose. Mio looked at him, and he was looking at the newspaper.
+
+Sho put the cold pack back over his eyes. Through the wall something happened, a whistle and a lot of people going *ohhh*, the bad kind, and his whole body went toward it on the bed.
+
+"I won't quit," he said.
+
+Mio looked at him. She'd said *on purpose*. He answered the question next to the question, the way he had about the 4 a.m. alarm, and about the umeboshi, when Mom asked. She waited for the real answer, and Sho lay there under the cold pack with his head turned toward the wall.
+
+---
+
+The bleeding stopped after 8 minutes. The lady came back and checked his nose, and then she held up her finger again and moved it toward his face. His eyes followed it better this time. Near the end they still went the wrong way.
+
+"Hm," she said. "Better. Not right." She said he could go to the bench as long as he kept the cold pack on and didn't play, and if anybody tried to make him play she would come up there herself. Then she turned to Dad. "After the match, you take him to an eye doctor. Today. Not tomorrow."
+
+"Mm," said Dad. He folded the crumpled newspaper as small as it would go and put it in his jacket pocket.
+
+"He won't play," Dad said.
+
+"Coach already said," said Sho. "I'm done for today."
+
+He stood up off the bed. The paper sheet tore a little where he'd been lying on it. He put his hand out to the wall on the way to the door and kept it there, sliding along it, like walking to the toilet at night with the lights off.
+
+At the door he stopped and turned round.
+
+"Dad."
+
+"Mm."
+
+"Does Mom know?"
+
+Dad thought about it. "No."
+
+"...Can she not know? Till I'm home?"
+
+Dad looked at him. "You can tell her yourself," he said. "At dinner."
+
+"Okay."
+
+"With your nose like that."
+
+"...Okay."
+
+He went out. A man in a staff shirt was waiting in the hallway to walk him back, and Sho went with him, 1 hand on the wall, toward the door to the court. Mio watched him until he went through it.
+
+---
+
+They didn't go back to the wrong side. Dad walked up the stairs slowly, and at the top he turned right instead of left, and walked along the rail until they were nearly above Sho's bench, and sat down in 2 empty seats in the front row. There weren't any girls with fans here. There was an old man with a towel on his head and a bag of rice crackers, and a lady with a little boy who was asleep.
+
+The scoreboard said 4-7. The other team had 7.
+
+Mio sat down.
+
+She didn't stand on her seat. She sat on it with her knees together and her hands holding the edge of the seat on either side, and looked down.
+
+Sho was at the end of the bench. He had the cold pack across his eyes, held there with 1 hand, and his elbows on his knees. Every time the ball got hit, his head moved toward the sound. Every whistle, he turned.
+
+The boy with the face was serving. The girls on the other side were screaming. He served, and somebody on Sho's team got it, and it went over, and came back.
+
+Then Sho took the cold pack off his eyes.
+
+He did it slowly. He squinted at the court, the small-print squint. Then he reached behind himself into his back pocket and took out the gray notebook, and opened it, and held it up close to his face, almost against his nose, and took out his pen, and started writing.
+
+The lady had said to keep the cold pack on. It was sitting on his knee.
+
+"Dad."
+
+"I see."
+
+"He's writing. He can't see and he's writing." Mio let go of the edge of her seat. "That's on purpose."
+
+Dad looked at her. Then he looked back down at the bench, and didn't say it wasn't.
+
+Mio stood up on her seat. She stood right at the rail, right above him, where he'd be able to find her if he looked up, and she put both hands on the rail and stayed there.
+
+On the court the ball went up, and came down, and everybody shouted. At the end of the bench her brother, who couldn't see, turned a page.
+
+**Continuity (ch 23)**
+
+- First POV chapter (bible: "POV chapters"). Close third on Mio, 10. Covers the set break before set 2 through the first part of set 3. Her names for people: "the boy with the face" (Oikawa, printed on the Seijoh girls' fans), "the man with the hair band" (Ukai), "the angry setter" (Kageyama), "the orange-haired one" (Hinata), "the loud one with no hair" (Tanaka), "the big one with the bun" (Asahi), "the short one in the different shirt" (Nishinoya), "the gray-haired one" (Suga), "the boy with spiky hair" (Iwaizumi), "the tall girl with glasses" (Kiyoko), "the man with the glasses who was always writing" (Takeda).
+- Seats: front row at the rail on the 2nd floor, across from Karasuno's bench. 3 Seijoh girls (ponytail, teal ribbon, one on the end) stood at the rail a few seats along with fans printed with Oikawa's face, holding them up and chanting in 2 halves. Mio sat down when they went up for Oikawa and stood on her seat for Karasuno's points. Invented lines: "No idea. 13." "13's kind of scary." "He looks at people... Before the ball comes. He looks at everybody." "Did Oikawa-san just get *tooled* by 13?"
+- Mom stayed home ("if she came she'd shout at the referee"). Dad picked the far side so Sho wouldn't see them. Sho had seen Mio standing on a chair on day 1 (vs Tokonami) and knew all along. Now everyone knows.
+- What Mio saw that Sho didn't: Sho handing over the notebook (he never shows it to anybody; in May he took it out of her hands); Oikawa's wave; Sho rubbing his eyes with his wrist from 21-20; Ukai's arms coming down after the free ball; Dad's thumb denting the newspaper. In the 6 points after the free ball: Sho blinking hard, putting a hand out toward the net, looking at Kageyama's face "the way you look at a word you can't read", landing hand-first.
+- Mio tied the nosebleed to April, the week of the club flyers (ball to the face, nose packed with tissue, "Did a girl hit you?").
+- At the rail (order matches ch 22): Kageyama put the milk on Sho's knee; buzzer; "SHO!" (voice cracked); Sho couldn't find her; Kiyoko turned him to face her; he squinted "as if she were the small print on the fridge calendar"; Dad: "Mio. Mio, wait."; she ran for the stairs, guessing they'd take him through the corner door. Dad ran after her (she'd never heard him run).
+- Hallway by the sink with 2 taps: Takeda met Dad, bowed low, explained in long sentences, started to say what Sho did out there and stopped ("Sorry. That can wait."). Dad: "We were here anyway." Sho: "...Today too?" Mio: "Yesterday too. Both days." Dad took Kageyama's milk.
+- First aid room: volunteer nurse (older woman, short gray hair, white jacket over a tracksuit, cooler of ice packs). Finger test: eyes went out instead of in. Mio: "He's lying." (his mouth when he says it's fine; the flu in February). Sho: "...More than a little." Dad sent Takeda back ("I'll stay with him."). Takeda: "Rest. Please. That's an instruction from a teacher."
+- Sho knows about the door check ("Knees, then arms."). Mio moved to where his eyes landed. Sho on why he stayed on: "if I came off, we'd lose the set... I wanted it."
+- **The new bet rule:** getting hurt doesn't count; hurting yourself on purpose counts as quitting (you have to stop playing), so Mio wins. No new pudding number. Sho: "I won't quit." He answered the question next to the question and never agreed to the on-purpose rule. Open thread.
+- Bleeding stopped after 8 minutes. 2nd finger test: better, not right. Nurse to Dad: "After the match, you take him to an eye doctor. Today. Not tomorrow." Dad: "Mm." Sho may go to the bench with the cold pack on and must not play. Sho walked along the wall with 1 hand.
+- Sho asked Dad not to tell Mom; Dad: "You can tell her yourself. At dinner. With your nose like that." Owed in ch 26. The eye doctor visit after the match is owed too (ch 24 end or ch 26).
+- Dad and Mio moved to front-row seats near Karasuno's bench (old man with a towel on his head and rice crackers, a lady with a sleeping boy). Set 3 at 4-7 Seijoh when they sat (invented). Sho took the cold pack off against the nurse's rule, held the notebook against his nose and wrote. Mio: "That's on purpose." Dad didn't deny it. Mio stood on her seat at the rail right above him, where he could find her if he looked up.
+- Next: ch 24 "Set 3" (Sho), from 4-7: back on the bench, half blind, writing anyway, with Mio standing above him. Ukai's "talk" is owed. Yamaguchi's pinch serve, deuce, 31-33, the final quick blocked.
+- No status card.
