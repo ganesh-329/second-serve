@@ -1422,3 +1422,472 @@ He pressed the button, and the small man went on into the dark.
 - **Train home at 6; Kuroo sat down at Ochanomizu:** "He stops. Before he's right." "And you made him right about the wrong guy." "He'll find it on the tape." Kenma would rather he fixed it before the Saitama camp: "That was more interesting." Kenma hasn't told Kuroo he pointed Sho at the camcorder.
 - Next: ch 34 "Tape" (Sho): Yachi's camcorder footage; Sho watches himself go still; Hinata and Kageyama's fight, Tanaka breaks it up (theirs); Mio starts her own notebook. Day 2's other games and Mio's call can be told there.
 - No status card.
+
+## Chapter 34: Tape
+
+The bus left Fukurodani at 6:05 on Sunday evening, and for the 1st hour nobody said anything at all.
+
+Most of them would sleep later. For now it was the quiet of a busload of people who'd lost 8 games in 2 days and done 8 lengths of a gym floor on their chests, and who had nothing to say about it that wouldn't make it worse. Tokyo went by the windows in orange lights and train bridges. Tanaka sat with his arms folded and his jaw set, looking at the seat in front of him. Noya had his knees up and his chin on them. Daichi and Suga, in the front row, were talking with their heads close together, the way they did when they were deciding something for everybody.
+
+Hinata was in the 3rd row on the right, by the window, with his forehead against the glass.
+
+Kageyama was in the back row on the left, as far from the 3rd row on the right as the bus allowed.
+
+Sho had the window seat halfway down. Yamaguchi had fallen asleep against his arm at the 1st set of traffic lights, the only one on the bus who could. Sho let him be.
+
+He had his notebook on his knee, open to the page with *Fukurodani Academy Group. Day 1.* at the top, the lines about Akaashi under it, and under those, from this morning, in the pencil he'd carried behind his ear onto the Nekoma bench, 3 more:
+
+*Kenma saw it. Yesterday. Akaashi probably 1st.*
+
+*3 in a row off the same run. I went still on Yamamoto every time. Kuroo, Kai, then the dump.*
+
+*Tried to keep moving. Worse.*
+
+He'd read the 3 lines maybe 20 times since 2:10. He knew what they said. He hadn't seen it.
+
+He closed the notebook and looked out of the window.
+
+---
+
+The bus pulled into Nasukogen service area at 9:20, for the toilets and the vending machines. Ukai went straight to the smoking corner. Takeda went to buy everybody cold barley tea with his own money, which Daichi tried to stop and couldn't.
+
+Sho walked to the end of the car park, where the light from the shop didn't reach and the trucks were parked in a long sleeping row with their engines ticking, and called home.
+
+Mio answered before it rang.
+
+"You're late."
+
+"We're on the bus. It's 9:20."
+
+"Yesterday was 9:30. Today's earlier. You're late for today." A rustle. The flyer, unfolding on her knees, cheap paper gone soft along its folds. "Okay. Go."
+
+He told her. Nekoma, 17 to 25, in the morning. Ubugawa, 22 to 25. Nekoma again after lunch, 20 to 25. Fukurodani at the end, when everybody was tired, 16 to 25.
+
+"You lost all of them again."
+
+"All 4."
+
+"That's 8." Her pencil scratched. "8 times on the floor."
+
+"8."
+
+"Did you laugh?"
+
+He thought about it. "Once. In the morning."
+
+"Only once?"
+
+"I was busy in the afternoon."
+
+"Busy with what?"
+
+He leaned against a lamp post that had no bulb in it and looked at the trucks.
+
+"Eyes," he said, because eyes came after the scores; that was her order. "Once, in the 1st game. A little. It went before the end of the next rally."
+
+"Where?"
+
+"Same place. Behind them."
+
+"Less than yesterday."
+
+"Less than yesterday."
+
+Scratch. "Okay. Busy with what?"
+
+"The setter from Nekoma," he said. "The one from May."
+
+"The one who read you in 4." She remembered everything. "I said tomorrow it'd be 0."
+
+"0," said Sho. "He'd already seen it yesterday. You were right."
+
+"I said." She sounded pleased, and then, half a breath later, suspicious. "Seen what?"
+
+Sho looked down at his own feet on the tarmac, in his trainers, in the dark.
+
+"I stop," he said. "Just before I know where the ball's going. I go still. My feet go still 1st. He watches my feet, and when they stop, he knows I've decided, and he sends it somewhere else."
+
+The line went quiet. A truck engine started somewhere down the row, ran, and stopped again.
+
+"You do that in the yard," said Mio.
+
+"What?"
+
+"After dinner. When you think nobody's looking. You stand like that with your hands out and you don't move, and then you move." She said it the way she said 7 times 8 was 56. "I watch you from the kitchen. Mom said leave him alone."
+
+He hadn't known anybody watched him in the yard. He stood there under the dead lamp post and didn't have anything to say to that.
+
+"Dad folds the paper smaller when he's worried," said Mio. "You do your mouth when you're lying. I told the lady. And your feet." Scratch, scratch. "I'm writing it down."
+
+"On the flyer?"
+
+"The flyer's full. I'm getting a proper one. Like yours. I've got one from school with only 2 pages used, for science, and the science was bad. I'll tear them out." A pause. "What else."
+
+"Our manager filmed me," said Sho. "Yachi-san. All day. I'm going to watch it on the bus."
+
+"The doctor said an hour."
+
+"I haven't used any today."
+
+"And not before bed," said Mio. "She said that too. I was there."
+
+"We don't get home till 12."
+
+Mio thought about it. He could hear her thinking: a small breath through the nose.
+
+"Then stop at 11," she said. "That's not bed. 11's the bus." Scratch. "I'm writing that down too. Goodnight. Tell me about the film."
+
+She hung up. He stood there with the phone in his hand, and then went back toward the light of the shop, where Takeda was standing at the bus door with an armful of cold barley tea, trying to give the cans out without dropping any.
+
+---
+
+Yachi came down the aisle about 20 minutes after the bus pulled out again.
+
+She came the way she did everything on the team so far, as if the floor of the bus might give way under her and she was trying to be light enough that it wouldn't. She had the camcorder in both hands, held against her chest, the big silver one with *KARASUNO H.S. AV ROOM* on a strip of label tape along the side. She stopped beside Sho's seat, looked at Yamaguchi asleep on his arm, then at Sho, then at the camcorder.
+
+"Kiyose-kun," she whispered. "Um. I'm sorry."
+
+"What for?"
+
+"I filmed you." It came out fast, as if she'd practiced it. "Takeda-sensei gave me the camera so I could film the games for Coach, and everybody moves so fast, and every time I tried to film the ball it was gone. So I filmed you. This morning, and after lunch too. A lot." She took a breath. "I'm sorry."
+
+"Why me?"
+
+Yachi's face went red, then white, then red again.
+
+"You were the easiest," she said, very small. "To keep in the picture. Everybody else runs everywhere. Hinata was out of the picture before I even pointed at him. But you stand still a lot. Just before things happen. So I could always find you again."
+
+Sho laughed. It came out of him low, so as not to wake Yamaguchi, and kept going until his shoulders shook with it, and Yachi stared at him with her mouth open.
+
+"Sorry," he said. "That's a very good reason. It's the best reason anybody's given me today." He held out his hands. "May I?"
+
+She handed over the camcorder as if it might be sick on him. Then she showed him, with her finger hovering above the buttons, how to flip out the little screen, and play, and pause, and which was rewind, and that if you paused it and then pressed the fast-forward button it went 1 picture at a time.
+
+"Frame advance," said Sho.
+
+"Is that what it's called?"
+
+"That's what it's called."
+
+"How do you know that?"
+
+He looked at the little rubber buttons, the play and the rewind worn shiny by other people's thumbs.
+
+"I used to have one," he said.
+
+She went back to her seat at the front, beside Kiyoko, who was asleep with her glasses folded in her lap. Sho moved Yamaguchi's head off his arm and onto the headrest, and Yamaguchi said something about pizza and didn't wake up.
+
+He flipped out the screen. It was about the size of a business card.
+
+He got his phone out and set an alarm for 11:00, because Mio had said 11 and written it down, and put the phone face down on his knee, and pressed play.
+
+---
+
+The 1st thing on the tape was Fukurodani's ceiling, very bright, for 4 seconds, while Yachi worked out which way up to hold it. Then the floor. Then a corner of Karasuno's bench, and Takeda's knee, and a water bottle. Then the court.
+
+Then him.
+
+He was on the bench, at the end, with the towel on his knees and the pencil behind his ear. The picture rocked a little with Yachi's breathing. He watched himself watch the game: a tall boy sitting very straight, younger than he felt, with Satoshi's old habit of keeping a pencil behind the ear.
+
+The last tape of himself he'd ever watched was a university semifinal, the spring he was 20, and he'd turned it off halfway through. He'd watched other people every day after that, for 9 years. Something over 10,000 hours of them. He'd known what Kenma did with his hands at the top of a set before he'd ever met Kenma, because he'd known what 50 setters like Kenma did with theirs.
+
+He pressed fast-forward. 12-8. The paddle. The ace walking off. Him walking on.
+
+At 13-9 Yamamoto went up on the left, and on the screen, in the middle of the back row, the figure in black with *13* on its back stopped.
+
+Sho paused it, and went forward 1 picture at a time.
+
+There. Yamamoto's arm going back. The figure that was him had been doing what receivers do, little shifts, knees, weight to 1 foot and back. Then, between 1 picture and the next, his heels came down. Both of them, flat, together, as if somebody had cut the strings. Then his knees stopped, then his hands. His head had been still the whole time. His head was always still. 3 pictures of nothing at all, and then he went.
+
+3 frames. About a 10th of a second.
+
+He went back and watched it again, and again. Heels, knees, hands, 3 frames, go. From where Yachi had been sitting it looked like a dog that has heard its name.
+
+He let the tape run and found the next one, and the next, and counted them in the margin, a line for each, the way he used to count a setter's choices for a coach who wanted it on 1 page by 8 a.m.
+
+7 stops while he was on court in the morning, before he'd started trying to hide them.
+
+He went back through the 7 and marked where the ball had gone. 4 times he'd gone where it went. 1 was the dig on Yamamoto's cross, the one with the warm sting afterward. The other 3 he hadn't even noticed at the time; they'd just been him, playing, a step early.
+
+3 times he'd gone where it didn't go. Kuroo's quick, Kai's pipe, Kenma's dump. All after the timeout. All off the same loud run.
+
+He slowed the 1st of the 3 right down.
+
+Yamamoto coming in, enormous, arm back. Kenma under the ball with his shoulders square to Yamamoto. Across the net, Sho watching Kenma's hands, then a flick of his eyes to Yamamoto's arm, then his heels coming down. And Kenma, at the top, with the ball almost in his fingers, holding there 1 frame longer than he needed. Kenma's chin was low, tilted down under the net, toward Karasuno's back row.
+
+Waiting for Sho's feet.
+
+He watched it 4 times. Then he wrote:
+
+*Heels down, both at once. Then knees, then hands. Head never moves. 3 frames, then I go.*
+
+*Kenma waits at the top for my heels.*
+
+Then he found the rocking. On the tiny screen the figure with 13 on its back bounced heel to toe, heel to toe, knees going, hands going, all the way through the rally, like a boy outside the headmaster's office who needed the toilet. When Yamamoto's plain cross came, the figure was going back onto its heels at the wrong moment, and reached, and missed.
+
+The 3rd time through he had to put his hand over his mouth.
+
+Then he skipped to the afternoon, the careful game. There was nothing to circle in it. The figure stood with quiet feet and watched the setter and dug what came at it and missed what didn't, and was never early, and never wrong, and never anything.
+
+He knew that figure. He'd fast-forwarded past it 10,000 times. A tidy receiver on a team that lost, whom no coach would ever ask about on a Tuesday morning.
+
+He paused it and found he was leaning closer.
+
+The bus hummed. Outside, the fields had gone completely dark, with a town far off now and then in orange. Most of the bus was asleep at last. Somebody 2 rows back was breathing slow and heavy, Asahi probably. At the front, the only light was the small green clock above the driver's head.
+
+11:04.
+
+Sho looked at his own hands. The camcorder was held up close to his face. His thumb was on the rewind button. His shoulders were up round his ears, his back had come away from the seat, his neck was bent to the little screen, and his eyes were dry from not blinking.
+
+He turned his phone over on his knee. The alarm had gone at 11:00. It said so on the screen: *Alarm dismissed.* He'd turned it off himself, with his thumb, and gone straight back to the tape, and he couldn't remember doing it.
+
+A desk. A dark room. A thumb on a button and a clock in the corner of the monitor saying 3 o'clock, and then saying 3:14.
+
+He took his thumb off the button.
+
+He closed the screen and put the camcorder down on his knee and sat back until he could feel the seat along his whole back. He looked out of the window at the far orange of a town and then at the glass in front of his nose, and then at the town again. Near, far. Near, far. The way Dad held the string at the other end.
+
+Then he opened the notebook and wrote, slowly, sitting back:
+
+*7 stops. 4 right. 3 wrong. The 3 wrong were all Kenma, all after he'd seen it.*
+
+*The stop is where the early comes from. Rocking kills it. Being careful kills it too.*
+
+He looked at that until the letters stopped meaning anything. Then he wrote the line he'd been going round and round since the fountain:
+
+*So keep it. Then what?*
+
+Under it, smaller:
+
+*11:04. Mio said 11.*
+
+He closed the notebook on the pencil and put the camcorder in its case and didn't open either of them again. Across the aisle and down the bus, Yachi's head had fallen sideways onto Kiyoko's shoulder.
+
+---
+
+The bus came up the hill to Karasuno's gate at 11:52.
+
+Parents' cars were parked along the school wall with their engines running, headlights laying long yellow paths down the road. Dad was standing under the 3rd lamp post, on foot, in his jacket, with his hands in his pockets, because the house was 10 minutes away and he'd never once driven anywhere he could walk.
+
+"Mm," said Dad, when Sho came across the road.
+
+"Hi, Dad."
+
+Dad took the bag off his shoulder without asking and put it on his own. They walked. The street was empty and smelled of somebody's mosquito coil. At the corner by the shrine Dad said, "Mio waited up."
+
+"It's midnight."
+
+"Till 11:20."
+
+The house was dark except for the living room. Mom was at the kitchen table in her cardigan with a cup of tea gone cold. She got up when they came in and put her hand on Sho's cheek, and looked at his face, and at his eyes, and then went to the stove to heat the miso soup she'd kept back.
+
+Mio was on the sofa, asleep on her side under the brown blanket, 1 arm hanging off the edge and her mouth a little open. On the floor below her hand, where it had slid when she fell asleep, was a notebook.
+
+Sho picked it up.
+
+It was the cheap kind with a pale blue cover that every primary school child in Miyagi had a stack of. The 1st 2 pages had been torn out roughly, and the stubs stuck out of the spine like teeth. On the front, in marker pen, in big careful letters, Mio had written:
+
+*SHO*
+
+He opened it.
+
+The 1st page had a heading underlined twice: *THINGS HE DOES.* Under it was a numbered list in pencil, in Mio's handwriting, which leaned forward as if it was in a hurry.
+
+*1. Mouth (when lying). Since flu in February. Told the nurse lady.*
+
+*2. Rubs his eyes when they hurt. Right one more. Says it's nothing.*
+
+*3. Puts his hand on his knee when he is thinking about something sad. (Which knee? LEFT.)*
+
+*4. Feet stop before he knows where the ball is going. (The Tokyo setter saw. I knew already. The yard.)*
+
+Under that, a line, and a 2nd heading: *SCORE.*
+
+*Floor: 8.*
+
+*Eyes: Sat 1, Sun 1. Sat till next game. Sun 1 rally. LESS.*
+
+*Laughed: Sat 1, Sun 1.*
+
+*Film: stop at 11.*
+
+At the bottom of the page, after a gap, in smaller writing, there was 1 more line:
+
+*5. Says "nothing" when it's something.*
+
+Sho stood in the living room in his socks with the notebook in his hands.
+
+Number 3. He'd caught himself at it on Saturday, at Fukurodani, looking at a 5 on somebody else's back, and taken his hand away, and thought that was the end of it.
+
+For 3 months, at 20, Satoshi had trained on a knee that hurt every single day. He'd put his hand on it on the bench, and on the bus, and in the changing room, over and over, and nobody on that team had ever written it down. He'd made sure nobody would look.
+
+Behind him Mom set a bowl on the table. He closed the notebook and put it back on the floor exactly where it had fallen, by Mio's hand, cover up, *SHO* on top.
+
+Then he got 1 arm under Mio's knees and 1 under her back and picked her up, blanket and all. She was heavier than the last time. She didn't wake. She made a small cross noise into his shoulder, the noise she made when Mom turned her light on in the mornings, and her hand closed on a fistful of his T-shirt and stayed there.
+
+He carried her up the stairs 1 at a time, slowly, and put her down on her bed and pulled the covers up over the brown blanket, and unhooked her hand from his shirt, 1 finger at a time.
+
+At the door he stopped.
+
+"Number 5's right," he said, to the dark room.
+
+Then he went down and ate his soup. Mom sat across from him with her cold tea and watched him eat, and when he'd finished she took the bowl and said, "Bath," and he went.
+
+---
+
+On Monday the gym smelled the way it always did, floor wax and old wood and the rubber of the balls, and he was surprised how much he'd missed it in 2 days.
+
+Practice was flat. Everybody was tired somewhere past their legs. Ukai didn't push. He ran them through receive and serve and then an hour of 6-on-6, and stood at the side with his arms folded and the cigarette unlit behind his ear, and said less than usual.
+
+He'd put Hinata and Kageyama on opposite teams.
+
+Sho was on Hinata's. Suga was setting for them, and on the 4th rally Suga gave Hinata a quick, fast and flat, the way Kageyama's went, as close as Suga could make it. Hinata went up with his eyes wide open. Sho was in the back row and saw all of it: Hinata at the top, eyes open, arm back, waiting for the ball to arrive so he could see it arrive, and the ball arriving a fraction early, and Hinata's hand meeting it late. It went into the net.
+
+Across the net, Kageyama's face stayed exactly as it was.
+
+"Again," said Hinata, to Suga.
+
+Suga set it again. Hinata went up with his eyes open again. The ball went into the block.
+
+"Again."
+
+Ukai let him do it 4 more times. Then he blew the whistle and moved everybody round, and didn't say why.
+
+Sho had given Yachi the camcorder back before practice, at the club room door, with a proper bow. She'd dropped her clipboard. He'd picked it up, and thanked her, and told her she'd filmed exactly the right thing.
+
+"I filmed you standing still," she'd said, as if he might not have noticed.
+
+"That was the right thing."
+
+"Oh." Then, carefully, testing a step: "Should I... film it again? This week? So you can see if it changes?"
+
+He'd been about to ask.
+
+"Yes," he'd said. "Please."
+
+Yachi had gone pink to the ears and run into the gym, and filmed the whole 6-on-6, standing on the bench in the corner with her elbows tucked in.
+
+---
+
+At 7:30, after practice, Sho sat on the concrete step by the side door with the camcorder and the notebook and an alarm set for 8:15. The light over the side door had been broken since June. Yachi held the torch from Takeda's car over the page for him, a little too high, the way she held everything, while he counted stops in the margin.
+
+Inside, the gym lights went off bank by bank. Somebody was still in there. The thud of a ball against a wall. Then the side door opened, and Kageyama came out with his bag on his shoulder, and Hinata came out after him, fast.
+
+"Kageyama."
+
+Kageyama kept walking.
+
+"Kageyama! Just once more. With my eyes open. I'll get it this time."
+
+"You won't," said Kageyama, still walking. "The quick works because you don't look. That's why it works."
+
+"Then I'll make it work while I look!"
+
+"It's impossible."
+
+"You don't know that!"
+
+"I know it." Kageyama stopped, at last, under the dead lamp by the bike racks, and turned round. "The set gets there before you can see it. That's what it is. If you wait to see it, it's gone. I'm not changing it."
+
+"Then I'll never be able to fight by myself!" Hinata's voice cracked and went up high. "Every time I'm in the air I'm just waiting for you! I can't see the block! I can't see anything! I just hit where you put it! I want to see, Kageyama, I want to be able to see what's in front of me..."
+
+"It doesn't need you to see!"
+
+Beside Sho, Yachi had stopped breathing. The torch had gone still, pointing at the step.
+
+Sho closed the camcorder. His hand had closed on the strap so hard his knuckles had gone white. He made it open.
+
+Hinata grabbed the front of Kageyama's shirt.
+
+Kageyama grabbed Hinata's arm. They stood there holding on, glaring, and Sho thought it might stop there. Then Kageyama shoved, and Hinata shoved back, and they went sideways together into the bike rack with a crash that shook every bike in it, and Hinata swung, and Kageyama caught it on the shoulder, and they were on the ground.
+
+Sho was on his feet. He'd put the camcorder into Yachi's hands without deciding to and gone 2 steps off the concrete.
+
+"OI!"
+
+Tanaka came out of the dark from the club room at a flat run, in his school trousers and his practice shirt with his tie in his fist, and yelled once, across the whole car park. Then he was on them. He got 1 hand in the back of Hinata's collar and the other in the back of Kageyama's, and stood up with both of them, and pulled them apart like 2 cats, and held them at arm's length while they kicked.
+
+"Enough," said Tanaka, and this time it was quiet.
+
+"He won't even TRY..."
+
+"I said enough." He gave Hinata's collar a small shake. "Not with your hands. You're no good to anybody with your hands broken. Either of you." He looked at Kageyama, who'd stopped struggling and was breathing hard, a red mark coming up on his cheekbone. "Kageyama. Go home."
+
+Kageyama looked at him. At Hinata. At the ground.
+
+Tanaka let go of his collar. Kageyama picked his bag up off the tarmac and walked out of the gate, very straight, the way he walked off a court after a loss.
+
+Hinata stood there with Tanaka's hand still in the back of his shirt, shaking all over, the way your arms shake after you've carried something too heavy for too long.
+
+Tanaka let go. Then he sat down on the kerb by the bike racks, heavily, and patted the concrete next to him.
+
+"Sit," he said.
+
+Hinata sat.
+
+Tanaka left it at that. He sat next to Hinata on the kerb in the dark with his tie in his hand, looking at the gate.
+
+Sho had stopped 2 steps out from the side door. He turned round and went back to the step and sat down next to Yachi, who was holding the camcorder against her chest so hard he thought the case might crack.
+
+"Are they going to be okay?" Yachi whispered.
+
+Sho looked at the 2 shapes on the kerb. Hinata had put his head down on his knees. Tanaka had put 1 hand on the back of Hinata's neck and left it there.
+
+"They'll both be at practice tomorrow," said Sho. "Still angry."
+
+"Is that good?"
+
+"It's better than 1 of them not coming."
+
+Yachi thought about that. Then she held the camcorder out to him.
+
+"Do you want to finish counting?"
+
+He took it, and opened the screen, and Monday's 6-on-6 came back up, frozen where he'd stopped it: a tiny figure in the back row with 13 on its back, heels coming down.
+
+He pressed play, and counted.
+
+---
+
+Ukai came out of the club room at 8:10 with the keys and saw the kerb, and stopped.
+
+He walked over there 1st. He stood above Tanaka and Hinata with his hands in his tracksuit pockets and said something too low for Sho to hear. Tanaka nodded. Ukai said, "Tanaka. Walk him home," at a normal volume, and Tanaka got up and picked up both bags, his own and Hinata's, and Hinata got up too, and they went out of the gate together, Hinata with his head down, Tanaka talking about nothing, loudly, about ramen.
+
+Then Ukai came to the step.
+
+"Kiyose." He looked at the camcorder, at the notebook, at the pencil marks down the margin. "What's that?"
+
+"Stops, Coach."
+
+"Stops."
+
+"Before I know where it's going, I go still. Their setter in Tokyo saw it and waited for it." Sho turned the notebook so Ukai could read it in the torchlight. "4 out of 7 right on Sunday. The 3 wrong were all him. Today, 13 out of 14. But nobody today was looking for it."
+
+Ukai read the margin all the way down, Sunday and Monday both. He stopped at the bottom of Sunday's page, where it said *So keep it. Then what?*, and stayed on it.
+
+Then he took the cigarette from behind his ear and turned it over in his fingers, the way he did when he was deciding whether a thing was worth the trouble.
+
+"Thursday," he said. "After practice. Bring that page."
+
+"Where are we going?"
+
+"My grandfather's." He put the cigarette back behind his ear and tapped the bottom line of the page once with 1 finger, *Then what?*, and went to lock the gym.
+
+Yachi switched the torch off. In the dark, the page was just a pale shape on Sho's knee, and the last line on it was too small to read, and he didn't need to read it.
+
+**Continuity (ch 34)**
+
+- Sho POV, Sunday evening (trip 1 ends) to Monday night. No eye. No status card.
+- **Bus home:** left Fukurodani 6:05. Hinata 3rd row right by the window; Kageyama back row left. Yamaguchi asleep on Sho's arm from the 1st traffic lights. Notebook lines from Sunday: *Kenma saw it. Yesterday. Akaashi probably 1st. / 3 in a row off the same run. I went still on Yamamoto every time. Kuroo, Kai, then the dump. / Tried to keep moving. Worse.*
+- **Day 2 results (invented scores; canon: Karasuno lose the weekend):** Nekoma 17-25, Ubugawa 22-25, Nekoma 20-25, Fukurodani 16-25. Weekend: 8 games, 8 losses, 8 flying-fall lengths.
+- **Nasukogen service area, 9:20, Mio call** (the flyer): "8 times on the floor." Laughed once. **Eyes: once, 1st game, gone before the end of the next rally ("Less than yesterday").** **Kenma: "0... You were right." "I said."** (pays her ch 32 line.) "I stop... My feet go still 1st." **Mio: "You do that in the yard. After dinner... I watch you from the kitchen. Mom said leave him alone."** (ch 23: the yard stance.) Dad folds the paper smaller when worried; Sho does his mouth when lying ("I told the lady"). Getting "a proper one. Like yours" (school notebook, 2 science pages torn out). **Doctor's rule (ch 28: an hour a day, not before bed): Mio: "Then stop at 11. That's not bed. 11's the bus."** Takeda bought cold barley tea for everybody.
+- **Yachi and the camcorder (invented):** big silver *KARASUNO H.S. AV ROOM* camcorder, from Takeda, to film games for Ukai; she filmed Sho "This morning, and after lunch too" "because you stand still a lot. Just before things happen. So I could always find you again." Sho laughed. "Frame advance." "I used to have one."
+- **The tape (alarm set for 11:00):** last tape of himself Satoshi watched: a university semifinal the spring he was 20, turned off halfway. Over 10,000 hours of other people. **The stop: heels down both at once, then knees, then hands; head never moves; 3 frames (~0.1 s at 30 fps), then he goes** ("like a dog that has heard its name"). **Sunday morning: 7 stops before he started hiding them: 4 right (the Yamamoto dig + 3 unnoticed), 3 wrong (Kuroo quick, Kai pipe, dump; all after the timeout, all off Yamamoto's run).** Kenma's chin low toward the back row, holding 1 frame at the top for Sho's heels. The rocking: "a boy outside the headmaster's office who needed the toilet." The careful afternoon game: "never early, and never wrong, and never anything."
+- **11:04:** hunched, thumb on rewind; **the 11:00 alarm said *Alarm dismissed*; he'd turned it off himself without remembering** (Satoshi's 3:14 a.m. desk). Took his thumb off, sat back, near-far with the far lights (Dad's string). Notebook: *Heels down, both at once. Then knees, then hands. Head never moves. 3 frames, then I go. / Kenma waits at the top for my heels. / 7 stops. 4 right. 3 wrong. The 3 wrong were all Kenma, all after he'd seen it. / The stop is where the early comes from. Rocking kills it. Being careful kills it too. / So keep it. Then what? / 11:04. Mio said 11.*
+- **Home:** bus at the gate 11:52; **Dad on foot** (never drives where he can walk), carried the bag; "Mio waited up." "Till 11:20." Mom (cardigan, cold tea) hand on his cheek, looked at his eyes, heated miso soup; after: "Bath."
+- **Mio's notebook** (pale blue, 2 pages torn out, *SHO* in marker): *THINGS HE DOES. 1. Mouth (when lying). Since flu in February. Told the nurse lady. 2. Rubs his eyes when they hurt. Right one more. Says it's nothing. 3. Puts his hand on his knee when he is thinking about something sad. (Which knee? LEFT.) 4. Feet stop before he knows where the ball is going. (The Tokyo setter saw. I knew already. The yard.)* *SCORE. Floor: 8. Eyes: Sat 1, Sun 1. Sat till next game. Sun 1 rally. LESS. Laughed: Sat 1, Sun 1. Film: stop at 11.* *5. Says "nothing" when it's something.* Sho had caught his hand on his knee at Fukurodani (ch 32); Satoshi's 3 months of knee pain at 20 ("He'd made sure nobody would look"). Put it back where it fell; carried her to bed (her fist in his T-shirt): "Number 5's right."
+- **Monday practice:** flat. Ukai put Hinata and Kageyama on opposite teams. Suga set Hinata a flat fast quick; **Hinata's eyes-open swings: into the net, into the block, 6 tries; Kageyama's face didn't move**; Ukai moved everybody round. Sho returned the camcorder with a bow; Yachi: "Should I... film it again? This week?" "Yes. Please." She filmed the 6-on-6 standing on the bench.
+- **The fight (canon ch 82, Hinata's and Kageyama's; wording invented), 7:30 to 8:00 outside, side-door light broken since June:** Yachi holding Takeda's torch; Sho had an alarm for 8:15. Hinata: "Just once more. With my eyes open." Kageyama: "The quick works because you don't look... It's impossible... I'm not changing it." Hinata: "Then I'll never be able to fight by myself!... I want to see." "It doesn't need you to see!" Physical (shirt, shove, bike rack, ground). Sho's hand white on the strap; 2 steps off the step. **Tanaka: "OI!" at a run, then both collars: "Enough... Not with your hands... Kageyama. Go home."** Kageyama left (red mark on his cheekbone). Tanaka sat on the kerb with Hinata, hand on his neck. Sho went back to the step. Yachi: "Are they going to be okay?" "They'll both be at practice tomorrow. Still angry." "Is that good?" "It's better than 1 of them not coming."
+- **Monday tape: 13 of 14 stops right** (nobody looking for it).
+- **Ukai 8:10:** went to the kerb 1st ("Tanaka. Walk him home."; Tanaka carried both bags, talked loudly about ramen). Read Sho's margin; stopped on *So keep it. Then what?* **"Thursday. After practice. Bring that page." "Where are we going?" "My grandfather's."** Tapped *Then what?*
+- Next: ch 35 "Ikkei" (Sho): Thursday at Ukai Ikkei's (Hinata's own tempo lessons with Ikkei are canon and separate; Keishin takes Hinata). Ikkei on looking at what can't happen; the stop. Kageyama back from Oikawa: "He asked if you still squint." Hinata and Kageyama not speaking (canon: about 3 weeks).
