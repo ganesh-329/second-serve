@@ -3837,3 +3837,266 @@ Meta Vision: Scanning
 - **Hook:** Hinata (asked Bokuto himself at dinner; canon ch 91: Hinata goes to Bokuto; Bokuto's lessons to Hinata are Hinata's): "I asked him to teach me how to fight in the air, and he said YES!... 3 on 3!" Bokuto: "HEY HEY HEY! KARASUNO'S 10! YOU CAME!" Sho's fingertips ached; he went to watch.
 - Ace path: Nekomata's "stupid or an ace"; Akaashi's "You know how to hit"; 2nd whole set on the wing (3/9); Sho to Mio: "It's where I'm supposed to be." Ukai hasn't told him yet (weight room at home).
 - Next: ch 40 "Owls and cats" (Sho): night 7, the 3rd gym; the canon 3v3 (canon lineups; Bokuto's feint and "use the block" lessons to Hinata are Hinata's); Sho watches; then (invented) a 2nd 3v3 where he plays on the map only ("3 people. I can hold 3.") and it's fun; late on things and laughs. Hinata: "What's yours?"
+
+## Chapter 40: Owls and cats
+
+There were 6 of them on the court when Sho came in at 9:40, and the court had been cut in half.
+
+Somebody had dragged the net standards in, so the net ran across only half the old gym's floor, and the other half was empty boards with the moths' shadows going round on them. On 1 side of the half-net stood Bokuto, Akaashi and Hinata. On the other, Kuroo, Lev and Tsukishima.
+
+Tsukishima stood at the net beside Kuroo with his glasses pushed up and his hands loose at his sides, as if he'd been coming here every night of his life.
+
+"13!" Bokuto saw Sho in the doorway and threw both arms in the air. "You came back! You're the audience! Every great match needs an audience! Sit there!" He pointed at the stage. Then he slapped his own chest, and Akaashi's shoulder, and the top of Hinata's head. "OWLS," he announced, "versus CATS!"
+
+"Why are we cats?" said Lev.
+
+"Because you're Nekoma," said Kuroo. "Keep up."
+
+"Then why is Tsukishima a cat? He's Karasuno."
+
+"Tonight he's a cat." Kuroo looked sideways. "Aren't you, Tsukki?"
+
+"Don't call me that," said Tsukishima, to the net.
+
+Sho went and sat on the edge of the stage with his legs hanging over, beside the dusty red curtain with the dent in it. He'd left the notebook in the classroom, in his bag, under his towel. His fingertips ached from Akaashi's sets.
+
+---
+
+He'd played a game like this once, 3 against 3, on a Saturday in April in the Second Gymnasium at Karasuno. Hinata and Kageyama and Tanaka on 1 side. On the other, Tsukishima, Yamaguchi, and him. It was the day the eye had opened for the 1st time, a blink early on Hinata's 1st real quick, and he'd dug a ball nobody should have dug and stood there afterward on the floor without the faintest idea what had happened.
+
+Tonight Tsukishima was on the other side of the net from Hinata again, and Sho was on the stage.
+
+Akaashi set Hinata.
+
+It was a high set, the kind that hangs at the top and waits for you, and Hinata ran in under it from the left and went up, and up, his eyes wide open. Sho could see them from the stage. He could see Hinata looking: at the net, at the 3 pairs of hands coming up across it, Kuroo's long careful ones, Lev's enormous wild ones, Tsukishima's, quieter than both. He could see Hinata seeing them. It was the thing Hinata had shouted at Kageyama in the dark outside the gym 2 weeks ago, *I want to see what's in front of me*, and here it was, in front of him, 3 people high, and he could see all of it.
+
+He hit it as hard as he could, into the middle of them.
+
+It came back off 6 hands with a sound like a dropped book and hit the floor at his feet. Hinata landed on top of it, and rolled, and lay on his back on the boards with his arms out.
+
+Akaashi's face didn't change. He walked over and picked up the ball and turned it in his hands and looked down at Hinata on the floor.
+
+"Again?" said Akaashi.
+
+"AGAIN!" said Hinata, to the ceiling, and was up.
+
+Akaashi set him again. The wall went up. Hinata hit into it. The ball came down at his feet. Lev shouted with delight and Kuroo said "Nice, Lev," and Tsukishima came down off the block with his face shut, and Hinata picked himself up and walked back to his spot, breathing hard, with his jaw set.
+
+The 3rd time, before Akaashi could toss, Bokuto came over and crouched beside Hinata and said something, low, with his hands moving. Sho was too far away to hear it. 1 of Bokuto's hands made a fist, and then opened, and pushed forward, slowly, soft.
+
+Sho looked away, at the moths going round the nearest light, and kept his eyes there until he heard Akaashi's hands on the ball.
+
+---
+
+Between rallies, on the other side of the net, Kuroo was talking to Tsukishima.
+
+Sho could see that much. Kuroo leaning in with his head down; Tsukishima beside him with his arms folded, looking straight ahead at the tape, apparently not listening at all. Kuroo held up a flat hand and moved it, and said something, and Tsukishima's face stayed exactly where it was.
+
+On the next rally, when Bokuto came in from the left, Tsukishima waited.
+
+He waited longer than he had all night. Then he went up, late and soft, with his hands angled back, and Bokuto's ball came off them and went up, high and slow, into the Cats' own court, and Kuroo, behind him, dug it, laughing.
+
+"HEY!" said Bokuto, delighted and outraged at once. "HEY! He WAITED!"
+
+Tsukishima came down off the block and pushed his glasses up.
+
+Sho realized he'd been holding his breath, and let it go.
+
+He sat on the edge of the stage with his hands on his knees and watched. A rally. Another. Hinata stuffed again, and up again. Bokuto shouting at Lev to jump higher, which made Lev jump later. Kuroo laughing on his back on the floor after a dig. The smell of old wood and cut grass coming in through the windows that didn't shut.
+
+In the room with the monitors a good play had been a clip, something to cut and label and send to a coach by 8 in the morning. He watched Tsukishima wait at the net again, a beat and then another beat, and go up late, and the ball come off his hands to Kuroo, and he didn't reach for a pen he didn't have.
+
+---
+
+At about 9:55 Hinata came and threw himself down on the stage beside Sho, flat on his back, soaked, chest going like a bellows.
+
+"Water," said Hinata, to the ceiling.
+
+Sho passed him his bottle. Hinata sat up and drank half of it in 1 go and wiped his mouth on his arm.
+
+"3 blockers," he said. "Did you see? 3! And I was looking at them the whole time. With my eyes open." He was grinning so wide it looked like it hurt. "They blocked me every time. But I *saw* them do it."
+
+He turned his head and looked at Sho, still breathing hard, his hair stuck to his forehead in points.
+
+"Bokuto-san says everybody needs a weapon. A thing that's yours. His is everything, basically. He's like that." He held his own hand up in front of his face and looked at it, and then closed it, slowly, and opened it again, the way Bokuto's had. "I'm getting mine tonight."
+
+He let the hand drop onto his chest.
+
+"What's yours?"
+
+Sho looked at the court.
+
+Akaashi was picking up balls. Bokuto was trying to teach Lev how to jump, standing beside him and jumping too, very high, over and over, which was making Lev worse. Kuroo was sitting on the floor with his back against the net post, laughing at them. Tsukishima was at the net alone, looking at his own hands.
+
+What was his.
+
+He couldn't say the eye. He'd never said it to anybody. Even Mio, who knew it was there and kept its score, only called it *eyes*.
+
+"I'm good at receive," he started, and stopped, because it was true and it wasn't the answer, and Hinata was looking at him the way he looked at a ball he was about to hit.
+
+Sho turned the bottle over in his hands. A moth landed on the back of his wrist and sat there, opening and closing its wings, and flew off again.
+
+"The bad ball," he said.
+
+Hinata blinked. "Huh?"
+
+"When it's all gone wrong. No setter. Somebody has to hit it."
+
+Hinata stared at him.
+
+He stared for so long that the moths went round the light twice. Then his eyes went wide, slowly, all the way, the way they went wide at the top of a jump.
+
+"That's the ace's ball," said Hinata.
+
+"Yes."
+
+"I want that ball too!" Hinata sat bolt upright on the stage. "I'm going to be the ace! I'm going to be... we can't *both* have it!"
+
+Sho didn't answer that.
+
+"HINATA!" Bokuto roared from the court. "OWLS! BACK! NOW!"
+
+Hinata bounced off the stage as if it had thrown him and ran. Halfway across the court he turned round and pointed at Sho, running backward, and opened his mouth to say something, and then didn't, and just pointed, fiercely, and turned back.
+
+---
+
+It happened 4 rallies later, with Sho on the stage.
+
+Akaashi set Hinata high on the left, a set that waited. Hinata came in and went up with his eyes open, and across the net Tsukishima waited, the way Kuroo had told him, a beat longer, and went up late with his hands angled, ready to soften the hard ball and send it back up to Kuroo.
+
+Hinata's whole arm went back, full, hard.
+
+At the top, his hand opened.
+
+It came forward slowly and soft and pushed the ball up over Tsukishima's late fingertips, and the ball dropped just behind them, gently, onto the 1 piece of the Cats' court where nobody was standing, between Tsukishima's back and Kuroo's front. Kuroo dived. He was a long way too late.
+
+The ball rolled to a stop by the net post.
+
+Hinata landed and stared at it.
+
+"I..." He looked at his own hand. He looked at Bokuto. "I DID IT! BOKUTO-SAN! I DID IT!"
+
+"YOU DID IT!" Bokuto picked Hinata up round the middle and swung him in a circle. "THAT'S IT! THAT'S THE ONE!"
+
+Tsukishima stood at the net and looked at the ball by the post, and then at Hinata, being swung round, and pushed his glasses up, and his mouth did something very small at 1 corner, and then stopped.
+
+On the stage, Sho sat with his hands on his knees and found he was grinning so hard his face ached.
+
+---
+
+10 minutes later Tsukishima came down from a block and said, to nobody in particular, "I'm done for tonight," and walked off the court to his bag.
+
+"NO!" said Bokuto. "We're not done! It's 2 games to 2! We need a decider!" He looked round the gym wildly, at the empty half of the floor, at the door, at the stage.
+
+His eyes landed on Sho.
+
+"13! You're a cat now!"
+
+Sho looked at Tsukishima, who was putting on his tracksuit top beside the stage.
+
+"Go on," said Tsukishima, zipping it up. "He won't shut up otherwise."
+
+Sho got down off the stage and walked onto the court and stood at the net in Tsukishima's place, on Tsukishima's side, across from Hinata.
+
+---
+
+3 against 3. He looked across the net at them once, before the 1st serve, and found that once was enough.
+
+He'd dug Bokuto for 5 nights. He'd watched Akaashi set all week and paid him in Bokuto that evening. He'd known Hinata since the 1st week of school. 3 people. He could hold 3.
+
+At Seijoh, in June, he'd tried to hold all 12, both sides, every hand, every foot, and his eyes had stopped working together. In Tokyo he'd held 6 in 1 look, just. Here, there were 3, and he knew all 3, and the whole of the far court sat in his head without his reaching for it, the way your own room sits in your head in the dark.
+
+He left the eye alone.
+
+Akaashi served. Kuroo passed, Lev set it, high and drifting and much too far off the net, and Kuroo went up for it on the right and hit it into Bokuto's hands, and Bokuto roared. 0-1.
+
+Lev served into the net. 0-2.
+
+Akaashi served at Sho, a float that dipped at the end, and Sho saw the toss and the shoulder and went while he was still looking, feet 1st, and stopped where it was going to land, and looked at it again, all the way onto his arms. It went up, soft, to Lev. Lev set it to Sho at the left.
+
+It was too tight to the net. Bokuto was there. Sho went up into it with his whole arm, and at the last instant took some of the arm off it, and rolled it over Bokuto's hands toward the back corner, deep, where nobody was.
+
+Akaashi was there. Of course Akaashi was there; he'd seen Sho take the arm off, from all the way back. He dug it up, and Hinata ran under it and pushed it back over, and Kuroo dug that, and the rally went on, and on, the ball going over the net 6 times, until Bokuto finally hit 1 so hard it went through Lev's hands and into the curtain.
+
+0-3. Sho stood at the net breathing and looked at the curtain, which had 2 dents in it now.
+
+He was late on Hinata.
+
+He'd known he would be. Hinata was faster than anything he'd stood in front of, faster than Bokuto, faster than his own crossing-out. On a full court, behind a block, with Yaku's feet and Ikkei's way of reading, he could get there. Here, with only 3 on each side, Hinata was off the ground before Sho had finished crossing anything out, and the ball was down before Sho's heels were.
+
+"HA!" said Hinata, landing.
+
+Sho got up off the floor and went back to his spot.
+
+They'd rotated by the next rally; Sho was at the back now, behind Kuroo and Lev. He crossed Hinata out faster. He was still late. The time after that, he gave up crossing Hinata out at all and just stood where Hinata had hit the last 2, and Hinata hit it somewhere else, and Sho sat down on the floor where the ball had landed and laughed until Lev asked if he was all right.
+
+He dug 2 of Bokuto's, standing at the edge of Kuroo's shadow. He blocked nothing all game. He hit 4 balls and 1 of them went in. The Owls won it 15-9, and Bokuto ran a lap of the half court with his arms out like an aeroplane.
+
+Kuroo came over and stood beside Sho at the net post, getting his breath back, and watched Bokuto go round.
+
+"You're different tonight, notebook," said Kuroo.
+
+Sho looked at him. "Am I?"
+
+Kuroo looked down at him with his head on 1 side, and seemed to be trying to work out how. Then he gave up.
+
+"Dunno," he said, and went to drink.
+
+---
+
+Daichi came to the door at 10:15.
+
+He stood in it with his arms folded and the corridor light behind him, the way he stood at the gym door at Karasuno at the end of evening practice, and looked at them all: at Hinata, who'd just been put down by Bokuto and was still vibrating; at Sho, sitting on the floor against the net post; at Tsukishima, who had apparently been leaving for 15 minutes.
+
+"Lights out," said Daichi, "was at 10."
+
+"Captain!" Hinata ran at him. "Captain! I did a feint! A real 1! Over Tsukishima!"
+
+"Tell me tomorrow," said Daichi. "Bed." His eyes went past Hinata to Sho on the floor. "You too, Kiyose."
+
+"Yes, Captain."
+
+They walked back across the dark grass in a bunch, Hinata in the middle, demonstrating the feint with his hand in the air every few steps, pushing an invisible ball over an invisible block. Tsukishima walked at the edge with his hands in his pockets. When Hinata pushed the invisible ball for the 6th time, Tsukishima said, "We saw," in a tired voice, and Hinata did it a 7th time, at him, and Tsukishima's mouth went up at 1 corner again and straight back down.
+
+The moon was high over the hill, small and white.
+
+Tomorrow was the last day. 4 games: Shinzen, then Nekoma, then Ubugawa, and Fukurodani last. Karasuno hadn't won a game all week.
+
+---
+
+In the classroom, on the futons, in the dark, Hinata whispered across the gap.
+
+"Kiyose."
+
+"Mm."
+
+"Tomorrow. We're going to win 1."
+
+Sho lay on his back and looked at the dark ceiling, at the faint gray square the window made on it.
+
+"Shinzen's 1st," he said.
+
+"We've never beaten Shinzen."
+
+"I know."
+
+Hinata was quiet for so long that Sho thought he'd gone to sleep. Then he heard him turn over, and settle, and breathe out, long and slow, the way he did when he'd decided something.
+
+Near the door, in the dark, Tanaka said quite clearly in his sleep, "That's my spot," and then, "...rice," and was quiet.
+
+Sho lay with his aching fingers folded on his chest and listened to the cicadas start up again outside, and didn't count anything at all.
+
+**Continuity (ch 40)**
+
+- Sho POV, night 7 of the 8-day Shinzen camp, 9:40 to after 10:15. **No eye (left alone).** No status card.
+- **The canon 3v3 on a half court in the 3rd gym** (net standards dragged in): **Owls: Bokuto, Akaashi, Hinata. Cats: Kuroo, Lev, Tsukishima.** Bokuto: "OWLS versus CATS!" Lev: "Why are we cats?" Kuroo: "Because you're Nekoma. Keep up... Tonight he's a cat. Aren't you, Tsukki?" "Don't call me that." Sho on the stage edge beside the dented curtain; notebook left in his bag.
+- **April echo:** the Saturday 3v3 at Karasuno (Hinata, Kageyama, Tanaka vs Tsukishima, Yamaguchi, Sho), where the eye 1st opened on Hinata's 1st quick.
+- **Hinata's (canon, his):** eyes open, sees the 3 blockers ("*I want to see what's in front of me*", the fight 2 weeks ago); stuffed ("a sound like a dropped book"); Akaashi: "Again?" "AGAIN!" Bokuto crouched and told him something (fist opening, pushing forward soft); Sho looked away at the moths.
+- **Tsukishima's (canon, his):** Kuroo talking to him between rallies (flat hand); next rally Tsukishima waited and soft-blocked Bokuto up to Kuroo. Bokuto: "HEY! He WAITED!" Sho held his breath. The monitors image: a good play was a clip; tonight "he didn't reach for a pen he didn't have."
+- **"What's yours?" (about 9:55):** Hinata on the stage with Sho's bottle: "They blocked me every time. But I *saw* them do it... Bokuto-san says everybody needs a weapon... His is everything, basically... I'm getting mine tonight." Sho can't say the eye; false start "I'm good at receive"; a moth on his wrist. **"The bad ball." "Huh?" "When it's all gone wrong. No setter. Somebody has to hit it." "That's the ace's ball." "Yes." "I want that ball too!... I'm going to be the ace!... we can't *both* have it!"** Sho didn't answer. Bokuto: "OWLS! BACK! NOW!" Hinata pointed at Sho, running backward.
+- **Hinata's feint (in the canon 3v3, Hinata's moment): over Tsukishima's new late block into the empty place between Tsukishima and Kuroo; Kuroo dived too late.** "I DID IT! BOKUTO-SAN!" "THAT'S THE ONE!" Tsukishima's mouth corner. Sho grinning on the stage.
+- **The decider (invented):** Tsukishima: "I'm done for tonight." Bokuto (2 games to 2): "13! You're a cat now!" Tsukishima: "Go on. He won't shut up otherwise." **Sho takes Tsukishima's place, across from Hinata.** "3 people. He could hold 3." (Seijoh 12, Tokyo 6.) **He left the eye alone.** Rallies: Kuroo into Bokuto's block 0-1; Lev serve into the net 0-2; **Sho passes Akaashi's float (feet first), Lev's tight set, Sho takes the arm off and rolls it deep; Akaashi digs it (saw the arm come off); long rally; Bokuto through Lev's hands into the curtain (2nd dent), 0-3. (No out-of-system kill: saved for ch 43-44.)** Late on Hinata every time ("HA!"); rotated to the back; sat on the floor laughing ("Lev asked if he was all right"). **2 Bokuto digs at the edge of Kuroo's shadow; 0 blocks; 1 of 4 swings in. Owls won 15-9;** Bokuto's aeroplane lap. **Kuroo: "You're different tonight, notebook." "Am I?" "Dunno."**
+- **Daichi at 10:15: "Lights out was at 10."** Hinata: "I did a feint! A real 1! Over Tsukishima!" "Tell me tomorrow. Bed... You too, Kiyose." Walk back: Hinata's invisible feint; Tsukishima: "We saw." Tomorrow (day 8): **Shinzen, Nekoma, Ubugawa, Fukurodani last. Karasuno winless all week.**
+- **Futons:** "Tomorrow. We're going to win 1." "Shinzen's 1st." "We've never beaten Shinzen." "I know." Tanaka sleep-talking: "That's my spot... rice."
+- Ace path: "The bad ball... Somebody has to hit it." / "That's the ace's ball." Hinata wants it too (healthy rivalry). Sho's roll shot vs Bokuto.
+- Next: ch 41 "Four into one" (Sho): day 8, game 1 vs Shinzen: **Karasuno's 1st win of the camp, 25-23 (user approved flip)**; Sho as the all-rounder (the dig, the call, the serve at the right man); eye and map agree on Shinzen's setter; **Tanaka finishes it.** 1 line of the ace.
