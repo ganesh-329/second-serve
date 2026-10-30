@@ -5235,3 +5235,365 @@ It was the hardest thing he'd done all weekend.
 - Sho turned off the 4:15 alarm for the 1st time since April. At 4:14 his eyes opened by themselves; he thought of Tanaka unlocking the gym and turning round on the step to see who was coming; he stayed in bed: "It was the hardest thing he'd done all weekend."
 - Owed: Monday at school (3 days no sports, no screens); Wednesday clinic with Mom; Kageyama and Hinata and the quick; the 3rd years' decision; Seijoh vs Shiratorizawa result.
 - No status card.
+
+## Chapter 27: The key (Tanaka)
+
+The key to the Second Gymnasium lived on a red string, and Tanaka Ryunosuke wore the string round 1 finger and swung it all the way up the hill.
+
+4:51. The sky over the school was the color of weak tea. The rain had stopped sometime in the night and left everything shining, the path, the railings, the leaves on the cherry trees by the bike racks, and the air smelled of wet concrete and cut grass. A crow sat on the gym roof and looked at him.
+
+"Morning," Tanaka told the crow.
+
+The crow stayed where it was.
+
+He got to the step and put the key in the lock and turned it, and the lock went *clack*, the same as every morning. Then he turned round.
+
+He'd turned round on this step every morning since April. Unlock, turn, look down the path. Sooner or later a tall 1st year built like a door came up out of the blue light with a cloth bundle under 1 arm and his breath fogging, and saw the door already open, and said "Early," in that polite voice of his, and Tanaka said "EARLIER THAN YOU," and that was how the day started.
+
+The path was empty.
+
+Coach had texted everybody last night, 1 line, at 10:40: *Kiyose's out till Thursday. Eyes. Doctor's orders. Nobody throw anything at his face.* Tanaka had read it in bed 4 times. So he knew.
+
+He stood on the step anyway, with the key on his finger, and watched the bottom of the hill where the path came round by the shrine. A delivery bike went past on the road down there. The crow shifted its feet. 4:55. 4:58.
+
+At 5:00 he went in.
+
+---
+
+The gym was cold inside and smelled the way it always did, floor wax and old knee pads and the dust in the corners of the stage. Tanaka bowed at the door, said "Onegaishimasu" to the empty court, and turned on the lights bank by bank. They buzzed and flickered and came up white.
+
+He left the net in the storage room. It was a 2-person job.
+
+He got the ball cart out instead, the one with the wheel that stuck, kicked the wheel the way you had to, pushed it out to the middle of the court, took a ball, and stood facing the wall.
+
+He threw it at the wall hard, and it came back at him, and he got under it with his arms out and passed it up. Not bad. Again. Not bad. He did it 20 times, and 14 went where he wanted, and the other 6 came off his arms sideways the way Oikawa's serves had yesterday, into the boards, past the bench, into Yamaguchi's knees.
+
+Set 1, nearly every serve, Oikawa had served him.
+
+Set 2, Kiyose had come on in Asahi-san's spot, and Oikawa had served Kiyose, because Kiyose was the new guy and everybody knew Kiyose couldn't pass. And Kiyose had passed it. Like he'd known where it was going before Oikawa hit it. And then the whole run: Kiyose shouting every ball before it happened, *The 4! Line! Tip!*, the block with Hinata, the line shot past Iwaizumi after looking right at his hand, the hit off Oikawa's fingers. Tanaka had grabbed him and shaken him and yelled *What was THAT?!* and meant every word of it.
+
+Then set 3. Kiyose on the bench with a cold pack on his face. And the 1st serve Oikawa hit, he hit at Tanaka.
+
+Tanaka threw the ball at the wall harder than he meant to. It came back faster than he was ready for, hit him in the chest, and rolled away across the floor.
+
+"...Yeah," he said, to the ball.
+
+He went and got it.
+
+And at 28-28 he'd served into the net. He could still feel it in his right hand, the dull thud of the ball hitting tape and dropping.
+
+He threw the ball at the wall again. Passed it. Again. Passed it. Again, harder, and got it, and got it.
+
+---
+
+At 5:12 the door banged open.
+
+"TANAKA-SENPAI!"
+
+Hinata, in his tracksuit, with his hair flat on 1 side from his pillow. Kageyama behind him, already holding a ball.
+
+"You're late," said Tanaka.
+
+"The front gate was locked! We had to go all the way round!" Hinata looked past him into the gym, at the empty court and the cart. "Kiyose's really not coming?"
+
+"Coach said Thursday."
+
+"Thursday," said Hinata, as if Tanaka had said next year.
+
+Kageyama went to the 3-meter line with his ball and stood there turning it in his hands. Hinata went and stood by him. They started without the net, the way they'd started on the dirt behind the gym in April, under the 1 working light.
+
+Tanaka went back to the wall. He kept 1 eye on them.
+
+Kageyama set the fast one. The ball went out flat and quick to where the net would have been, and Hinata was already in the air with his eyes shut, and swung, and hit it into the far wall with a crack like a firework.
+
+"Again," said Kageyama.
+
+Hinata didn't move. He was standing where he'd landed, shifting his weight from foot to foot.
+
+"Kageyama."
+
+"What."
+
+"Yesterday. At the end." Hinata was frowning at the floor. "I didn't even see them. I was up there and I didn't see anything. I didn't know they were there till it was on the floor behind me."
+
+"You never see anything. That's how it works."
+
+"I want to see."
+
+Kageyama's hands stopped turning the ball.
+
+"On the fast one," said Hinata. "I want to keep my eyes open. I want to see them up there."
+
+"No."
+
+"Just try it..."
+
+"No." Kageyama's voice went flat. "The fast one works because you don't look. You look, you're late. You're late, it's over. It worked in every match."
+
+"Not the last ball."
+
+"1 ball."
+
+"The *LAST* ball!"
+
+Tanaka had stopped throwing at the wall. He stood there with the ball in his hands.
+
+Kageyama's hands had gone tight on the ball. Hinata was standing very straight with his fists at his sides. Neither of them looked at Tanaka.
+
+Hinata ran in anyway, eyes wide open, and jumped. Kageyama didn't set. The ball stayed in Kageyama's hands. Hinata came down with his hand still up in the air over nothing.
+
+"I'm not setting it," said Kageyama.
+
+"Then I'll make you."
+
+"How?"
+
+"I don't know yet!"
+
+Tanaka turned back to the wall. He threw his ball at it, and passed it, and threw it again, and behind him he heard Kageyama say *again* in his flat voice and set the fast one, the old one, and Hinata go up with his eyes shut and hit it, crack, into the far wall. And again. And in between, from Hinata, nothing.
+
+---
+
+At lunch Tanaka went to the 1st year floor with a yakisoba bread.
+
+He'd fought for it. The school store sold out of yakisoba bread in 4 minutes on a normal day, and he'd been 6th in line, and the guy in front of him had tried to take 2.
+
+Class 1-5 had its door open. Tanaka stood in the doorway, and the room went quiet the way rooms did when he stood in doorways. A couple of 1st years at the front put their chopsticks down.
+
+Kiyose was at the back, at the desk by the window.
+
+He wasn't eating. His bento was on the desk in front of him, still tied up in its cloth. He was sitting with his elbows on the desk and his eyes closed and his face turned toward the window and the white June light. Around him the rest of the class was eating and talking and copying homework and arguing about a TV show, and Kiyose sat in the middle of all of it with his eyes shut, completely still.
+
+Tanaka had seen him on the bus, on the bench, on the floor at the end of practice when everybody else was lying flat like fish. He'd always been watching something, or writing in the book, or stretching, or eating, or asking somebody to toss him a ball.
+
+"Oi. Kiyose."
+
+Kiyose's eyes opened. They went to the doorway a little to the left of Tanaka's face, and moved, and found it.
+
+"Tanaka-senpai."
+
+Tanaka walked down the room between the desks with the 1st years watching him. He put the yakisoba bread on Kiyose's desk.
+
+"Here."
+
+Kiyose looked at it. "...Yakisoba?"
+
+"You're not eating. Eat."
+
+"I have a bento."
+
+"Then eat both." Tanaka pulled the chair out from the desk in front, turned it round, and sat on it backward with his arms on the back. Its owner, 2 rows up, had gone extremely still. "How are your eyes."
+
+"Better." Kiyose untied the bento. "Things are less flat than yesterday. I can read if it's close. The doctor said to rest them."
+
+"So you're sitting there with your eyes shut."
+
+"It helps."
+
+Salmon onigiri, 3 of them. Tamagoyaki. Something green. Kiyose picked up an onigiri and ate a bite.
+
+"You scared the crap out of me," said Tanaka. "With the nose."
+
+Kiyose stopped chewing.
+
+"I was running to grab you. After the last point. I was going to pick you up. And then you were bleeding on the floor and looking at your hand like an idiot." It came out louder than he meant it to. 2 rows up the kid whose chair it was flinched. "Don't do that again."
+
+Kiyose put the onigiri down on the lid of the bento.
+
+"I'll put my hand up," he said.
+
+"What?"
+
+"Coach made a rule. If it starts, I put my hand up, and I come off."
+
+"Good." Tanaka nodded hard. "Good. Put it up. I'll be watching for it."
+
+Kiyose picked the onigiri back up.
+
+They sat there. Out of the window the baseball team's net was sagging in the wet, and a teacher was crossing the field with an umbrella he didn't need anymore.
+
+"Hinata wants to keep his eyes open," said Tanaka. "On the fast quick. Told Kageyama this morning."
+
+Kiyose stopped with the onigiri halfway to his mouth.
+
+"Kageyama won't set it," said Tanaka. "Just said no. They're going to fight about it, bet you anything."
+
+Kiyose put the onigiri down on the lid again. He sat looking at it. Then he picked it up and took a big bite and chewed it slowly, all of it, and swallowed, and asked Tanaka whether the yakisoba bread had been hard to get.
+
+Tanaka watched him do it. He'd have bet his yakisoba bread that book had a whole page about the quick in it.
+
+"Kiyose."
+
+"Yes."
+
+"In set 2. Iwaizumi. You looked right at his hand, and then you hit the line."
+
+"Yes."
+
+"You taught me the foot. Remember? Before Tokonami. And I made the words for it." Tanaka leaned his chin on his arms on the chair back. "So now teach me the face."
+
+Kiyose looked at him with his eyes that were still a little wrong, as if Tanaka's face were further off than it was.
+
+"You want me to teach you?"
+
+"Yeah. You think I'm too proud?" Tanaka made a face. "I'll take stuff from anybody. Teach me."
+
+Kiyose put down the onigiri.
+
+"Blockers watch your face," he said. "The good ones. They watch the ball, and they watch you. Where your chin points. Where your eyes go before you jump."
+
+"Okay."
+
+"Everybody looks where they're going to hit. You can't help it. So they read it." He turned his chin, a little, toward the window, down and to the side. "If you know that, you can look on purpose. Look at the hand. Let them see you look."
+
+"And the hand moves."
+
+"The good ones move it. To take the shot away. And when it moves..."
+
+"The line's open." Tanaka sat up. "So the face lies."
+
+"If you make it."
+
+"Foot lies. Hand tells the truth. Face lies if you make it."
+
+"That's longer," said Kiyose.
+
+"Shut up, I'll fix it."
+
+Kiyose almost smiled. He picked the onigiri back up.
+
+"It only works on good blockers," he said. "And only 1 or 2 times. Iwaizumi-san told me next time he'll leave his hand where it is."
+
+"Then what?"
+
+"Then you hit the hand. I did that to Oikawa-san at 24-23. I looked at his hand, and he knew the trick, so he held it still, and I hit the edge of it, out."
+
+Tanaka thought about Oikawa's face at 24-23. The little laugh.
+
+"And if they don't buy any of it," said Tanaka, "I just hit it harder."
+
+Kiyose looked at him a while.
+
+"Yes," he said. "That works too."
+
+The bell for the end of lunch went. Tanaka stood up and turned the chair back round and pushed it in. The kid it belonged to let his breath out.
+
+"Eat the bread," said Tanaka. "All of it."
+
+"Yes, senpai."
+
+At the door Tanaka gave the front row his face, the bad one, out of habit. 2 of them ducked.
+
+---
+
+Practice was quiet. It always was after a loss. Everybody did the drills, and nobody yelled much.
+
+Coach ran serve receive for an hour. He stood on a chair on the far side of the net with a cart beside him and served float after float, not hard, but every one of them dipping, and the receivers came through 1 at a time, Daichi, Noya, Ennoshita, Asahi, Narita, Tanaka, and back round. 3 balls each, then the next.
+
+Tanaka's 1st ball went sideways off his left arm into the wall.
+
+His 2nd went up, short, crooked.
+
+His 3rd went straight to Suga at the net, where it was supposed to go.
+
+"That one," said Coach, from the chair. "What'd you do different?"
+
+"I... don't know."
+
+"Find out. Back of the line."
+
+He went to the back of the line. When it came round, his 1st ball went sideways again. Coach served the next one. Tanaka stayed at the front and took the next 3 as well, without being told, and Coach let him, and served him 3 more, and 3 more, until Daichi put a hand on his back and moved him out of the way.
+
+His forearms were purple by 5.
+
+At the water break the 3rd years stood by the stage, the 3 of them, Daichi-san and Suga-san and Asahi-san, and talked low. Suga-san's bag was open on the stage beside them. Sticking out of the top of it was a thick book with a blue cover and a lot of colored tabs, and on the spine, in white letters, it said *Center Exam: English*.
+
+When Tanaka came near with his bottle, the 3 of them stopped talking.
+
+He drank his water. He went back on court.
+
+At 6:15 the door at the end of the gym opened, and Kiyose stood there in his uniform with his bag on his shoulder.
+
+He didn't come in. He stood at the very edge of the court, bowed, and stayed in the doorway. Coach saw him from across the gym.
+
+"Kiyose," said Coach. "Home."
+
+"Yes. I just..."
+
+"Home. If the doctor says yes on Wednesday, you can watch Thursday."
+
+Kiyose stayed in the doorway a little longer. His eyes went across the gym, fast, the way they did: the receive drill, the 3rd years, Suga's bag on the stage, Hinata and Kageyama in the far corner, not talking, Kageyama setting the old quick and Hinata hitting it with his eyes shut.
+
+Then he bowed again and went.
+
+---
+
+On Tuesday morning Tanaka got to the step at 4:52.
+
+He put the key in the lock and turned it, and the lock went *clack*, and he turned round and looked down the path.
+
+There was somebody coming up it.
+
+Tall, walking slowly, with a cloth bundle under 1 arm. Walking in the very middle of the path, carefully, the way you'd walk on ice.
+
+Tanaka stood on the step and watched him come all the way up the hill.
+
+"Early," said Kiyose, at the bottom of the step.
+
+Tanaka opened his mouth to say it, and didn't.
+
+"You're not allowed in," he said instead. "Coach said Thursday."
+
+"I know." Kiyose untied the bundle, feeling for the knot, and held out an onigiri wrapped in plastic. "My mom made too many. Salmon."
+
+Tanaka took it. It was still a little warm.
+
+"I'll sit here," said Kiyose. "On the step. Outside."
+
+"And do what?"
+
+"Listen."
+
+Tanaka looked at him standing there at 4:53 in the morning with his breath fogging and his eyes that couldn't judge a curb. He put the onigiri in his jacket pocket.
+
+He went in and turned on the lights, bank by bank. He got the cart and kicked the wheel and pushed it out to the middle of the court. Then he went back and propped the door open with 1 of his outdoor shoes, all the way, so the sound would carry.
+
+Kiyose was sitting on the step with his back against the doorframe and his eyes closed and his face tipped up at the sky, where the weak-tea color was turning white.
+
+Tanaka took a ball and stood facing the wall, and threw it, hard.
+
+It came back at him, and he got his arms on it, and it went off sideways, past his shoulder, into the boards.
+
+"Left arm," said Kiyose, from the step.
+
+Tanaka turned round.
+
+Kiyose hadn't moved. His eyes were still shut. His face was still tipped up at the sky.
+
+"...How do you know that?" said Tanaka. "You can't even see me."
+
+"It sounds different," said Kiyose. "When it's the left. It's a flatter sound. Your left arm's lower than your right when you pass. The ball hits the bone."
+
+Tanaka stood there. Behind him the ball was rolling slowly back across the floor toward the cart.
+
+He looked down at his arms. Then at Kiyose on the step, with his eyes shut, listening.
+
+He went and got the ball.
+
+**Continuity (ch 27)**
+
+- Surprise POV (bible "POV chapters"): close third on Tanaka. Monday 4:51 a.m. to Tuesday about 5:00 a.m. Ch 23 (Mio) was the last POV chapter; ch 28 returns to Sho.
+- Tanaka's ritual since April: unlock, turn round on the step, look down the path; Sho arrives later ("Early." "EARLIER THAN YOU."). The key is on a red string. A crow on the gym roof.
+- **Ukai texted the team at 10:40 p.m. Sunday:** *Kiyose's out till Thursday. Eyes. Doctor's orders. Nobody throw anything at his face.* (That's how Tanaka and the others know.)
+- Tanaka alone: receive practice off the wall (14 of 20 good). Remembered: Oikawa served him in set 1, served Sho in set 2, served Tanaka with his 1st serve in set 3; his 28-28 serve into the net.
+- **Hinata and Kageyama (canon conflict begins, theirs):** Hinata: "I didn't even see them. I was up there and I didn't see anything... I want to see... On the fast one. I want to keep my eyes open." Kageyama: "No... The fast one works because you don't look. You look, you're late." "Not the last ball." "1 ball." "The *LAST* ball!" Hinata ran in with his eyes open; Kageyama didn't set. "I'm not setting it." "Then I'll make you." "How?" "I don't know yet!" They went back to the old quick, eyes shut, Hinata silent between balls. At afternoon practice they were in the far corner, not talking, running the old quick. [memory: in canon the eyes-open request comes later, around the Tokyo camp; here it starts early because of Sho's dinner observation, but the fight and its resolution stay theirs.]
+- Lunch: Sho is in class 1-5 (desk at the back by the window). Tanaka brought a yakisoba bread (6th in line). Sho's eyes "less flat"; can read close; "The doctor said to rest them." Tanaka: "You scared the crap out of me. With the nose... Don't do that again." Sho: "I'll put my hand up." Tanaka: "Put it up. I'll be watching for it." Sho held back on the quick (put the onigiri down, ate it, said nothing about it).
+- **The face lesson** (Tanaka asked: "You taught me the foot... And I made the words for it. So now teach me the face."): blockers watch your face; look at the hand on purpose; the good ones move it; the line opens. Tanaka: "Foot lies. Hand tells the truth. Face lies if you make it." "That's longer." "Shut up, I'll fix it." Works only on good blockers, 1 or 2 times; then hit the hand (Sho did it to Oikawa at 24-23). Tanaka's own: "And if they don't buy any of it, I just hit it harder." "Yes. That works too."
+- Monday practice: Ukai on a chair serving floats for an hour; Tanaka's 3rd ball went straight to Suga ("That one. What'd you do different?" "I... don't know." "Find out."); Tanaka stayed at the front of the line till Daichi moved him. Forearms purple by 5.
+- 3rd years talking low by the stage; Suga's bag had a thick blue *Center Exam: English* book with colored tabs. They stopped talking when Tanaka came near. He didn't ask.
+- 6:15: Sho in the doorway in uniform; Ukai: "Home. If the doctor says yes on Wednesday, you can watch Thursday." Sho's eyes went over everything, including Suga's bag and Hinata and Kageyama not talking.
+- Tuesday 4:52: Sho walked up the middle of the path carefully, said "Early." Tanaka didn't say "EARLIER THAN YOU." Sho gave him a still-warm salmon onigiri and sat on the step outside to listen. Tanaka propped the door open with 1 of his outdoor shoes.
+- **Ending:** Tanaka's 1st pass went off sideways. Sho, eyes shut: "Left arm... It sounds different. When it's the left. It's a flatter sound. Your left arm's lower than your right when you pass. The ball hits the bone." (New: Sho reading a pass by sound.)
+- Note: class 1-5 is Yachi's canon class [memory]; keep in mind for her recruitment in the Tokyo arc.
+- Owed: Wednesday clinic with Mom (fly test); Thursday watching depends on it; the 3rd years' decision; Seijoh vs Shiratorizawa; Hinata and Kageyama's fight (theirs).
+- No status card.
