@@ -855,6 +855,46 @@ Nobody names the eye. Everybody explains it as something else:
 
 The doctor's limits from ch 28 lift as the eyes adapt: Brock string with Dad holding the far end and Mio's beads; screens 1 hour a day (no match tape for the ex-analyst, so the map is built live); 5 a.m. eyes-shut sound reads with Tanaka (chalk scores); English with Suga on Wednesdays (traded for occlusion calls); Sunday walks with Dad. At camp, 4 to 6 sets a day on court. **Progress markers someone counts on the page:** players held in 1 look (4, then 6, then 8), Tanaka's chalk sound reads (7/10 to 9/10), Suga's occlusion calls (5/10 to 8/10), clean passes off jump serves (3/10 to 7/10), Bokuto digs a night (1, 3, 6), Akaashi's sets read (6/20, then 13/20 once he reads the hitters instead).
 
+### The ace path (user direction, Oct 30: never forget)
+
+**User, Oct 30:** "Do not forget that he is for ace position. Even though now he is doing this receive, he is an ace. He needs strength training and every other training related to ace." Add it to the training plan, think it through, and keep it in every arc, even when a chapter is about receive.
+
+**What this means for the whole story.** Sho is an outside hitter being built into an ace. The receive, the digs, the map and the eye are the all-rounder layer of a modern ace (the outside hitter who passes, defends and still kills the bad ball). They are never the destination. Every arc moves the ace forward on the page: a gym session, a reach mark on the wall, a kill out of a bad set, a block he beats. Ukai's long plan: sub ace now (bible "Sho's place on the team"), wing spiker in Arc 4, Karasuno's ace in his 2nd year when Asahi has gone.
+
+**Why it carries soul (never explained in prose).**
+- Satoshi was the ace. The knee took the ace from him; the analyst was what was left. Every ace drill touches the old wound: the approach jump, the plant, the landing on the left leg. Sho trains the ace's body knowing exactly how the last one broke.
+- "Twice as hard and twice as smart" (the knee lesson) becomes literal here: Satoshi saw V.League strength and conditioning from the inside for 9 years. Sho designs his own program like a pro and still has a 15-year-old's body, so it starts with technique, light loads and patience. Shameless: he asks Ukai to cross out the stupid drills.
+- **The hand, meaning 2:** Asahi's hand that goes up to ask for the ball ("SUGA! ONE MORE!"). Arc 3's hand goes up to come off. The ace's hand goes up to ask. Sho's 1st real "1 more" as an ace is a planned payoff (Arc 4, Spring High prelims, a big set late in a tight game). Never point at the symmetry.
+- The knee rule: any knee pain is a hand-up and he tells Coach 1st, the same day. That's where Satoshi's wound actually heals, on the page, in Arc 4: a sore left knee after plyometrics, and he tells Ukai before practice. Nothing dramatic happens. That is the point.
+
+**The 6 pillars (what he trains).**
+
+| Pillar | What, concretely | Markers someone counts |
+| --- | --- | --- |
+| **Strength** (gym, 3 x 40 min a week, off court, logged) | Technique before load. Lower: goblet squat to front squat, Romanian deadlift, split squats, step-downs, hip thrusts, calf raises. **Knee armor (the ACL lesson):** Nordic hamstring curls, single-leg landings held 3 seconds, lateral band walks, deceleration and cutting drills, knees tracking over toes (never caving in). Upper: push-ups to light bench, rows, pull-ups. **Shoulder armor (an ace's shoulder takes 1000s of swings):** band external rotations, Y-T-W raises, scapular work, thoracic mobility. Core: anti-rotation holds, rotational medicine-ball throws (the arm swing's power comes from the hips and trunk) | Squat and Nordic numbers in the notebook; Mio counts reps at home |
+| **Jump** | The 4-step approach and its penultimate step; arm drive; low-volume plyometrics (box jumps; depth jumps only once the landing is perfect); approach jumps measured against a tape mark on the gym wall | **Spike reach**: about 318 cm now, 325 by the Spring High prelims, 335 in his 2nd year (Satoshi peaked at 340 in college). Mio's notebook gets a *REACH* page |
+| **Arm swing and hitting** | Bow and arrow, high elbow, contact at full reach in front of the hitting shoulder, wrist snap. **The same approach for line and cross** (he knows tells, so he builds an approach nobody can read: the mirror of Kenma and Akaashi reading him). Tool the block (wipe off the outside hand: he did it to Kuroo in arc 1). Roll shot and off-speed (Blind Spot). **The high ball out of system**, the ace's real job: kill the bad set when everything's gone wrong (Asahi's soul). **Back-row attack** (pipe and D), because he lives in the back row: pass, then attack from behind the 3 m line. Transition footwork after a dig | Kills off bad sets out of 10; hitting error rate; tooled blocks |
+| **Serve** | Float targeting now (Sogeking; Serve D to C at the end of Arc 3). **Jump float** in Arc 4, his own (Asahi owns Karasuno's jump spin serve; Yamaguchi owns the float). A jump spin serve in his 2nd year | Serve C to B in Arc 4 |
+| **The eye and the map, for attack** | Reading the block instead of the hitter: the blockers' hands a blink early (Arc 4 seed; the eye stays rare and uninvited there). At Inarizaki (Full awakening Lv1, on command, 1 player) the player can be a blocker. The map shows the hole; the arm finds it. "The ace who sees" | (story beats, not numbers) |
+| **Body and recovery** | Food (Mom's rice and onigiri, protein, "eat, that's training" from Ukai); sleep; growth (182 cm, still growing; about 185 to 187 by 3rd year); the knee rule above; eye rest stays as before | Height on the kitchen door frame (Dad's pencil) |
+
+**Who helps (each from their own want; protected moments stay with their owners).**
+- **Ukai:** approves and cuts the program; builds the on-court ace work; decides minutes. His want: to be a real coach. Planting an ace is coach's work his grandfather would respect. Gets the weight-room key through Takeda.
+- **Takeda:** finds the key to Karasuno's neglected weight room (a squat rack, rusty plates, a bench), borrows a sports-science book from the library and reads it on the train so he can ask good questions.
+- **Asahi:** ace to ace. Hitting together after practice; what it's like to want the ball and be afraid of it. Asahi's jump serve and his comeback are his. Sho is the 1 person who knows exactly what Asahi went through, and never says how he knows.
+- **Tanaka:** the wing spiker who makes him earn it (bible: long-term). Rivalry, loud and generous.
+- **Kageyama:** sets him; asks hitters what they want (canon); Sho asks for a specific set (higher, off the net, for the out-of-system swing).
+- **Bokuto (camp only):** hitting next to him in the 3rd gym; Bokuto loves the moment, and Sho had it once. Bokuto's lessons to Hinata stay Hinata's; with Sho it's just "1 more!".
+- **Dad:** builds a plyo box out of scrap wood in the yard without being asked; says "Mm". **Mio:** counts reps, keeps the *REACH* page, marks his height. **Mom:** food.
+
+**Timeline.**
+- **Arc 3 (rest of it, ch 38 to 45): seed only, lightly.** Ch 38 (Ukai POV): Ukai watches his arm swing in warm-up and admits he's been using an ace as a passer with a serve; asks Takeda about a weight room. Ch 43 to 44: on the last day Sho plays wing and gets the high bad ball at least once (1 kill, 1 blocked). Ch 45 (barbecue): the aces talk (top 3 aces), Satoshi's reaction is an ace's; the new notebook's 1st page carries ace lines (reach, the knee rule, "1 more").
+- **Arc 4 (Spring High prelims):** the program on the page: weight room 3 times a week; approach and reach marks; jump float; the knee moment (tells Coach 1st); plays wing for Tanaka and Asahi more; back-row attack becomes a weapon; **the 1st "1 more"**. Power C to B by the end of Arc 4; Serve C to B.
+- **Arc 5 (Spring High nationals):** sub ace who matters; Inarizaki: the eye on command, possibly on the block.
+- **2nd year:** Karasuno's ace. Power B to A, Jump B to A.
+
+**Guardrails.** Never let receive chapters forget he's an ace (1 line of the ace per chapter is enough). Never make strength a montage: 1 concrete exercise, 1 number, 1 person counting. Never let the gym become the knee again: pain means hand up, every time.
+
 ### Soul spine
 
 - **Surface question:** can he play all 3 sets? **Real question:** what does he become when the talent is fully his? Satoshi lost his playing life at 20 and watched for 9 years. Arc 3 is the 1st time he plays among strong teams from the playing side, and he finds out he can do more than watch.
@@ -896,7 +936,7 @@ Canon venues (03_canon): trip 1 is a weekend of away games at **Fukurodani Acade
 - **Ch 29:** none (Arc 2 cost him and earned no rank).
 - **Ch 36:** Reception D to C (written; Yaku's 10). The eye's "Adapting" stage stays prose-only; the card reads Partial awakening until ch 45.
 - **Ch 39:** Set E to D.
-- **Ch 45 (end of Arc 3):** Block E to D, Serve D to C, Mentality B to A. Emperor's Eye: Conditioned (trait: Elite Observational Genius). Meta Vision: Half map (trait: Long-Term Strategic Scrutiny).
+- **Ch 45 (end of Arc 3):** Block E to D, Serve D to C, Mentality B to A. (Power stays C at the end of Arc 3; the ace path moves it to B by the end of Arc 4: see "The ace path".) Emperor's Eye: Conditioned (trait: Elite Observational Genius). Meta Vision: Half map (trait: Long-Term Strategic Scrutiny).
 
 ## Dialogue playbook (rewritten Oct 30)
  

@@ -43,6 +43,7 @@ Read this first, then the story bible's "Canon and divergence", "Soul sheet", "P
 
 ## User's rules (hard)
 
+- **He is an ace (User, Oct 30): "Do not forget that he is for ace position."** Receive/defense/eye work is the all-rounder layer of an ace. Strength training and every ace skill (approach, jump, arm swing, high bad ball, back-row attack, jump float, knee and shoulder armor) are planned in the bible's "The ace path" section. Keep at least 1 line of the ace in every chapter; the real program starts after camp (Arc 4).
 - **Canon is a starting point (Oct 30).** The user called the old approach "soulless copy paste". Sho changes matches. Scores and rallies near him are ours. Only the short protected list in the bible's "Canon and divergence" stays with canon characters. The big results stay: Seijoh wins the match.
 - **Soul in every chapter (Oct 30).** Every main character acts from what they want (bible "Soul sheet"). Sho's soul: the man who watched from behind a monitor for 9 years and lost his knee by hiding pain. Each chapter ends on a question a reader needs answered, and it comes from someone's soul.
 - **POV chapters (Oct 30).** From ch 23, chapters told by other characters are sprinkled between Sho's: 1 character each, never 2 POV chapters in a row (bible "POV chapters").
