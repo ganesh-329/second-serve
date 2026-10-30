@@ -5597,3 +5597,301 @@ He went and got the ball.
 - Note: class 1-5 is Yachi's canon class [memory]; keep in mind for her recruitment in the Tokyo arc.
 - Owed: Wednesday clinic with Mom (fly test); Thursday watching depends on it; the 3rd years' decision; Seijoh vs Shiratorizawa; Hinata and Kageyama's fight (theirs).
 - No status card.
+
+## Chapter 28: Stay
+
+On Wednesday morning there was a square of newspaper beside Sho's rice bowl.
+
+It was Tuesday's paper. Dad had kept it, and folded it the way he folded everything, small, into a square the size of his palm, with 1 article facing up. He was already at the table behind the rest of today's paper, reading something about the price of rice.
+
+Sho picked up the square and held it close. The print was small, and it stood still on the 1st try, which it hadn't on Monday.
+
+*SHIRATORIZAWA TAKE MIYAGI INTER-HIGH TITLE. Shiratorizawa Academy beat Aoba Johsai in Monday's prefectural final to win the Miyagi Inter-High preliminaries and advance to the national tournament in August.* There was a grainy photo of a tall boy in purple and white at the top of a jump with his left arm drawn back, and the caption said *Ushijima Wakatoshi (3rd year)*. Further down there was 1 sentence for Aoba Johsai: *Aoba Johsai, led by captain and setter Oikawa Toru, pushed the 1st set to deuce.*
+
+The article moved on to the girls' final.
+
+Sho read it 2 times. Then he folded it back along Dad's creases and put it beside his bowl.
+
+*So I'll fix the looking thing tonight.* Whether Oikawa had fixed it, and whether it had made any difference against a left-handed ace with that arm, the paper didn't say.
+
+"Is that the face one's team?" said Mio, across the table.
+
+"Yes."
+
+"Did they lose?"
+
+"Yes. To Shiratorizawa."
+
+"Good," said Mio, and ate her natto.
+
+"Mio," said Mom, from the stove.
+
+"He was mean to Sho. He served at him on purpose."
+
+"Everybody serves at the weakest player," said Sho. "That's the game. He gave me a can of melon soda afterward."
+
+"I know," said Mio. "I drank it."
+
+Dad turned a page of today's paper, which meant unfolding it and folding it back.
+
+"Thanks, Dad. For keeping it."
+
+"Mm," said Dad.
+
+Mom put a plate of grilled fish in front of him. "Clinic's at 4:30. I'll meet you at the station at 4. I've told work I'm leaving early, so don't be late."
+
+"I won't."
+
+---
+
+Mom came straight from work in her office clothes, a navy cardigan over a white blouse, with her ID card still on its lanyard round her neck. She was standing at the ticket gate at 3:58 when Sho came up the stairs from the platform. Her eyes went to his face, and then down to his feet as he walked toward her, watching how he put them down.
+
+He walked straight to her. She turned for the gate.
+
+At the clinic there was an old man in the waiting room again, or a different old man exactly like the 1st, asleep with a newspaper on his chest. The baseball on the TV had become a cooking program with the sound off.
+
+The nurse at the counter called them. "Kiyose-san."
+
+The doctor looked up from her desk, saw Mom, and nodded as if she'd expected her. "Mother?"
+
+"Yes. Thank you for seeing him on Sunday."
+
+"Your husband and the little one were very good. The little one especially." The doctor pushed her reading glasses up onto her head. "Sit."
+
+She did the chart. Sho read it to the bottom line, and the letters stayed where they were. She did the light, and the handheld lens. She did the pen at arm's length moving in toward his nose, and it went double much closer this time, almost at his face.
+
+Then she gave him the glasses with the gray lenses and opened the booklet to the fly.
+
+The fly was standing up off the page.
+
+Its wings came up into the air between him and the paper, gray and enormous, a hand's width high. He could see the space underneath them. He reached out, and his fingers closed on the air above the paper and pinched the wings there, and the doctor said "Good."
+
+He kept his fingers there a little longer than he needed to.
+
+"Depth's back," said the doctor. She took the glasses off him. "Your eyes are working together again. Convergence is still a bit weak, which is normal after a rest like this. No MRI for now."
+
+On the other chair Mom let out a long breath through her nose.
+
+"For now," said the doctor. "If it happens again like Sunday, you come back the same day, and we do the scan. That doesn't change." She wrote something down. "Light practice from Monday. Nothing hard till the end of next week. Screens, an hour a day, not before bed."
+
+"Yes."
+
+"Can I ask something?" said Mom.
+
+"Please."
+
+"How will he know when to stop?" Mom had her bag on her knees with both hands on the handle. "Before it gets like Sunday."
+
+The doctor looked at Sho.
+
+"You tell me. What happened 1st, on Sunday? Before you lost the depth."
+
+Sho made himself go through it in order, the way he'd go through a rally on tape.
+
+"My eyes burned, 1st. Dry and hot, like I'd been looking at a light. Then there was pressure behind them, like a thumb pushing. It got worse. Then the depth started going in and out. Then it went."
+
+"Burning, then pressure, then depth." The doctor nodded. "Then the burning is your sign. That's the muscles telling you they're tired. Stop when it burns and you'll probably never reach the depth part again." She tapped the desk with her pen. "Stop at the burning. Every time."
+
+Sho looked at the desk.
+
+On Sunday the burning had come on the 1st serve he took at 18-20, before the block, before the line shot, before he'd decided anything at all. He'd felt it, and held on, for 8 rallies.
+
+"I understand," he said.
+
+---
+
+Outside the station there was a taiyaki stand with a striped awning and a man in a headband turning the fish-shaped molds over a flame. Mom stopped in front of it.
+
+"Red bean?"
+
+"Please."
+
+She bought 2. They stood at the edge of the pavement and ate them out of the paper. They were hot enough to burn the roof of his mouth, and the bean paste was sweet and grainy, and the crust was crisp at the tail where the batter had run thin.
+
+"The burning," said Mom.
+
+She ate her taiyaki and waited.
+
+"I'll put my hand up at it," said Sho. "Coach made a rule. When I put my hand up, he takes me off, and I don't argue. So I'll stop at it."
+
+Mom ate the last of hers, the crisp tail end, and folded the paper into a small square, the way Dad did.
+
+"Your sister wants to come on Saturday," she said. "To watch practice."
+
+"It's just practice. I'm only allowed to watch, too."
+
+"She knows."
+
+Sho thought about Mio standing on her seat at the rail with both hands on it, waiting where she'd been put.
+
+"She can come," he said.
+
+On the train home he got his phone out, held it close, and texted Ukai, slowly, with 1 thumb:
+
+*Doctor says depth is back. No scan. Light practice from Monday. She says stop at the burning. I'll put my hand up at the burning.*
+
+The reply came 2 stations later.
+
+*Good. Watch Thursday. Stage only.*
+
+---
+
+On Thursday he sat on the edge of the stage at the far end of the gym with his legs hanging down and the notebook on his knee, and watched practice for the 1st time since Sunday with eyes that worked.
+
+It was like somebody had wiped a window. The court had depth again, air between things. He could see Noya's weight shift onto his toes. He could see the angle of Ennoshita's platform from 20 meters away. He could see Hinata and Kageyama at the far net, not speaking to each other, running the old quick, Hinata with his eyes shut, Kageyama with his jaw tight, over and over, perfectly.
+
+He watched that for a while and left it out of the notebook.
+
+At the 1st water break he got down off the stage, walked to the edge of the court, and caught Ukai coming past with his clipboard.
+
+"Coach. Could you toss me a few? Just tosses. Soft. I'll catch them. I won't hit anything."
+
+"No."
+
+"5. Underhand."
+
+"No. Stage."
+
+"3?"
+
+Ukai looked at him over the clipboard.
+
+"Stage," said Ukai.
+
+Sho went back to the stage.
+
+*Observation Haki,* he thought, sitting down. *Benched.*
+
+At 4:50, Takeda put his head round the side door and caught Daichi's eye, and Daichi said something to Suga and Asahi, and the 3 of them went out with him. Kiyoko set down the clipboard she'd been holding and went too. Ukai watched them go and went on running the drill. Nobody asked. Everybody kept looking at the side door.
+
+Sho closed his eyes.
+
+The doctor had said *rest them*, and with them shut the gym became sound. The squeak of shoes, sharp and short, 100 of them at once. Ukai's voice, flat, calling names. The thump of a ball off forearms, and he could hear whose forearms. Noya's almost silent. Ennoshita's careful. Tanaka's...
+
+Tanaka's was still flatter on the left.
+
+He opened his eyes. Tanaka had just passed a ball off his left arm, a little sideways, and was frowning at it.
+
+"You asleep up there?"
+
+Ukai was at the foot of the stage.
+
+"No, Coach. Listening." Sho sat up. *Tell Coach 1st.* "Tanaka-senpai's left arm. It's still low. You can hear it. The ball hits the bone."
+
+Ukai looked across the gym at Tanaka. He watched the next 2 passes.
+
+"I know," said Ukai. "Working on it." He went back to the drill. On the way he called out, "Tanaka. Left arm. Up." and Tanaka yelled "YES!" without knowing where it had come from.
+
+---
+
+At 5:40 the side door opened again, and the 3rd years came back in, in their uniforms now, with Takeda and Kiyoko behind them.
+
+Ukai blew his whistle. "Bring it in."
+
+Everybody came in, in a half circle. Sho came down off the stage and stood at the back, at the end, next to Yamaguchi.
+
+Daichi stood in front of them, with Suga and Asahi on either side and Kiyoko a little behind. Takeda had his hands together. He looked at Daichi, and stepped back.
+
+Daichi looked round the half circle, at every face.
+
+"Sensei asked us what we're doing after summer," he said. "Exams. University. Most 3rd years quit after Inter-High."
+
+Beside Sho, Yamaguchi had stopped breathing.
+
+"Karasuno went to Nationals once," said Daichi. "Before any of us were here. We're going back." He looked at Suga, and at Asahi, and over his shoulder at Kiyoko. "We're staying. All of us. Through Spring High."
+
+Tanaka made a sound like a kettle and grabbed Noya, and Noya grabbed him back, and both of them burst into tears and hung off each other like 2 coats on 1 hook. Hinata yelled "YES!" so loud it came back off the far wall.
+
+Ukai stood at the side with his clipboard against his chest.
+
+"Then we've got till January," he said. "Clean up. Nets down."
+
+Sho stood at the back and did the sums, because he couldn't not.
+
+June to January. 7 months. Maybe 200 practices, if nobody got sick. 3 more tournaments' worth of 3rd years on the court. Asahi staying meant the ace's spot stayed full until January, and so did the minutes Sho got by coming in for him, which meant his own minutes would be exactly what they'd been. Suga staying meant a 2nd setter who knew how to talk to people. Daichi staying meant the receive held.
+
+And none of that was why he was standing there with his hands gone tight on the notebook.
+
+Suga had come round the edge of the half circle while Tanaka and Noya were still crying. He had his bag over his shoulder, and the thick blue book with the colored tabs was sticking out of the top of it.
+
+"English is going to kill me 1st," said Suga. "Before Spring High does."
+
+"I can help," said Sho. "With English. If you want."
+
+Suga looked at him. "You're a 1st year."
+
+"I'm good at English."
+
+"...Since when?"
+
+"Since April," said Sho, which was true, in its way.
+
+Suga laughed, and shook his head, and then stopped laughing and looked at him properly.
+
+"Okay," he said. "Wednesdays. After practice. If you're so good." He nodded at the notebook. "Is my writing still in there?"
+
+Sho opened it to the Seijoh page. Suga's round handwriting was at the bottom, under his own crooked lines: *13 is saving it for the end. Told Coach straight away.* And under that, *The sleepy one jumped.*
+
+"Leave it in," said Suga, and went back into the middle of it, where Asahi was trying to peel Tanaka off Noya.
+
+---
+
+That night Sho sat at his desk with the lamp on and the notebook open in front of him.
+
+It was the same cheap gray notebook from the konbini by the shrine, 120 yen, soft at the corners, with 31 pages left. The front of it was April: the 3v3, Hinata's run-up drawn in arrows, Kageyama's hands, Tsukishima's block timing. Then May: the foot thing, before Tokonami. Nekoma, Kuroo, Kenma, the receive pattern of a team that never let a ball drop. Then the Inter-High bracket, Tokonami crossed out, Date Tech crossed out, Oikawa's name starred and *dangerous* underlined twice.
+
+He turned to the 1st blank page.
+
+In the other life he'd always started notebooks with a goal on the 1st page. *Get the starting spot.* *Get to the final.* The last one he'd started was at 20, in a hospital bed, with his leg in a brace from hip to ankle. *Back on court by spring.* He'd never got back on court, that spring or any spring after it.
+
+He picked up the pen.
+
+*Hand up at the burning.*
+
+*Tell Coach 1st.*
+
+*Build the map so I don't need the eye.*
+
+*Listen.*
+
+He looked at the 4 lines. Then he thought about a hallway with a vending machine at the end of it, and a white and teal jacket walking backward, and a coffee can lifted at him like a toast. *Next time, Tall-kun, play all 3 sets. I want to see what you look like when you can see.*
+
+He'd played 8 rallies. Then he'd sat behind glass for a whole set, holding a cold pack.
+
+He wrote the last line at the bottom of the page and underlined it once.
+
+*Play all 3 sets.*
+
+He sat back. The lamp buzzed.
+
+His phone buzzed on the desk beside it.
+
+He'd used 20 minutes of his hour. He picked it up and held it close, just to see.
+
+It was the team group chat. A message from Takeda, sent at 10:52. It was long, and the 1st line said:
+
+*Everyone! I have just got off the phone with Nekoma High School!*
+
+Sho read the 2nd line. Then the 3rd. Somewhere in the 4th were the words *a week of matches in Tokyo, against Nekoma, Fukurodani and others, several sets a day*.
+
+He looked at the line at the bottom of the open page. *Play all 3 sets.*
+
+Then he looked at the phone again, at *several sets a day*, for a long time, with his eyes that worked.
+
+**Continuity (ch 28)**
+
+- Sho POV, Wednesday to Thursday night.
+- Wednesday breakfast: Dad kept Tuesday's paper, folded to the article: Shiratorizawa beat Aoba Johsai in Monday's Miyagi Inter-High final; grainy photo of Ushijima Wakatoshi (3rd year), left arm back; 1 line: Aoba Johsai "pushed the 1st set to deuce" (invented; canon set scores unverified). Whether Oikawa fixed his tell is unknown. Mio: "Good." "He gave me a can of melon soda afterward." "I know. I drank it." Sho: "Thanks, Dad. For keeping it." "Mm."
+- Mom works an office job (navy cardigan, white blouse, ID lanyard); met Sho at the ticket gate at 3:58, watched his feet, turned for the gate.
+- Clinic, Wednesday 4:30: chart to the bottom line; near point much closer; **the fly stood up off the page**. Depth back; convergence "still a bit weak"; **no MRI for now** (same-day scan if it happens like Sunday again). **Cleared:** light practice from Monday; nothing hard till the end of next week; screens 1 hour a day, not before bed. Doctor: "Your husband and the little one were very good."
+- **Warning sign:** burning, then pressure, then depth. Doctor: "Stop at the burning. Every time." Sho: the burning came on the 1st serve he took at 18-20; he held on 8 rallies.
+- Taiyaki (red bean, 2). Mom: "The burning," and waited. Sho: "I'll put my hand up at it... So I'll stop at it." Mom folded the paper small like Dad. Mio will come to watch Saturday practice.
+- Sho texted Ukai from the train (depth back, no scan, light practice from Monday, stop at the burning, hand up at the burning). Ukai: *Good. Watch Thursday. Stage only.*
+- Thursday: stage only. Sho begged Ukai for soft tosses ("5. Underhand." "3?"); Ukai: "Stage." *Observation Haki. Benched.* Hinata and Kageyama still not speaking, running the old quick.
+- 4:50: Takeda fetched Daichi, Suga, Asahi and Kiyoko out of practice. Sho listened with his eyes shut, heard Tanaka's left arm, and told Ukai straight away ("Tell Coach 1st"); Ukai: "I know. Working on it." and called "Tanaka. Left arm. Up."
+- **Canon kept (via search; wording invented):** Takeda talked to the 3rd years about after summer; they stay. Daichi at 5:40, in uniform: "Sensei asked us what we're doing after summer... Most 3rd years quit after Inter-High." "Karasuno went to Nationals once. Before any of us were here. We're going back... We're staying. All of us. Through Spring High." (Kiyoko included.) Tanaka and Noya cried on each other; Hinata "YES!" Ukai: "Then we've got till January. Clean up. Nets down."
+- Sho's sums: June to January, 7 months, about 200 practices; Asahi staying keeps Sho's minutes the same; his hands tight on the notebook anyway.
+- Suga: "English is going to kill me 1st." Sho offered to help with English ("Since April," true in its way). Suga: "Wednesdays. After practice. If you're so good." Suga's handwriting stays in the notebook ("Leave it in.").
+- **The notebook's new 1st page** (31 pages left): *Hand up at the burning. / Tell Coach 1st. / Build the map so I don't need the eye. / Listen. / Play all 3 sets.* (underlined once). Satoshi's last 1st-page goal, at 20 in hospital, leg braced hip to ankle: *Back on court by spring.*
+- Hook: Takeda's group-chat message at 10:52 p.m.: *Everyone! I have just got off the phone with Nekoma High School!* ... "a week of matches in Tokyo, against Nekoma, Fukurodani and others, several sets a day". Details (dates, the exam condition) come in ch 29.
+- No status card.
