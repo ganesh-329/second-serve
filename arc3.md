@@ -3438,3 +3438,402 @@ He'd tell the kid himself, when they got home, at Karasuno, in a room behind the
 - **Night, vending machines, Takeda:** "It's IQ." ... **"And an arm... He's a wing spiker, sensei. He's an ace... He needs 5 kilos... Legs, shoulders. A year of somebody putting bad balls up for him. And the weight room."** "I'll find the key." "That's on me." Ikkei's line ("*That one sees the hit before the hitter does*"), worked on for 3 weeks: "He'd have seen the arm too, from the door."
 - **Nekomata (cardigan):** "I'd like to borrow him tomorrow, after lunch. For half an hour. I have some tape." Ukai: "His doctor gives him 2 hours of screens a day. Don't use them all." "Half an hour. I promise." Nekomata stood in the 3rd gym doorway watching, like Ikkei. Ukai stayed put. **He'll tell Sho at home, in the weight room behind the 1st gym, with the key: "*You're a wing spiker. Act like it.*"** "The key. Don't forget." "I won't."
 - Next: ch 39 "All of it" (Sho): day 7: Nekomata's tape after lunch ("You'd make a fine analyst." "I'd rather play."); Akaashi teaches him hands (Set E to D, status card); the 9:30 call where he tells Mio all of it (including the hand that went halfway up on its own, "No", staying on; playing the wing). The weight-room news is Ukai's to deliver at home (not in ch 39).
+
+## Chapter 39: All of it
+
+At lunch on the 7th day Ukai stopped beside Sho's chair with his tray.
+
+"Nekomata-sensei wants you," he said. "Half an hour, after you've eaten. The staff room. He's got tape." He looked at Sho for a beat. "Half an hour. Then you come back to me."
+
+"Yes, Coach."
+
+Ukai went on to his seat. Tanaka, opposite, leaned over his rice and said in a low thrilled voice, "Nekoma's coach? What did you DO?" and Sho said he didn't know, which was true.
+
+---
+
+The staff room had air conditioning.
+
+It was a small room on the ground floor of Shinzen's main building, with a long table covered in clipboards and score sheets and empty tea cans, a whiteboard with the week's games on it in 3 colors of marker, and, on a trolley in the corner, a television the size of a microwave with a camcorder plugged into the front of it by a tangle of cable. The air conditioner hummed. After 7 days of gyms it felt like walking into a fridge.
+
+Kenma was on the floor in the corner, with his back against the wall and his console on his knees.
+
+He looked up when Sho came in behind Nekomata. His eyes went to Sho's face and then down to his feet. Then back to the console.
+
+"Kozume likes it in here," said Nekomata, pulling out 2 chairs in front of the television. "It's cool and nobody shouts. Sit."
+
+Sho sat. Nekomata sat beside him with the remote, a small old man in a cardigan who smelled of mint sweets and the gym, and pressed play.
+
+---
+
+It was Karasuno against Ubugawa, yesterday's 1st game, filmed high and from the side. 1 of Nekoma's 1st years had been up in the gallery with the camera; Sho remembered seeing him there, a small boy with his elbows on the rail.
+
+"Their #1," said Nekomata. "Watch him."
+
+A plain float coming at #1's chest. Sho watched himself, a small figure in black at the end line, hit it. #1 passed it, and then had to turn and run out to the antenna, late, and Ubugawa's setter looked at him and set the middle instead.
+
+Nekomata paused it.
+
+"Why him?"
+
+"So he has to pass," said Sho. "Then he's late to hit."
+
+"Hm." Play. "And this."
+
+The soft block, from the side. Sho watched himself wait at the net, a beat and a half, his hands up and his knees bent, and then go up late with his hands angled back, and the ball go up off them into his own court, to Nishinoya.
+
+"Who taught you to wait?"
+
+"Nobody yet, sir. I'd jumped too early the time before."
+
+Nekomata laughed, small and dry and pleased, and let it run on: the 2nd-ball set, the bad ball at the antenna and the triple block, the ball coming down off their hands like a stone. 3 rallies later, the ball off the end blocker's little finger and away into the stands.
+
+He paused it there.
+
+"I watched you swing at that triple block," he said. "Full swing. I thought, that boy is either stupid or an ace." He looked sideways at Sho. "Then I watched this 1."
+
+He didn't say which he'd decided. He took the tape out and put another in.
+
+---
+
+This 1 Sho hadn't played in. Fukurodani against Shinzen, from the 3rd day, the same high angle.
+
+Nekomata played a few seconds, a serve going up, a pass coming off somebody's arms, and paused it with the ball in the air.
+
+"Well?"
+
+"Middle," said Sho. "Akaashi-san's hips are square and their middle's already in the air."
+
+Play. Middle.
+
+"Well?"
+
+"Shinzen's #4 on the right. He's been sulking since he was blocked. Their setter's going to give him an easy 1 to bring him back."
+
+Play. #4, an easy high ball, which he hit hard into the floor and then punched the air.
+
+"Well?"
+
+"Tip. Over the block. Bokuto-san's elbow is low."
+
+Tip.
+
+"Well?"
+
+"Line. Back corner. He's hit cross 6 times, their libero's cheating cross, and Akaashi-san knows it."
+
+Line.
+
+It went on. Nekomata paused, and Sho said, and Nekomata played, and it was right, and right, and once wrong, and right. Somewhere around the 8th Sho noticed that he was sitting forward on the chair with his elbows on his knees and his chin out toward the little screen, and that the room had gone quiet apart from the air conditioner, and that he was enjoying himself. Enjoying it the way he'd enjoyed it for 9 years, alone, at night, with a cold coffee going colder beside the keyboard.
+
+His thumb was moving against his knee. A small movement, back and forth. He looked down at it.
+
+It was the movement his thumb made on a rewind button.
+
+He sat back in the chair, and put both hands flat on his thighs.
+
+Nekomata had paused the tape again with the ball in the air. He didn't say "Well?" this time. He was looking at Sho, sideways, with his small bright old eyes.
+
+"You'd make a fine analyst," said Nekomata.
+
+The air conditioner hummed. In the corner, Kenma's console made a small chiming sound and stopped, as if he'd paused it too.
+
+"Thank you, sir," said Sho. "I'd rather play."
+
+Nekomata looked at him a little longer. Then he smiled, all his wrinkles at once, and pressed the button, and the screen went blue.
+
+"Good," he said. "So would I, at your age." He started winding the cable round his hand. "In Tokyo I said lookers get tired. Watching takes it out of you." He glanced at Sho's face, at his eyes, the way a doctor glances. "You don't look tired."
+
+"I'm not, sir."
+
+"Hm," said Nekomata, and put the camcorder in its case. "Half an hour. I promised your coach. Off you go."
+
+Sho stood up and bowed. At the door he heard Kenma's voice from the corner, flat, with his eyes still on the console.
+
+"Your stop's different."
+
+Sho turned round.
+
+"It used to be a dot," said Kenma. "Now it's a circle." He pressed a button. "It's annoying."
+
+"Thank you," said Sho.
+
+"You say that a lot," said Kenma, to the console, and Sho went out into the heat.
+
+---
+
+Karasuno played 4 games that afternoon and lost all 4, but 2 of them by only 2 points, and on the hill afterward Tanaka yelled the whole way up for the 1st time since the 1st day.
+
+Hinata and Kageyama ran the old quick in games, the way Coach had said, and it went in, a lot. Every time it did, Hinata's face did something complicated, pleased and unhappy at once. In the evening, before dinner, the 2 of them went off to a corner of the main gym to run the new 1, eyes open, and it went into the net, and they shouted at each other, and ran it again.
+
+Sho played the wing for a whole set against Nekoma.
+
+It was the 2nd whole set of his life on the wing, and it went the way a 2nd anything goes, worse than the 1st and better. He hit 9 balls. 3 of them went in, 2 were dug by Yaku as if Yaku had been told about them in advance, 2 were blocked, and 2 went out because he swung harder than the set deserved. He served Kuroo, to make Kuroo pass, and Kuroo passed it and grinned at him through the net and called him "Notebook" in a voice that meant he'd liked it. Kenma never sent a ball into Sho's corner on purpose, and never sent it anywhere Sho had crossed out, either.
+
+In the 3rd game, against Fukurodani, Kageyama dug a ball off Bokuto's hand flat out on the floor, and Karasuno had no setter again, and Sho said "MINE!" and got under it and set Asahi the same high ball outside he'd set yesterday.
+
+It went too tight. Asahi had to reach for it, and Fukurodani's block was waiting, and it came straight back down.
+
+Sho looked at his own hands. They were a passer's hands, flat and stiff. They'd pushed the ball roughly the right way, not quite high enough and a bit too close to the net.
+
+On the other side of the net, Akaashi was looking at him.
+
+---
+
+He asked at 6:15, after the last hill, when everybody else was going to the baths.
+
+Akaashi was in the corner of the main gym, alone, picking up stray balls and putting them in the basket, as he did every evening. Sho came across the empty court and picked up the ball nearest his feet and put it in the basket too.
+
+"Akaashi-san. Could you teach me hands? Setting hands. 20 minutes, before the 3rd gym." He bowed. "I'll pay."
+
+Akaashi straightened up with a ball in each hand. "Pay in what?"
+
+"Bokuto-san."
+
+Akaashi's face went still, the way it went still at the top of a set.
+
+"Go on," he said.
+
+"When he's about to go quiet, his approach gets shorter. 1 step. A couple of rallies before."
+
+"I know that 1."
+
+"He touches his hair with his left hand after a hit he doesn't like. If it's his right hand, he's fine."
+
+Akaashi nodded, once.
+
+"And he stops saying your name," said Sho. "When he's happy, he calls *Akaashi!* for the set, every time. The rally before he goes quiet, he still calls for it, but he says *Here!* Or *Hey!* I counted. Against Ubugawa yesterday. On the 2nd night in the 3rd gym. On the 1st day, against us. Every time."
+
+The gym was very quiet. Outside, Tanaka was yelling about the bath.
+
+Akaashi stood by the basket with his hands at his sides, and his eyes went inward, as if he were running back through a great many rallies at once.
+
+"I didn't know that 1," he said at last.
+
+"Then I've paid."
+
+Akaashi picked up a ball from the basket and turned it over in his hands, as he had in the 3rd gym before he'd set Bokuto back to himself.
+
+"Show me your hands," he said.
+
+---
+
+Sho put them up.
+
+"Too flat," said Akaashi. "And too late. You're making the shape when the ball arrives. Make it before." He came and stood beside Sho and put his own hands up above his forehead, fingers spread, thumbs and forefingers making a small window between them. "Like this. Before it comes. So the ball comes into a shape that's already there, and your hands close round it."
+
+Sho made the window.
+
+"The ball touches here." Akaashi touched the pads of his own fingers, the top 2 joints. "The palm's for hitting. These are for setting. Thumbs under it."
+
+He tossed a ball over Sho's head.
+
+Sho set it. It went up, and forward, and came down a meter short of where he'd aimed.
+
+"Your arms did all of it," said Akaashi. "Your arms are tired, you've been passing and hitting all day. Use your legs. Bend, and the ball comes down into your hands, and then you stand up, and the ball goes up because you stood up." He did it slowly, without a ball: knees, hips, then the trunk, arms last, then the wrists, a long smooth push from the floor to his fingertips. "It's like hitting. Upside down. Legs 1st, then the trunk, the arms last. The hands only finish it." He tilted his head, very slightly. "You know how to hit."
+
+Sho stood still.
+
+"I watched yesterday," said Akaashi. He tossed another ball. "Again."
+
+They did 20 sets. Then 20 more. Akaashi tossed and watched and said very little. "Earlier." "Legs." "Your left hand's lazy." "Better." He'd hung a towel on the antenna at the far end of the net, high, at the place where Bokuto liked to hit, and every set went to the towel.
+
+On the 1st 20, 6 came down near enough that a hitter could have hit them.
+
+On the 2nd 20, 11.
+
+On the 3rd 20, he counted for himself, and it was 14. Akaashi made him do 1 more, because the 20th toss had been a bad 1, and the 21st came down beside the towel. 15.
+
+Akaashi caught the last ball as it fell and held it.
+
+"That's enough for 1 day," he said. "Your fingers will hurt tomorrow. That's normal." He put the ball in the basket. "Your back set will be bad for a year. Your front set is ordinary now. For a hitter's 2nd ball, ordinary is enough. Nobody expects anything from a hitter's 2nd ball."
+
+"Thank you, Akaashi-san."
+
+Akaashi took the towel down off the antenna and folded it in half and then in half again.
+
+"*Here,*" he said, quietly, to the towel. "Instead of *Akaashi.*" Then, to Sho: "How long have you been listening to hitters?"
+
+"A long time," said Sho.
+
+Akaashi looked at him, a long plain look. Then he nodded, and went to find Bokuto.
+
+---
+
+He sat on the bench outside the dining hall at 9:30, under the light with the moths, and called home.
+
+"Who'd you play," said Mio.
+
+He told her. 4 games, 4 lost, 2 of them by 2. 4 times up the hill, and Tanaka-senpai yelling the whole way, which meant he was happy. Then the old coach from Nekoma, and the staff room, and the tape.
+
+"He paused it and I said what would happen next. And it did. And he said I'd make a good analyst."
+
+"What's an analyst?"
+
+"Somebody who watches other people play and writes it down."
+
+Mio thought about it.
+
+"You already do that."
+
+"Yes."
+
+"Is it bad?"
+
+"It's a good job. You can do it till you're 80." He looked across the dark grass at the lit windows of the 3rd gym. "I said I'd rather play."
+
+"Good," said Mio. "And?"
+
+"And Akaashi-san taught me to set. With my fingers. My fingers hurt."
+
+"Is that good?"
+
+"He said I'm ordinary now. For me, that's good."
+
+Scratch. "Okay. Eyes."
+
+"Not today."
+
+"Okay." Scratch. "Is that all?"
+
+He sat with the phone against his ear.
+
+He'd decided on the hill, on the 3rd time up, with his legs full of sand.
+
+"No," said Sho. "Yesterday something happened that I didn't tell you."
+
+The line went quiet.
+
+"What?"
+
+"In the 1st game, Coach put me on the wing. The whole set. Hitting. And today again, against Nekoma."
+
+"Is that good?"
+
+"It's where I want to be," said Sho. "It's where I'm supposed to be. I've been passing all summer because I'm good at passing and the team needs it."
+
+"That's not a reason," said Mio at once.
+
+"Why not?"
+
+"You're good at maths. You don't do maths club." A pause. "Did you hit it?"
+
+"Yesterday I hit it into 3 people and it came straight back down on my head. And then 3 rallies later I hit it off the edge of 1 of them and it went into the crowd. Today I hit 9. 3 went in."
+
+"So that's bad."
+
+"It's still bad. It's where I want to be."
+
+Scratch. "What else."
+
+He looked at the moths.
+
+"In the same game yesterday," he said, "near the end. The eye came. I told you that. It didn't hurt. I told you that too. But after the rally, my hand went up. By itself. Halfway. Like I was going to put it up for Coach, the way I'm supposed to if it burns. But it didn't burn. My hand just went."
+
+He heard her breathing.
+
+"You told me the eye," said Mio slowly. "Yesterday. You didn't tell me the hand."
+
+"No."
+
+"That was yesterday."
+
+"Yes."
+
+"You said all of it." Her voice had gone very small and very fierce. "You promised. After counts, if you tell me after. All of it. Or I win."
+
+"I know," said Sho. "You win. 5 puddings."
+
+There was a long silence on the line. He could hear the television in the living room at home, low, and Mom saying something to Dad.
+
+"Did you come off?" said Mio at last. "When your hand went up."
+
+"Coach came to the line. He asked if it was burning. I checked. Properly. Like you check your pocket for your keys. And it wasn't. So I said no. And he said, *Then stay on.*"
+
+Another silence. Then, very carefully, the way she said things she was working out as she went:
+
+"So your hand's scared."
+
+He opened his mouth. Closed it.
+
+"Your eyes are fine," said Mio. "The doctor said 120. It didn't hurt. So it's your hand. Your hand's scared it'll burn again, so it goes up in case."
+
+He sat on the bench with the phone against his ear and the moon going white over the hill, and thought about a gym in Osaka, and floor wax, and a setter calling his name.
+
+"Maybe," he said.
+
+"Then tell it it's fine," said Mio. "When it does it. Say, *it's fine, you can go down.*" A pause. "And if it's not fine, put it all the way up."
+
+"Okay."
+
+"Promise."
+
+"I promise."
+
+Scratch. Scratch. A long scratch.
+
+"What are you writing?"
+
+"8," said Mio. "*Hand goes up when he's scared.* And I put *(GOOD)* after it. In brackets."
+
+He laughed. It came out of him all at once on the bench under the light, and a moth flew into his face, and he laughed harder.
+
+"What?" said Mio, offended. "It IS good."
+
+"I know. I know it is."
+
+Scratch.
+
+"4 puddings," said Mio.
+
+"You said 5."
+
+"4. Because you told me today. Today counts a bit." A pause. "Is that all of it?"
+
+He sat there and checked, properly, the way he'd checked for Coach.
+
+"That's all of it," said Sho.
+
+---
+
+He was still on the bench when Hinata came past at a run in his practice clothes, his hair wet from the bath and sticking up in every direction, heading across the dark grass toward the 3rd gym.
+
+He saw Sho and skidded to a stop.
+
+"Kiyose! I asked Bokuto-san! At dinner! I asked him to teach me how to fight in the air, and he said YES!" He was bouncing on his toes. "You go every night, right? Come on! Come and watch at least!"
+
+"I've just come out."
+
+"Come back in!" Hinata was already running backward across the grass. "He said 3 on 3! He said it's going to be cool!"
+
+The door of the 3rd gym banged open, and Bokuto's voice came out into the dark like a foghorn.
+
+"HEY HEY HEY! KARASUNO'S 10! YOU CAME!"
+
+Hinata turned and ran.
+
+Sho stayed on the bench, looking at the lit door. His fingertips ached.
+
+Then he got up, and went to watch.
+
+```
+[Kiyose Sho]
+Age: 15 | Height: 182cm | Karasuno #13
+Power: C   Jump: B   Speed: C   Stamina: B
+Reception: C   Serve: D   Block: E   Set: D (from E)
+Mentality: B   Shamelessness: S
+Emperor's Eye: Partial awakening
+Meta Vision: Scanning
+```
+
+**Continuity (ch 39)**
+
+- Sho POV, day 7 of the 8-day Shinzen camp. **Status card: Set E to D** (Akaashi's sets to the towel: 6/20, 11/20, 14/20 plus a redo = 15; "Your front set is ordinary now"). No eye that day.
+- **Lunch:** Ukai: "Nekomata-sensei wants you. Half an hour... He's got tape... Then you come back to me." Tanaka: "Nekoma's coach? What did you DO?"
+- **Staff room (air conditioning; TV on a trolley; camcorder; Kenma in the corner):** Tape 1: Karasuno vs Ubugawa, day 6, filmed from the gallery by a Nekoma 1st year (Nekoma has no manager). "Why him?" "So he has to pass. Then he's late to hit." The soft block ("Who taught you to wait?" "Nobody yet, sir. I'd jumped too early the time before."). The 2nd-ball set; the triple block; the tool. **Nekomata: "I watched you swing at that triple block... that boy is either stupid or an ace... Then I watched this 1."** (undecided aloud). Tape 2: **Fukurodani vs Shinzen, day 3 (a game Sho didn't play):** "Well?" calls with the ball paused: middle (Akaashi's hips), Shinzen #4 sulking gets an easy 1, Bokuto tip (low elbow), line (libero cheating cross); right, right, once wrong, right. **Sho's thumb made the rewind motion; he sat back, hands flat.** **"You'd make a fine analyst." "Thank you, sir. I'd rather play."** "Good. So would I, at your age." **"In Tokyo I said lookers get tired... You don't look tired." "I'm not, sir." "Hm."** **Kenma: "Your stop's different... It used to be a dot. Now it's a circle. It's annoying." "Thank you." "You say that a lot."**
+- **Day 7 games:** 4 lost, 2 by 2 points; Tanaka yelled up the hill. Hinata and Kageyama ran the old quick in games (worked) and the new 1 in a corner before dinner (theirs). **Sho on the wing a whole set vs Nekoma (his 2nd on the wing): 9 swings, 3 kills, 2 dug by Yaku, 2 blocked, 2 out (swung harder than the set deserved); served Kuroo to make him pass ("Notebook").** Kenma never sent a ball into his corner on purpose or anywhere he'd ruled out. **Vs Fukurodani: 2nd-ball set to Asahi too tight; stuffed.** Akaashi watched.
+- **Akaashi, 6:15 (picks up balls every evening):** "Could you teach me hands?... I'll pay." "Pay in what?" "Bokuto-san." Tells: shorter approach ("I know that 1"); left hand to the hair (a nod); **"*Here!*" instead of "*Akaashi!*" the rally before he goes quiet (vs Ubugawa day 6; 2nd night in the 3rd gym; day 1 vs Karasuno). "I didn't know that 1." "Then I've paid."**
+- **Akaashi's hands:** make the shape before the ball arrives (small window between thumbs and forefingers; hands close round the ball); pads of the top 2 joints ("The palm's for hitting. These are for setting."); thumbs under; legs first ("It's like hitting. Upside down... You know how to hit." "I watched yesterday."); "Earlier." "Legs." "Your left hand's lazy." Towel on the far antenna where Bokuto hits. "Your fingers will hurt tomorrow... Your back set will be bad for a year. Your front set is ordinary now... Nobody expects anything from a hitter's 2nd ball." **"*Here.* Instead of *Akaashi.* How long have you been listening to hitters?" "A long time."**
+- **9:30 call, "All of it":** scores; Nekomata ("You already do that." "Is it bad?" "It's a good job. You can do it till you're 80... I said I'd rather play." "Good."); Akaashi ("ordinary"). Eyes: "Not today." **"Yesterday something happened that I didn't tell you":** the wing ("It's where I want to be. It's where I'm supposed to be... passing all summer because I'm good at passing" / Mio: "That's not a reason... You're good at maths. You don't do maths club."); stuffed then tooled; today 9 swings, 3 in. **The hand halfway up: "You told me the eye. Yesterday. You didn't tell me the hand... You promised... Or I win." "I know. You win. 5 puddings."** (ch 26 terms.) "*Then stay on.*" **Mio: "So your hand's scared... Then tell it it's fine... And if it's not fine, put it all the way up." "Promise." "I promise."** Osaka image (gym, floor wax, a setter calling his name). **Notebook: *8. Hand goes up when he's scared. (GOOD)*** Sho laughed (moth in the face). **"4 puddings... Because you told me today. Today counts a bit."** "That's all of it."
+- **Hook:** Hinata (asked Bokuto himself at dinner; canon ch 91: Hinata goes to Bokuto; Bokuto's lessons to Hinata are Hinata's): "I asked him to teach me how to fight in the air, and he said YES!... 3 on 3!" Bokuto: "HEY HEY HEY! KARASUNO'S 10! YOU CAME!" Sho's fingertips ached; he went to watch.
+- Ace path: Nekomata's "stupid or an ace"; Akaashi's "You know how to hit"; 2nd whole set on the wing (3/9); Sho to Mio: "It's where I'm supposed to be." Ukai hasn't told him yet (weight room at home).
+- Next: ch 40 "Owls and cats" (Sho): night 7, the 3rd gym; the canon 3v3 (canon lineups; Bokuto's feint and "use the block" lessons to Hinata are Hinata's); Sho watches; then (invented) a 2nd 3v3 where he plays on the map only ("3 people. I can hold 3.") and it's fun; late on things and laughs. Hinata: "What's yours?"
