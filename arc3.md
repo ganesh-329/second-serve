@@ -20,7 +20,7 @@ They got the net out of the storage room. It was a 2-person job, and for a week 
 
 They passed. Back and forth across the net, slow, the ball going up and down between them in the blue light from the high windows. Tanaka in his FIGHTING SPIRIT shirt with the backward R, yelling "NICE!" when Sho passed it to him and "MINE!" when it came back, as if there were anybody else in the gym it could belong to.
 
-After a while Tanaka started hitting it at him instead, slow down-balls: 1, then another, a little to Sho's left, then a little to his right, then 1 short, dropping in front of him. Sho got his feet to all of them and his arms under all of them, and the ball went up, 1 after another, and came down in Tanaka's hands on the other side of the net.
+After a while Tanaka started hitting it at him instead, slow down-balls, 1 a little to Sho's left, then a little to his right, then 1 short, dropping in front of him. Sho got his feet to all of them and his arms under all of them, and the ball went up, 1 after another, and came down in Tanaka's hands on the other side of the net.
 
 At 5:40 Tanaka caught the ball and stood holding it.
 
