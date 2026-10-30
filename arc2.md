@@ -4527,3 +4527,370 @@ Sho stood with his back against the sink and his hand on the cold edge of it.
 - Eye clinic near the station, open Sundays until 6 (Dad found it; Takeda wrote the school's details). Takeda left Sho at the sink to fetch Dad from the entrance ("5 minutes. Don't move from this spot.").
 - Ends at the sink with 2 taps: Oikawa crouched at the vending machine, waiting. Sho speaks first: "Oikawa-san." Ch 25 (Oikawa POV) picks up there.
 - No status card.
+
+## Chapter 25: Tall-kun
+
+Oikawa stood up.
+
+He did it slowly, with 1 hand on the vending machine, the way people stand up after a long day in a car. He had 2 cans in his other hand. He looked at Sho with his head a little on 1 side, and then he smiled. It was a smaller smile than the one from the handshake line.
+
+"You talk first now," he said. "I wondered if you would."
+
+Sho kept his back against the sink.
+
+Oikawa held out 1 of the cans. It was cold enough that water had beaded on it. Sho reached for it and his hand went a little to the left, and Oikawa moved the can into his hand so he didn't have to reach again.
+
+"For your eyes," said Oikawa. "It's the melon one."
+
+"Thank you."
+
+Sho held it against his left eye. The cold went through the lid into the ache behind it, and the ache backed off a little, the way it had under the cold pack.
+
+"The left one's worse," said Oikawa.
+
+"Yes. A bit."
+
+"You were looking at my ear at the handshake." He opened his own can, a coffee, and drank some. Up close he looked tired. His hair was damp at the front, and there was a red mark on his forearm the shape of a ball. "And at 21 all in set 2 you stopped looking at people. Only the ball, after that. Like an ordinary player. I've watched you look at everybody for 2 days, Tall-kun, and then at 21 all you stopped. That's when I knew something was wrong with you."
+
+Down at the far end of the hallway a figure had come round the corner with 2 bags over his shoulder and stopped there, leaning on the wall. Spiky hair. Iwaizumi. He didn't come any closer. Oikawa had his back to him and didn't seem to know he was there.
+
+"My 4th serve," said Oikawa. "At 17-20. You moved before I hit it."
+
+"I'd watched you serve a lot. Yesterday, and this morning."
+
+"About 40 girls upstairs have watched me serve a lot." Oikawa turned the coffee can in his fingers. "You moved after I tossed and before I hit. Iwa-chan doesn't do that, and he's watched me serve for 12 years. Tobio-chan doesn't." He looked at Sho over the can. "I thought about it all through set 3. I'm going to think about it in the bath."
+
+Sho could tell him some of it. Nobody was getting the eye. The rest, the notebook part, was only work, and Oikawa of all people would know it was only work.
+
+"You look at the gap," said Sho.
+
+Oikawa stopped turning the can.
+
+"When you're going to serve at a seam between 2 people, you look at it once. Before you start walking in. Then you look at nothing, and you don't look at it again." Sho lowered the can. "I wrote it down yesterday, from the rail, in your 1st match. You did it 6 times. You did it in set 1 to Tanaka-senpai. You did it at 17-17 today."
+
+He heard himself say *17-17*, and stopped.
+
+At 17-17 Oikawa had looked at the seam between Asahi and Daichi, and Sho had been sitting on the bench with the notebook in his pocket, and he hadn't said anything to Ukai. Oikawa had served 3 times. Karasuno had lost all 3. It had taken a timeout and Ukai looking down the bench before Sho stood up.
+
+And now he'd handed it to Oikawa. Across a sink. Before he'd ever told his own coach.
+
+Oikawa was quiet for a while.
+
+"Do I," he said.
+
+"Every time I saw."
+
+Oikawa laughed. It came out of him all at once, short, surprised, and he put the back of his wrist against his mouth when it was over.
+
+"3 years," he said. "My coach never said it. Iwa-chan never said it." He looked at Sho as if Sho were a shop that had turned out to sell something he needed. "Why would you tell me?"
+
+"Because I want something for it."
+
+"Ah." Oikawa's face went bright. "Of course you do."
+
+"You said I stopped looking at people at 21 all. What else did you see? In set 2."
+
+Oikawa leaned his shoulder on the vending machine. The light from the machine's front made the side of his face blue.
+
+"When you're fresh, you look at everybody before every rally. Very fast. You only move your eyes. It's hard to see." He tapped his own temple. "I only caught it because I do it. And in set 2, after you came on, there was something else. You'd look at 1 person. Just 1. Right before they did anything, you'd go still and look at them, and you'd already be moving. Like somebody had told you where to go."
+
+His smile went away while he said it. It went slowly, the way a light goes off on a timer.
+
+"That one's strange," said Oikawa. "I don't know what that one is."
+
+Sho kept the can on his eye.
+
+"And when it goes, you squint," said Oikawa, and the smile came back, the ordinary one. "At 21 all you started squinting before you jumped. By the end you were blocking with your hands up too early. You hit me at 24-23 with your eyes half shut." He drank some coffee. "That was a good hit. Rude, but good."
+
+"Thank you."
+
+"Now you'll be thinking about squinting. Every time you jump." Oikawa smiled at him over the can. "It's very hard to hit when you're thinking about squinting."
+
+It was the same thing he'd done this morning with the chin. Sho knew it, and knew he'd be thinking about squinting anyway.
+
+Oikawa's eyes went to the back pocket where the notebook was. Then to Sho's face.
+
+"Whatever the strange one was, it cost you. You couldn't find your bench. You sat through set 3 holding a cold thing on your face. And you knew, and you kept going." He said it like reading out a list. "How many rallies? 10?"
+
+"8."
+
+"8." Oikawa nodded. Then he bent and pulled up the right leg of his track pants, to just above the knee.
+
+There was a brace on it. Black, with a hole for the kneecap and straps above and below, worn soft at the edges. Sho had seen it before, at warm-ups, from the rail. Half the players in the building wore 1. He hadn't written it down.
+
+He looked at it now, close, with his bad eyes, and his own left knee went cold.
+
+"2nd year," said Oikawa. "I was very sure I'd be fine after." He let the leg of his pants drop.
+
+The water in the pipe behind the sink ticked.
+
+*Tape it tighter,* thought Sho. *Tell nobody. It's only pain.* He'd thought that in Osaka, at 20. He'd thought something very like it at 17-20 today, with his eyes burning: *It's only 1 set.* As if the number made it different.
+
+"Did you tell anybody?" said Sho. "In your 2nd year."
+
+Oikawa smiled, the small one. "Somebody found out."
+
+"Oi. Shittykawa."
+
+Iwaizumi had come down the hallway. He'd been at the far end long enough to see the knee, and he looked at Oikawa's leg now, where the pants covered it again, and then at Sho, and at the can, and at Sho's eyes.
+
+"Bus. Now. Coach is counting." He held out Oikawa's bag, and Oikawa took it. To Sho he said, "Don't take advice from him about that. He's the worst person in Miyagi to ask."
+
+Then he stayed where he was, which Sho hadn't expected.
+
+"The line shot. In set 2. You looked at my hand."
+
+"Yes. Sorry."
+
+"Don't be sorry. I fell for it." Iwaizumi said it flatly, without any heat in it at all. "Next time you look at my hand, I'll leave it there." He hitched his own bag up. "Look after your eyes."
+
+He walked off up the hallway. Oikawa went after him, and stopped, and turned round and walked backward a few steps, the way he had at this same sink this morning.
+
+"We play Ushiwaka next," he said. "Shiratorizawa."
+
+"I know."
+
+"So I'll fix the looking thing tonight." He lifted the coffee can at Sho like a toast. "Next time, Tall-kun, play all 3 sets. I want to see what you look like when you can see."
+
+He went round the corner after Iwaizumi. Sho heard Iwaizumi say something short, and Oikawa say "*Iwa-chan,*" and then a door.
+
+Sho stood with the melon can against his left eye.
+
+*Play all 3 sets.*
+
+He'd just given away Oikawa's tell for nothing but a list of his own faults. Oikawa would fix it tonight. Ushijima would never know he'd had it. And Ukai, who'd told him to say things right away, still didn't know it existed.
+
+He took the notebook out of his back pocket and held it close to his face and wrote, crooked, across the bottom of the Seijoh page: *Oikawa looks at the gap. Tell Coach.* Then, under that: *I squint.*
+
+---
+
+Takeda came back 1st, walking fast, and then Dad behind him, and then, behind Dad, Mio, who had been told to walk behind Dad and was doing it about 30 centimeters to 1 side so she could see past him.
+
+"Kiyose-kun. You stayed. Good." Takeda put a hand on his chest, breathing. "I gave your father your bag from the bench. Everything's in it. I checked."
+
+"Thank you, sensei."
+
+Dad stopped in front of him. He had Sho's bag over his shoulder, and in his other hand the carton of milk, with the straw still in it.
+
+"Can you walk?"
+
+"Yes. Slowly."
+
+"Mm."
+
+Mio had come round Dad's side. She was looking up the hallway at the corner where Oikawa had gone.
+
+"That was the face one," she said. "From the fans."
+
+"Yes."
+
+"What did he want?"
+
+Sho thought about it. "To talk about serves."
+
+Mio looked up the hallway a while longer with her mouth flat. Then she took the can out of his hand, felt that it was still cold, and gave it back.
+
+---
+
+The clinic was on the 3rd floor of a building beside Sendai Station, above a pharmacy and a shop that sold reading glasses. It smelled the way all clinics smelled, of hand soap and the plastic covers on the chairs. There was 1 other patient in the waiting room, an old man asleep with a newspaper over his chest. A TV in the corner showed a baseball game with the sound off.
+
+Dad gave the insurance card and filled in the form at the counter, holding the clipboard at arm's length. Mio sat next to Sho on the plastic chairs and swung her feet and watched the baseball.
+
+They waited 20 minutes. The can had stopped being cold, and Sho kept it on his eyes anyway.
+
+"Kiyose-san."
+
+The doctor was a woman about Mom's age with short hair and reading glasses pushed up on her head. She looked at Sho, and at Dad, and at Mio, and said, "All of you?"
+
+"Mm," said Dad.
+
+"Fine. It's a small room. The little one sits on the stool."
+
+Sho gave Mio the can to hold. She sat on the stool with it in her lap and her arms folded over it.
+
+The doctor did the ordinary things 1st. A chart on the wall, letters getting smaller, 1 eye and then the other. Sho read them all down to the bottom line, slowly. Then a machine he rested his chin on, while she looked into each eye with a light that turned the whole world white and purple, and said "Look up. Down. Left. At my ear." Then a small handheld lens, close, for a long time, at the back of each eye. Then she held up a pen at arm's length and moved it toward his nose, and asked him to say when it went double.
+
+It went double a long way out.
+
+"Hm," said the doctor, the way the nurse at the gym had.
+
+She gave him a pair of glasses with strange gray lenses and opened a booklet on the desk in front of him. On the page was a fly. A huge housefly, printed in blurry gray, with wings as big as his hand.
+
+"Pinch its wings."
+
+Sho looked at it. It was a picture of a fly on a page.
+
+"With your fingers," said the doctor. "Go on."
+
+He reached out and pinched the wings flat against the paper.
+
+Behind him, from the stool, there was a small hiss, the sound of a can being opened slowly, by somebody who hoped nobody would hear. Nobody turned round.
+
+The doctor took the gray glasses off him and handed them to Mio. "You try. Pinch the wings."
+
+Mio put them on. She looked at the page, and her mouth opened, and her hand went out and stopped in the air above the paper, a few centimeters above it, and her fingers closed on nothing.
+
+"It's sticking up," she said. "Off the page. Like it's real."
+
+"That's right," said the doctor. She took the glasses back. "With both eyes working together, the wings come up off the page. That's depth. Your brother's eyes aren't working together right now, so for him it's flat."
+
+Mio sat back on the stool and put her hands under her legs.
+
+The doctor wrote for a while. Then she pulled her reading glasses down and looked at Sho over them.
+
+"Your eyes are healthy. I've had a good look at the back of them, and nothing's torn and nothing's bleeding in there. But they're exhausted. The muscles that turn them inward and focus them have worked much too hard for much too long, and they've stopped cooperating. It's like holding a heavy bag out at arm's length. You can do it. Then your arms start to shake, and you drop it." She tapped her pen on the desk. "What were you doing?"
+
+"Watching a volleyball match," said Sho. "From on the court. I was trying to see everything at once. Really hard. For a long time."
+
+"Did anything hit your head today?"
+
+"No."
+
+"Ever?"
+
+Sho opened his mouth, and Dad said, from the wall by the door, "A ball. In April. In the face."
+
+The doctor looked at Dad, then back at Sho. "Bad?"
+
+"A nosebleed," said Sho. "It swelled up. I was fine the next day."
+
+The doctor wrote that down. "And has this happened before? This, today, the depth?"
+
+The room was very small. Dad was against the wall with Sho's bag still on his shoulder. Mio was on the stool with the can.
+
+Sho counted. The 3v3, in April: Hinata's 1st freak quick, and then again, twice in 1 set, and afterward 3 minutes where the floor wouldn't stay still. Nekoma, at the end of the camp, twice, no cost he'd noticed. Date Tech, once. Today. 4 times the eye had come. Twice it had taken something back.
+
+"Something like it has happened 4 times," he said. "Since April. Counting today. Only once before was it like this, and that was a few minutes."
+
+At the wall Dad's head came up, at the number.
+
+"4," said the doctor.
+
+"Yes."
+
+She wrote it down. Then she put the pen down and folded her hands on the desk, and her voice changed a little, the way Mom's did when she'd stopped asking and started telling.
+
+"No sports where things fly at your face for 3 days. No phone, no TV, no reading in bed. Sleep. Come back on Wednesday after school and we'll do the fly again. If the depth isn't back by Wednesday, or if this happens again and lasts as long as today, I'm going to send you for a scan. An MRI, at the university hospital." She looked at Dad. "With the ball in April, I'd want to see behind the eyes. Just to be sure."
+
+"Mm," said Dad.
+
+"It's probably nothing. It's probably a boy who looked too hard at a volleyball game." The doctor picked her pen back up. "But I don't like *4 times since April.*"
+
+---
+
+They came out onto the street at a quarter to 6. The air was thick and warm and smelled of rain that hadn't fallen yet, and of the yakitori place on the corner, and of buses. Mio gave the melon can back to Sho on the stairs on the way down. It was light. He didn't say anything about that, and neither did she.
+
+Takeda had sent Dad a message while they were inside. Dad read it under the awning with his phone at arm's length.
+
+"Your coach is buying them dinner. A place by the school. Your teacher says come if you can."
+
+"Can I?"
+
+Dad put the phone away. "I'll take you."
+
+They took the train back, 25 minutes, standing, because the Sunday train was full of families. Dad held the strap. Sho held the pole with both hands and kept his eyes shut, because the stations going by the window came at him in flat slices, like cards being dealt. Mio stood between them and held on to the bottom of Dad's jacket.
+
+At their own station they walked. Dad on the road side with Sho's bag. Mio in the middle. Sho on the inside, close to the shop windows, because the edge of the curb was still hard to judge, and he'd rather walk into a window than off a curb.
+
+"4 times," said Dad.
+
+"Yes."
+
+"Mm."
+
+They waited at a crossing. The light was red for a long time.
+
+"Your mother's going to ask you tonight," said Dad. "How many."
+
+"...I know."
+
+"Tell her 4."
+
+The light went green, and they crossed.
+
+Sho had been going to tell her *a couple of times*. He'd been going to say it lightly, the doctor said it was nothing, and then eat. He'd had it planned since the first aid room, the way he planned everything, and Dad had taken it apart in 3 words at a traffic light.
+
+Mio was twisting the strap of her little bag round 1 finger, and then the next one, and then back.
+
+Outside a shop selling umbrellas, with the 1st few drops starting to hit the awning, Dad said, "You were good."
+
+Sho looked at him.
+
+Dad was looking ahead, at the street, walking the way he always walked, a bit slow, with Sho's bag bumping against his hip.
+
+"In set 2," said Dad. "When you went on. You were good."
+
+Dad had looked up the libero rules on his phone in April and asked 1 question at dinner. He'd moved his fan to dry a jersey. He'd come to 2 days of matches and sat on the far side so he wouldn't be seen. Sho had never once heard him say what he thought of any of it.
+
+"Thanks, Dad."
+
+"Mm," said Dad.
+
+---
+
+The restaurant was on the corner across from Karasuno's back gate, a small place with a red curtain over the door and a hand-written menu taped inside the window. Everybody at Karasuno knew it. You went there after exams, or when someone's parents were away.
+
+Through the window Sho could see a long table, and black track jackets all down both sides of it, and steam coming up off plates. Nobody was eating.
+
+Dad stopped on the pavement and held out the bag. Sho took it.
+
+"Call me," said Dad. "I'll come back."
+
+"I'm coming in," said Mio.
+
+"No."
+
+"Why not?"
+
+"It's his team," said Dad.
+
+Mio looked at Dad. Then at Sho.
+
+"You didn't answer," she said.
+
+Sho knew what she meant. The first aid room. *If you do it on purpose, it counts.* He'd said *I won't quit*, which was a different answer, and she'd noticed.
+
+"I know," he said.
+
+"And it was 4 times. You never said. You said it only hurt when I poke it."
+
+"That was about my arms."
+
+"It's the same."
+
+Sho didn't have anything to say to that, because it was.
+
+The rain was coming down properly now, fat drops making dark spots on the pavement around her shoes. She didn't move out of it.
+
+"Answer at home," said Mio. "A proper one."
+
+Dad put his hand on her head and turned her toward the station, and they walked off together under the rain. Mio looked back once.
+
+Sho dropped the empty melon can in the bin by the door. Then he pushed the red curtain aside and slid the door open, and the noise of the kitchen came out at him, the hiss of something on a griddle, and the smell of pork and sauce and rice.
+
+12 boys in black jackets sat at the long table with full plates in front of them. Between Tanaka and Suga there was a gap on the bench, with a plate in front of it, and chopsticks laid across a bowl of rice that nobody had touched.
+
+At the head of the table Ukai looked up and saw him in the doorway. He looked at Sho's eyes, and at the bag on his shoulder, and at the rain on his hair.
+
+"Sit down," said Ukai. "Eat first."
+
+**Continuity (ch 25)**
+
+- Sho POV. POV chapters are now unscheduled surprises (bible "POV chapters"). Ch 25 covers the sink after the match, the eye clinic, the train home and the walk to the team dinner. Sunday, about 4:30 to 6:45 p.m.
+- Sink: Oikawa stood up slowly with 2 cans and gave Sho a cold melon soda for his eyes. He called Sho "Tall-kun". He'd noticed Sho looking at his ear at the handshake, and that at 21 all in set 2 Sho stopped looking at people ("That's when I knew something was wrong with you."), and that Sho moved after the toss and before contact on the 4th serve at 17-20 ("Iwa-chan doesn't do that, and he's watched me serve for 12 years.").
+- Sho gave Oikawa his tell: before a serve at a seam, Oikawa looks at the gap once before he walks in, then never again (Sho saw it 6 times in Seijoh's day 1 match, in set 1 at Tanaka, at 17-17 in set 2). Sho realized he'd given it to the opponent before his own coach (at 17-17 he'd sat on it and Karasuno lost 3 serves). "Why would you tell me?" "Because I want something for it." "Ah. Of course you do."
+- What Oikawa told Sho: fresh, Sho scans everyone with only his eyes; in set 2 he'd also go still and look at 1 person just before they acted and already be moving ("That one's strange. I don't know what that one is." His smile went off while he said it.); when it goes, Sho squints before he jumps and blocks too early; the 24-23 hit was "with your eyes half shut... Rude, but good." The needle: "Now you'll be thinking about squinting... It's very hard to hit when you're thinking about squinting." Oikawa knows something strange exists and has no name for it. The eye stays secret.
+- Oikawa's right knee brace [memory: canon brace from overwork; the year of the injury is unverified]: he showed it without explaining. "2nd year. I was very sure I'd be fine after." "Did you tell anybody?" "Somebody found out." Sho's own left knee went cold (Satoshi's knee was the left).
+- Iwaizumi watched from the far end of the hallway, saw the knee: "Don't take advice from him about that. He's the worst person in Miyagi to ask." On the set 2 line shot: "I fell for it... Next time you look at my hand, I'll leave it there." "Look after your eyes."
+- Oikawa leaving, walking backward (as at the sink this morning): Seijoh plays Shiratorizawa next; "So I'll fix the looking thing tonight." "Next time, Tall-kun, play all 3 sets. I want to see what you look like when you can see."
+- Notebook, crooked, bottom of the Seijoh page: *Oikawa looks at the gap. Tell Coach.* and *I squint.*
+- Takeda gave Dad Sho's bag from the bench. Dad carried Kageyama's milk (straw still in it). Mio: "That was the face one. From the fans." Sho: "To talk about serves."
+- Clinic: 3rd floor beside Sendai Station, above a pharmacy. Doctor: woman about Mom's age, short hair, reading glasses on her head. Dad handed over the insurance card. Tests: chart (all lines, slowly), slit lamp, handheld lens at the back of each eye, pen-to-nose (double far out), Titmus fly (Sho pinched the flat page; Mio, with the glasses, pinched the air: "It's sticking up. Off the page."). Mio opened the melon can on the stool during the fly test; nobody turned round. Diagnosis: healthy eyes, exhausted convergence and focusing muscles (heavy-bag image). Head injury question: Dad: "A ball. In April. In the face."
+- Sho's count (thought): the eye has fired 4 times (3v3 in April; Nekoma, twice; Date Tech; today). Twice it took something back (3v3, about 3 minutes of lost depth; today). He told the doctor: "Something like it has happened 4 times. Since April. Counting today. Only once before was it like this, and that was a few minutes." Dad and Mio already knew it had happened before (ch 23); the number was new. Dad's head came up at it.
+- Orders: no sports where things fly at your face for 3 days; no phone, TV or reading in bed; sleep; back on Wednesday after school for the fly test. If the depth isn't back by Wednesday, or it happens again and lasts as long: MRI at the university hospital ("With the ball in April, I'd want to see behind the eyes."). "I don't like *4 times since April.*"
+- Train home, 25 minutes, standing; Sho kept his eyes shut (stations "like cards being dealt"); Mio held the bottom of Dad's jacket. Walk from their own station: Dad road side, Mio middle, Sho by the shop windows.
+- Dad: "4 times." "Your mother's going to ask you tonight. How many." "Tell her 4." (Sho had planned to say *a couple of times*.) Outside an umbrella shop: "You were good. In set 2. When you went on." The 1st thing Sho has heard Dad say about his volleyball. "Thanks, Dad." "Mm."
+- The restaurant: corner across from Karasuno's back gate, red curtain, handwritten menu. Takeda texted Dad. Mio not allowed in ("It's his team."). Mio: "You didn't answer... it was 4 times. You never said. You said it only hurt when I poke it." "That was about my arms." "It's the same." "Answer at home. A proper one." Rain.
+- Inside: 12 boys in black jackets, full plates, nobody eating; a gap on the bench between Tanaka and Suga with a plate and an untouched bowl of rice. Ukai: "Sit down. Eat first." (The talk he owes Sho comes after.)
+- Owed in ch 26: the dinner (Takeda's speech, the team crying over the food, canon); Ukai's talk; telling Mom "4" with his nose like that; Sho's real answer to Mio; telling Ukai about Oikawa's tell. Then 3 days off; Wednesday clinic.
+- No status card.
