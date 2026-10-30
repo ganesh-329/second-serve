@@ -3089,3 +3089,352 @@ Takeda wrote it on the clipboard.
 - **Night 5 call:** "Bokuto-san. And Kuroo-san's hands." "If you stand at the edge of where his hands are, the ball comes to you." "That doesn't make sense." "It does when you do it." "6. Out of about 60." "Still bad. Better." **"Tonight I asked... And it came." "Did it hurt?" "No." "Then ask it again tomorrow." "It might not come." "Then ask it nicely."**
 - **Ukai and Takeda pass (lighter, clipboard):** Ukai sees Sho's forearms purple to the elbow. "3rd gym?" "Yes, Coach." **"Tomorrow. 1st game. He starts. Whole set."** Takeda wrote it down. "Hm."
 - Next: ch 38 "Hand up" (**surprise Ukai POV 2**): day 6 from the bench; Ukai watches Sho play a whole set and sees a 1st year become an all-rounder (the dig, the block that waits, a 2nd-ball set, the serve at the right man, standing at the edge of the block's shadow); once, out of habit, Sho's hand twitches toward the rule: "Burning?" "...No." "Then stay on." Ukai's word: IQ. Hinata and Kageyama "back in action" around here (canon ch 90; theirs).
+
+## Chapter 38: Hand up (Ukai)
+
+Ukai Keishin couldn't sleep on a futon. He never had. At home he slept on a proper bed above the shop, with the delivery trucks going past at 4 and the fridge compressor downstairs going on and off all night, and that was fine. On a classroom floor in Saitama, with 13 teenagers snoring and Takeda talking in his sleep about lesson plans, he lay awake from 3 and gave up at 5:30.
+
+By 6 he was standing at the vending machines outside Shinzen's main gym with a can of black coffee and a cigarette he hadn't lit. He held it between 2 fingers anyway. It gave his hand something to do.
+
+The mist was still lying in the trees. Through the high windows of the gym he could see 3 figures and hear the thump of balls. The small 1 at the service line was Nekoma's libero, Yaku. The enormous 1 in the middle of the court, arms everywhere, was Nekoma's new middle, Lev. And the 3rd, standing a little apart from Lev with his weight easy and his arms out, was his own 1st year.
+
+Kiyose.
+
+Ukai watched him pass 6 in a row onto a strip of tape by the net. Then a 7th. On the 8th the ball came off his arms half a step wide, and the little libero said something short, and Kiyose nodded and went back to his spot and started again from 1 without any face about it at all.
+
+He'd been doing that every morning. Nobody had told him to. Ukai had found out on the 2nd day from Takeda, who'd found out from Nekomata, who'd mentioned it the way you'd mention that somebody's dog had been sleeping in your garden: *Your tall 1 turned up at 6 and begged Yaku to bully him.*
+
+Ukai drank his coffee.
+
+He'd been coaching since spring. Most days, if he was honest, and at 6 in the morning outside somebody else's gym he could be, it felt like exactly what it was: a man of 26 who ran a convenience store, standing in other people's gyms in a tracksuit, pretending. His grandfather had taken Karasuno to the nationals. His grandfather was a name other coaches said in a particular voice. *Old Ukai's grandson,* people called him at tournaments, before they called him anything else.
+
+And now there was a 1st year who saw things on a court before he did.
+
+He'd known it since May, really. Since the practice match, when the kid had muttered on the bench about Nekoma's back row shifting a step every time their setter touched the ball, and Ukai had looked, and it was true, and he hadn't seen it. His pride had wanted to be annoyed about that. He'd let it, for a week or so. Then he'd started reading the notebook.
+
+Inside the gym Kiyose passed 10 in a row onto the tape, and the little libero stood at the service line looking at him, and said something Ukai couldn't hear, and Kiyose bowed.
+
+Ukai put the cigarette back behind his ear and went to wake his team.
+
+---
+
+At breakfast Hinata and Kageyama were shouting at each other.
+
+Ukai stopped in the doorway of the dining hall with his tray, and at 1st he didn't understand why the sound made his shoulders come down. Then he did. It was the 1st time in 3 weeks.
+
+"...you said you'd SET it! You said if I came early you'd SET it!"
+
+"I'm SETTING it! You're not HITTING it!"
+
+"Because it's not THERE!"
+
+"It IS there! You're looking at the wrong PLACE!"
+
+The whole Karasuno table was eating with their heads down, trying not to grin. Tanaka had his face in his rice bowl. Suga was looking at the ceiling with wet eyes. Daichi caught Ukai's eye across the hall and nodded, once.
+
+Ukai sat down at the end of the table and ate his miso soup. They were talking. He didn't care what about.
+
+---
+
+Before the 1st game he took them through hitting lines.
+
+He stood at the net beside Kageyama with his arms folded and watched them come in, 1 after another, the way he'd watched hitters come in for 3 years at Karasuno, when he'd been the setter and his grandfather had stood at the net exactly like this, saying nothing and seeing everything. Ukai had set 1000s of balls in those 3 years. He knew what a hitter looked like from 2 meters away. He knew it in his hands.
+
+Asahi came in, big and clean and, this morning, not scared of anything, which was new and still made Ukai want to cross his fingers. Tanaka came in all noise and elbows. Daichi, neat. Hinata, who went up so early the ball had to come and find him.
+
+Kiyose came in.
+
+Ukai had watched him hit before. In May, in June, at Seijoh. He'd watched him hit as a sub, as a back-row passer, as a kid who got put on to receive and was allowed to swing if the ball happened to come his way. He'd been watching for the eyes. Everybody had been watching for the eyes.
+
+He watched the arm this time.
+
+The approach was raw, a hair slow on the last 2 steps, so he had to reach a little for Kageyama's set. But the plant was clean, both feet down together, and the left knee bent straight over the toe, which most boys his age didn't manage. He went up. Both arms came up high together, and then the left stayed up, pointing, while the right went back, elbow high, shoulders turned, a bow drawn all the way. Then the hips came round, and the trunk, and the shoulder, and the arm last, in that order, and he met the ball at the very top of his reach in front of his right shoulder and snapped it.
+
+Cross. Into the floor. A sound like a door slamming in an empty house.
+
+Kiyose landed softly on both feet and jogged round to the back of the line.
+
+Ukai stood at the net with his arms folded and watched 4 more. 3 of them were the same. 1 went into the net because he'd run under the ball.
+
+The kid had been hitting at about 70 percent all week. Ukai could see that now: the careful swing of a boy who'd been put on to pass. And under it, the whole time, there'd been this, and Ukai had been too busy looking at what the kid could see to look at what he could do. The kid had let him, because he was 15 and polite, and a 1st year doesn't walk up to his coach and say *put me on the wing*.
+
+Ukai had never even asked what position he'd played in middle school. He suspected the answer was none. He suspected that didn't matter.
+
+Asahi was graduating in March.
+
+He walked to the bench, where Takeda was sitting with the clipboard.
+
+"Sensei. Is there a weight room at Karasuno?"
+
+Takeda blinked. "There's a room with some weights in it. Behind the 1st gym. The baseball club used it, I think, before they moved. I don't know who has the key."
+
+"Find out," said Ukai. "When we get home."
+
+Takeda looked at him, and then at the hitting line, where Kiyose was jogging round again, and nodded.
+
+---
+
+"Lineup," said Ukai, in the huddle, reading it off the clipboard. "Kageyama, Hinata, Tsukishima, Daichi, Asahi. Nishinoya. Kiyose on the wing. Tanaka's spot. Whole set."
+
+The huddle went quiet.
+
+Tanaka looked at him. Then at Kiyose. Then back.
+
+Ukai had known Tanaka would be the 1 who'd have to take this. He'd thought about it at 3:40 that morning, on the classroom floor. Tanaka had started every game since May. Tanaka had worked for it like a dog.
+
+Tanaka was quiet for about 2 seconds, the longest Ukai had ever known him be quiet in a huddle.
+
+Then he grinned, a big ugly generous grin, and hit Kiyose on the back so hard the kid took a step forward.
+
+"Don't be bad," said Tanaka.
+
+"I'll try not to, senpai."
+
+"If you're bad I'm going in."
+
+"Same rule as always," said Ukai, to Kiyose. "Hand up, you come off."
+
+"Yes, Coach."
+
+They went out. Ubugawa again, the jump serve school. Ukai sat on the bench next to Takeda with his arms folded, and Tanaka sat on Takeda's other side with his elbows on his knees and his eyes on the court.
+
+---
+
+Ubugawa had learned.
+
+On the 2nd day the kid had aced their #9 by listening to his passes in warm-up, which Ukai still didn't entirely believe, though he'd watched it happen. Today #9 wasn't in the passing line at all. They'd tucked him up near the net and put their libero and 2 strong passers across the back. Weak man, hidden.
+
+Kiyose's 1st serve came round in the 3rd rotation.
+
+He walked to the end line and bounced the ball twice and looked at Ubugawa's passing line. He'd already seen #9 was gone. His eyes went along the line and stopped on their #1, the 3rd year ace with the long loose arm, standing deep on the left of the passing line.
+
+He served at him.
+
+A plain float, flat and slow, at #1's chest. #1 passed it fine. And then #1 had to turn and run out to the left antenna and start his approach from a stand, half a step behind, and Ubugawa's setter saw he was late and set the middle instead, and Tsukishima was standing there.
+
+Block. Karasuno's point.
+
+"He served their ace," said Takeda, beside him. "Their best passer. Why?"
+
+"Because then the ace has to pass," said Ukai. "If the ace passes, he's late to hit, or he's tired when he hits. Either way their setter's got 1 less good option. It's an old trick. Your 1st serve at a team you don't know, you go at the guy who's going to hit next." He watched the kid walk back to the end line with his face doing nothing at all. "I didn't teach him that."
+
+He'd have liked to have taught him that.
+
+---
+
+He watched the whole set the way he'd never let himself watch the kid before, with the eyes left out of it and everything else in.
+
+In the back row Kiyose stood just off the outside edge of Tsukishima's block. Ukai didn't know where he'd picked that up. Last week he'd stood in the hitter's line, the way readers did. This week, every time Tsukishima went up, the kid moved half a step until he was behind the outside of Tsukishima's hands, and twice in the set a ball came off those hands and came straight to him.
+
+In the front row he blocked Ubugawa's right side. The 1st time, he went up with the setter's hands, early, the way he always had, and the hitter waited for him to come down and hit over him. Ukai opened his mouth.
+
+The next time he didn't need to. The kid waited. He stood at the net with his hands up and his knees bent and waited, a beat and a half, longer than it looked possible to wait, and went up late and soft with his hands angled back. The ball came off them and went up high into his own court, straight to Nishinoya.
+
+"NICE TOUCH!" Noya shouted, and passed it, and Hinata hit it down, and it went in.
+
+On the bench Tanaka said, "Huh," under his breath.
+
+At 11-13 Kageyama dug a ball flat out on the floor, and it went up off his arms, and Karasuno had no setter. Ukai was on his feet. The ball was coming down between Daichi and Kiyose.
+
+"MINE!" said Kiyose.
+
+He got under it. His hands came up square and steady, a passer's hands doing a setter's job, and he put the ball up high and outside to the right, to Asahi, where Ubugawa's block was smallest. High enough that Asahi had all the time in the world.
+
+Asahi used it. 12-13.
+
+Ukai sat down. Takeda was looking at him.
+
+"I didn't know he could set," said Takeda.
+
+"Neither did I," said Ukai.
+
+---
+
+At 15-18 came the ball nobody wanted.
+
+Ubugawa's serve went at Daichi, hard, and Daichi got it up but sideways, off the court toward the bench, and Nishinoya ran it down with his whole body and threw it back over his own shoulder, blind and high, toward the left antenna. No setter near it. Most kids would have put it over soft and let Ubugawa have it.
+
+Kiyose was already out wide. He'd turned and run to the left the moment Daichi's pass went off, before Noya had reached it. He took the ball at the antenna, a bad ball, too tight to the net and drifting, with 3 Ubugawa blockers lining up in front of him.
+
+He swung at it. Full swing, the whole bow, into the middle of the triple block.
+
+It came straight back down off their hands onto Karasuno's side, and nobody could cover it.
+
+15-19.
+
+Ukai didn't move. Beside Takeda, Tanaka sat up.
+
+Kiyose got up off the floor and looked at the 3 blockers for a second, the way he'd looked at the tape on Yaku's floor at 6 in the morning. Then he went back to his spot.
+
+Ukai had seen aces get blocked like that and go small. He'd watched Asahi go small for a whole year. A boy stuffed at 15-19 usually tapped the next 1, played safe, asked for nothing.
+
+3 rallies later Kageyama set him again, a good ball this time, high on the left, with 2 Ubugawa blockers coming across to meet it. Kiyose went up for it with the same full swing. At the top his wrist turned out, and his hand went across the ball from the inside, and the ball went off the outside hand of the end blocker, off the edge of the little finger, and out toward the stands, so fast Ubugawa's libero didn't turn his head.
+
+Karasuno's point.
+
+"YEAAAAAHHH!" Tanaka was on his feet with both fists up, louder than the whole court. "THAT'S MY SPOT YOU'RE BEING GOOD IN!"
+
+Ukai sat still.
+
+He'd seen the kid tool a block before. Against Date Tech, after Aone had stuffed him twice. Off Oikawa's hand, at 24-23 at Seijoh. He'd thought of it then as clever. This was the same hand, 3 rallies after a triple block had put him on the floor, and the kid had gone up for it with a full swing and no fear in his face at all.
+
+---
+
+At 21-22, Ubugawa's #1 came in from the left. Kiyose was in the back row, in the middle, just off the edge of Tsukishima's block. Ukai, who'd been watching him all set, saw him stop.
+
+The kid went completely still for a piece of a second, heels down, the way the notebook said he did, the way Nekoma's setter had read in Tokyo. Then he went, before #1 hit it, 2 full steps back and to the right, and #1's arm came through and hit the ball exactly where the kid was already standing, and it came up off his arms to Kageyama, perfect.
+
+The rally went on. Kageyama set Asahi. Asahi was blocked; it came back up and went over and came back, a long ugly rally with the ball crossing the net 4 times, and Ubugawa finally put it away in the corner. 21-23.
+
+And Kiyose's right hand came up.
+
+It came up off his side, flat, the way the rule said, and stopped about halfway to his shoulder, and hung there.
+
+Ukai was on his feet before he'd decided to be.
+
+He'd made that rule in June, standing under the awning by the drainpipe at the dinner after Seijoh, in the rain, with a boy whose eyes had stopped working together. He'd made it because of 21 all in the 2nd set, when he'd seen the kid miss a free ball he'd have eaten in his sleep, and blink at it, and he'd left him on for the rest of the set anyway, because they were winning and Ukai had wanted it. *It was mine,* he'd told the kid, *and I got it wrong.* He'd had a teammate once, under his grandfather, who'd played the last 2 sets of a match on an ankle that turned out to be broken, and nobody had said a word, because under the old man you didn't. Ukai had made a different rule. His own.
+
+*Right hand, flat, to shoulder height. You come off. No argument. And I don't ask you anything in front of anybody.*
+
+He'd been ready for it all week. At set point, at deuce, at the worst possible moment. He'd decided he'd keep it even then. Especially then.
+
+Tanaka was already up off the bench, already at the substitution zone with the paddle in his hand, his face set. He'd said, back in June, *I'll be watching for it.* He had been.
+
+But halfway wasn't the rule. The rule was shoulder height.
+
+Ukai went to the line and stood there, close to the court, and said it low, so only the kid could hear.
+
+"Oi. Kiyose."
+
+The kid looked at him. His hand was still halfway up. His face was doing that polite nothing it did, but his eyes were on Ukai's, and Ukai looked at them hard. Clear. Dry. Steady.
+
+"Burning?" said Ukai.
+
+The kid didn't answer straight away. Ukai watched him check. He actually checked. His eyes went a little inward, out of focus, the way Ukai's own did at the end of the night when he was counting the till and wanted to be sure. Ukai had never seen anybody check so honestly whether something hurt.
+
+"...No," said Kiyose.
+
+He looked surprised, and the surprise was for his own hand, halfway up in the air, as if it had gone up without asking him.
+
+"Then stay on," said Ukai.
+
+The hand came down. At the substitution zone Tanaka let out a breath and sat back down on the bench with the paddle across his knees.
+
+Ukai went back to the bench too. Takeda was looking at him. Ukai kept his eyes on the court. He found the cigarette was in his fingers, though he couldn't remember taking it from behind his ear, and that his hand wasn't entirely steady, and he put it back.
+
+---
+
+Ubugawa got the next point off a jump serve that Daichi couldn't hold. 21-24. Karasuno clawed back 2, a Tsukishima block and a Kiyose pass that let Asahi swing, and at 23-24 Ubugawa served the last ball at Kiyose, a big jump serve. He passed it, a good pass, to Kageyama, and Kageyama set Hinata, and Hinata, eyes open, hit it into the block, and it came down on Karasuno's side.
+
+23-25.
+
+It was Hinata's ball, and nobody's fault, and they went up the hill.
+
+---
+
+In the 2nd game, against Shinzen, at 8-12, after Hinata's 4th eyes-open swing of the game had gone into the net and Kageyama had looked at the ceiling, Ukai called a timeout and banned the new quick.
+
+He did it standing in the middle of the huddle, and he did it properly.
+
+"Listen. The new quick. The 1 where he's got his eyes open and you're trying to stop it at the top." He looked at Kageyama, then at Hinata. "It's not ready. You both know it's not ready. In practice, every night, as much as you like. In a game, no. Not until it works in practice 7 times out of 10."
+
+Hinata opened his mouth.
+
+"You'll get it back," said Ukai, before he could. "When you've earned it. Until then, in games, normal quicks. 1st tempo. Hinata, you go when the ball's in Kageyama's hands, the way you used to. Kageyama, you set it where he is. That still works. It worked in May." He pointed at the court. "You lose a game here, you run a hill. You lose a game at the Spring High, you go home. I'd rather you ran the hill."
+
+Hinata shut his mouth. His face looked as if somebody had taken something off him, which somebody had.
+
+"Yes, Coach," said Hinata and Kageyama, at exactly the same moment in exactly the same voice, and then glared at each other for having done it.
+
+They lost that 1 too, 20-25. Karasuno went up the hill again. Ukai sat on the bench afterward and found he was tired somewhere behind his eyes, and that he wanted a proper cigarette more than he'd wanted anything all week.
+
+---
+
+That night he stood at the vending machines again, with a cigarette that was lit, and Takeda came and stood beside him with 2 cans of cold tea and gave him 1.
+
+The moon was up over the hill behind the school, small and white. From the 3rd gym at the far edge of the campus came the steady thud of balls on a wooden floor.
+
+"He's in there," said Takeda. "Kiyose-kun. Until 9:20."
+
+"I know."
+
+"Then he goes and phones his sister."
+
+"I know that too."
+
+Takeda drank his tea.
+
+"Can I ask what you'd call it?" he said. "What he does. You said IQ, before exams."
+
+"It's IQ," said Ukai.
+
+He smoked half the cigarette. Takeda waited.
+
+"And an arm," said Ukai.
+
+"An arm?"
+
+"I've been using him as a passer who can serve. Back row, receive, defense. He's good at all of it, so I kept using him for it." He tapped ash into the tin by the machine. "He's a wing spiker, sensei. He's an ace. You should've seen him in hitting lines this morning, when he wasn't being careful. I know what an ace's arm looks like. That's 1."
+
+Takeda was quiet.
+
+"He needs 5 kilos," said Ukai. "Maybe more. Legs, shoulders. A year of somebody putting bad balls up for him. And the weight room, if there is 1."
+
+"I'll find the key."
+
+"And I want him to stop being polite about it." Ukai looked across the dark grass at the lit windows of the 3rd gym. "He'll stand in the back row passing for 3 years if I let him, because he's good at it and it's useful. That's on me."
+
+He finished the cigarette and put it out carefully on the tin.
+
+"My grandfather said a thing," he said. "When I took him over there. *That one sees the hit before the hitter does.* I've been working on it for 3 weeks. I thought he meant the eyes."
+
+"Didn't he?"
+
+"Probably." Ukai pushed his hands into his pockets. "But he's an old coach. 50 years of hitters. He'd have seen the arm too, from the door." He laughed, short. "He'd have seen it before I did. He always does."
+
+Footsteps on the path. They both turned.
+
+It was Nekomata, coming from the staff building in a cardigan with his hands behind his back, small and old and smiling at nothing.
+
+"Ukai-kun. Takeda-sensei. Good evening." He beamed at them. "Your 13. The 1 who goes still and digs Bokuto-kun. I'd like to borrow him tomorrow, after lunch. For half an hour. I have some tape I'd like to show him."
+
+Ukai looked at him.
+
+"His doctor gives him 2 hours of screens a day," he said. "Don't use them all."
+
+"Half an hour," said Nekomata. "I promise." And he nodded to them both, and went on along the path toward the 3rd gym, where the thud of the balls was still coming out into the dark.
+
+Ukai watched him go up to the lit doorway and stand in it, a small dark shape against the light, with his hands behind his back, watching whatever was going on inside. He didn't go in. He just stood there and watched, the way old coaches did.
+
+Ukai's grandfather stood like that.
+
+He could go over there. Tell the old cat to leave his 1st year alone. Tell him he wasn't to turn the kid into an analyst; the kid had a bad enough habit of writing things down already.
+
+He stayed where he was.
+
+He'd tell the kid himself, when they got home, at Karasuno, in a room behind the 1st gym with a squat rack in it and the baseball club's rusty plates, with the key in his hand. *You're a wing spiker. Act like it.* He'd say it properly, the way you said things that mattered.
+
+"Sensei," he said.
+
+"Yes?"
+
+"The key. Don't forget."
+
+"I won't," said Takeda.
+
+**Continuity (ch 38)**
+
+- **Ukai Keishin POV (surprise POV 2 of Arc 3; close third, past tense).** Day 6 of the Shinzen camp, 6 a.m. to night. No status card.
+- **Camp calendar (fixed): 8 days counting the arrival morning; last day = day 8** (ch 37's line corrected to "ends in 3 days"). Day 7: ch 39 and ch 40 (3v3 at night). Day 8: ch 41 (Shinzen, the flip), ch 42 (Nekoma), ch 43 to 44 (Ubugawa brief, Fukurodani final).
+- **Ukai's soul beats:** can't sleep on futons (bed above the shop, trucks at 4); unlit cigarette between 2 fingers; **26, coaching since spring, "a man... who ran a convenience store, standing in other people's gyms in a tracksuit, pretending"**; "*Old Ukai's grandson*"; the kid saw Nekoma's back row shift in May before he did; pride annoyed for a week or so, then he read the notebook. **Keishin was Karasuno's setter under his grandfather (canon setter; "3 years" invented).** **The hand-up rule is his own:** made in June under the awning by the drainpipe after Seijoh, out of his guilt at 21 all ("I left you on... because we were winning and I wanted it"); an old teammate played 2 sets on a broken ankle under Ikkei (invented).
+- **6 a.m.:** watched Sho pass Yaku's 10 through the window. Nekomata told Takeda on day 2: "*Your tall 1 turned up at 6 and begged Yaku to bully him.*"
+- **Breakfast: Hinata and Kageyama shouting again, the 1st time in 3 weeks (canon ch 90, back in action; wording invented).**
+- **Hitting lines (the ace seed, from Ukai's eyes):** approach a hair slow on the last 2 steps; clean plant, left knee straight over the toe; both arms up, the bow, hips-trunk-shoulder-arm, contact at the top in front of the right shoulder; cross kill "like a door slamming in an empty house"; 1 into the net (ran under it). **About 70% all week; Ukai had been "too busy looking at what the kid could see to look at what he could do."** Never asked his middle-school position. "Asahi was graduating in March." **"Is there a weight room at Karasuno?" "There's a room with some weights in it. Behind the 1st gym. The baseball club used it." "Find out. When we get home."**
+- **Game 1, day 6 vs Ubugawa: lost 23-25.** Kiyose on the wing in Tanaka's spot, whole set. Tanaka: 2 seconds of quiet, the grin, the slap: "Don't be bad." "I'll try not to, senpai." "If you're bad I'm going in." Rule: "Hand up, you come off."
+- **What Ukai saw:** Ubugawa hid #9 near the net. **Sho served their ace #1 (deep on the left of the passing line) to make him pass; late out to the antenna; setter went middle; Tsukishima blocked.** Ukai explains: "If the ace passes, he's late to hit, or he's tired when he hits... your 1st serve at a team you don't know, you go at the guy who's going to hit next." "I didn't teach him that." **Back row: off the outside edge of Tsukishima's block; 2 balls off Tsukishima's hands came to him. Front row vs Ubugawa's right side: early once (hit over), then waited a beat and a half; soft block up to Noya ("NICE TOUCH!").** **11-13: "MINE!", set high outside right to Asahi (smallest block); 12-13.** "I didn't know he could set." "Neither did I." **15-18: Noya's blind save to the left antenna; full swing into a triple block, stuffed (15-19); looked at the blockers; 3 rallies later, a good high ball: tooled off the end blocker's little finger.** Tanaka: "THAT'S MY SPOT YOU'RE BEING GOOD IN!" Ukai remembers earlier tools (Date Tech after Aone's stuffs; Oikawa at 24-23). (The out-of-system KILL stays for ch 43-44.)
+- **21-22:** the stop (heels down), 2 steps before #1 hit, perfect dig; long rally lost, 21-23. **Sho's right hand came up halfway and hung.** Tanaka already at the sub zone with the paddle ("I'll be watching for it", June). **"Halfway wasn't the rule. The rule was shoulder height."** Ukai at the line, low so only Sho heard: **"Oi. Kiyose... Burning?"** Sho checked honestly (counting the till). **"...No." (surprised at his own hand) "Then stay on."** Tanaka sat back down. Ukai's hand not steady with the cigarette.
+- End: 21-23 to 23-24 (Tsukishima block; Asahi swing off Sho's pass), last serve at Sho, good pass, Hinata (eyes open) into the block: 23-25. Up the hill.
+- **Game 2 vs Shinzen: at 8-12, Ukai's timeout bans the new quick (canon decision; wording invented):** "It's not ready... In practice, every night... In a game, no. Not until it works in practice 7 times out of 10... normal quicks. 1st tempo... You lose a game here, you run a hill. You lose a game at the Spring High, you go home. I'd rather you ran the hill." "Yes, Coach" together, glaring. **Lost 20-25** (Karasuno still winless at camp; the 1st win is ch 41).
+- **Night, vending machines, Takeda:** "It's IQ." ... **"And an arm... He's a wing spiker, sensei. He's an ace... He needs 5 kilos... Legs, shoulders. A year of somebody putting bad balls up for him. And the weight room."** "I'll find the key." "That's on me." Ikkei's line ("*That one sees the hit before the hitter does*"), worked on for 3 weeks: "He'd have seen the arm too, from the door."
+- **Nekomata (cardigan):** "I'd like to borrow him tomorrow, after lunch. For half an hour. I have some tape." Ukai: "His doctor gives him 2 hours of screens a day. Don't use them all." "Half an hour. I promise." Nekomata stood in the 3rd gym doorway watching, like Ikkei. Ukai stayed put. **He'll tell Sho at home, in the weight room behind the 1st gym, with the key: "*You're a wing spiker. Act like it.*"** "The key. Don't forget." "I won't."
+- Next: ch 39 "All of it" (Sho): day 7: Nekomata's tape after lunch ("You'd make a fine analyst." "I'd rather play."); Akaashi teaches him hands (Set E to D, status card); the 9:30 call where he tells Mio all of it (including the hand that went halfway up on its own, "No", staying on; playing the wing). The weight-room news is Ukai's to deliver at home (not in ch 39).
