@@ -746,11 +746,33 @@ Ends with the Seijoh loss and the Tokyo invite. Sho's thread from ch 22: he stop
 | 25 | Tall-kun | Sho | The sink: Sho speaks first; a trade (Oikawa's look-at-the-gap tell for what Oikawa saw in Sho); Oikawa's knee brace; Iwaizumi. Eye clinic with Dad and Mio: the fly test, "4 times since April", the MRI warning. Dad: "Tell her 4." "You were good." Arrives at the team dinner | The knee, seen from outside for the 1st time |
 | 26 | Dinner | Sho | Ukai's dinner, Takeda's speech, the team crying over the food. Ukai's talk. Home: Mom, "4", and Sho's real answer to Mio | What Satoshi never had after a loss |
 | 27 | (open) | Sho or a surprise POV | The days after: 3 days off volleyball, the Wednesday clinic. Tanaka's 8th morning | |
-| 28 | Stay | Sho | 3rd years decide to stay. Shiratorizawa wins Miyagi. The notebook gets a new first page | What he'll do differently with the eye |
-| 29 | (open) | Sho or a surprise POV | The week before Tokyo; the call that leads to the Nekoma camp | |
-| 30 | Invitation | Sho | Nekoma's Tokyo invite. Status card. Hook into the Tokyo arc | |
+| 28 | Stay | Sho | Wednesday clinic with Mom: depth back, no MRI, "stop at the burning". 3rd years stay (Daichi). The notebook's new 1st page. Takeda's late message: Nekoma | What he'll do differently with the eye |
+| 29 | Invitation | Sho | Nekoma's Tokyo camp invite, and the catch: pass the exams or stay home. Mio's Saturday. End of arc 2, status card | |
 
 POV chapters are not scheduled (see "POV chapters"). Use one when a moment needs it.
+
+## Arc 3 outline: Tokyo expedition and summer camp (draft, ch 30 to about 42)
+
+Covers canon ch 72 to 98. A draft: chapter splits and titles will move. Canon rows are in "Canon plot timeline" above.
+
+**Sho's arc question:** can he play all 3 sets? The notebook page from ch 28 is the spine: hand up at the burning, tell Coach 1st, build the map so the eye is the extra, listen, play all 3 sets. Arc 3 is where the map (Meta Vision) grows from scanning toward a field map, by sheer volume of matches against Tokyo teams. The eye still fires on its own, rarely; the test is whether he puts his hand up.
+
+**Soul threads:** Satoshi's last real volleyball was a college gym in Osaka; a Tokyo camp full of powerhouse 3rd years is the closest he's been to that life, from the playing side. Ikkei is the 1st adult who suspects the eye. Kenma and Kuroo read Sho the way Oikawa did. Mio's terms (tell her after, all of it) get their 1st real test. Tanaka's arc and Hinata/Kageyama's fight stay theirs.
+
+| Ch | Working title | Canon | What happens | Sho's thread |
+| --- | --- | --- | --- | --- |
+| 30 | Exams | 72 to 73 | The Tokyo camp needs passing grades; Tsukishima tutors | Satoshi's 29-year-old brain makes exams easy; Sho studies with his eyes rested. Yachi is in Sho's class (1-5): the quiet girl at the front |
+| 31 | Manager | 74 to 75 | Kiyoko recruits Yachi | Sho knows her from class and stays out of the way of Kiyoko's recruitment; 1 small kind thing |
+| 32 | Make-up test | 76 to 78 | Hinata and Kageyama fail; Saeko drives them; the 1st Tokyo day; Fukurodani, Bokuto | Sho's 1st time playing Tokyo teams; loses a lot, learns a lot |
+| 33 | Read block | 79 to 81 | Lev; Hinata wants his eyes open; loss to Nekoma | Kenma reads Sho ("You look at everybody. It's tiring to watch.") |
+| 34 | The fight | 82 | Hinata and Kageyama fight; Tanaka breaks it up | Sho stays out of it. Tanaka's moment |
+| 35 | Ikkei | 83 to 84 | Ukai Ikkei teaches tempos; Oikawa warns Kageyama; Asahi starts a jump serve | Ikkei asks Sho what he keeps looking at. Sho and Asahi practice serves side by side; the jump serve is Asahi's |
+| 36 | 3rd gym | 85 to 86 | Saitama camp; Kuroo, Bokuto, Akaashi, Tsukishima | Sho begs his way into the 3rd gym; libero work with Yaku. Possible surprise POV (Kuroo, Akaashi or Kenma) |
+| 37 | Moonrise | 87 to 89 | Tsukishima's Akiteru backstory | Tsukishima's arc stays his; Sho on the edge of it |
+| 38 | Hand up | (fic) | A practice match; the eye fires and burns | 1st time he puts his hand up. Ukai pulls him. He calls Mio that night and tells her all of it |
+| 39 | Owls and cats | 91 | 3v3, Team Owl vs Team Cat | Sho on a team with Bokuto or Kuroo; the map, no eye |
+| 40 to 41 | Fukurodani | 92 to 96 | Final match; the new quick lands, then fails; Fukurodani wins | Sho plays a whole match on the map. Status card if earned (Meta Vision toward Field map) |
+| 42 | Barbecue | 96 to 98 | Kuroo names the top 3 aces; back to Miyagi | Hook into Spring High prelims |
 
 ## Dialogue playbook (rewritten Oct 30)
  
