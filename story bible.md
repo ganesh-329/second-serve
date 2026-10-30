@@ -723,7 +723,7 @@ Each entry is the thing under the voice: what the person wants, what hurts, what
 
 ## POV chapters (from ch 23)
 
-From ch 23, chapters told from another character's point of view are sprinkled between Sho's chapters.
+**User, Oct 30 (after ch 24):** no fixed schedule. POV chapters come as surprises, only when a moment really needs someone else's eyes, sprinkled along the way. Most chapters stay with Sho. Never 2 POV chapters in a row. Ch 23 (Mio) is the model.
 
 - **One character per POV chapter.** Never a group, never a rotating head-hop.
 - **Close third on that person, past tense.** Their vocabulary, their eyes, what they notice. Mio notices different things from Oikawa. Nobody narrates like Sho.
@@ -743,14 +743,14 @@ Ends with the Seijoh loss and the Tokyo invite. Sho's thread from ch 22: he stop
 | 22 | Set 2 | Sho | Set break: Sho takes his notebook to Ukai (Seijoh hears the spoken quick calls; hand signals fix it). Kageyama back, asks his hitters what they want (canon). Set 2 opens with the silent quick working. Oikawa sees where it came from. At 17-20, on Oikawa's serve run, Ukai sends Sho in for Asahi to receive. The eye fires on its own; Sho holds it inside the notebook map and keeps forcing it. He takes Oikawa's serve, hits the line past Iwaizumi using the chin trick as bait, reads Seijoh's attacks for his blockers, tools Oikawa's block at 24-23, serves at set point and digs the last ball. Daichi kills it. 25-23. Then the nosebleed, depth gone, out for the match. Mio's voice from the rail | Sho speaks instead of writing it down. Twice as hard, and was it twice as smart? |
 | 23 | The rail | Mio | From the stands: watching her brother play set 2 without knowing volleyball; the blood; Dad; wanting to go down; set 3 starts | What Mio has been afraid of since spring, and what she does about it |
 | 24 | Set 3 | Sho | On the bench, eyes half useless, hearing more than seeing. Oikawa adjusts. Yamaguchi's pinch serve. Deuce. The final quick blocked. 31-33 (canon score; Sho isn't on court for it) | Sitting behind glass again, the exact thing he swore off |
-| 25 | Tall-kun | Oikawa | Seijoh's side: what Oikawa saw in set 2, what he worked out it cost, handshake line, a last conversation with Sho, Iwaizumi | The genius he didn't see coming, and the part of Sho that's just like him |
-| 26 | Dinner | Sho | Ukai's dinner, Takeda's speech, the team crying over the food. Home: the family, nobody pretending anymore | What Satoshi never had after a loss |
-| 27 | 8 mornings | Tanaka | The next morning gym. Tanaka's thoughts on the kohai who carried a set he couldn't. Sho turns up, or doesn't | Ordinary next to a genius, and choosing to keep swinging |
+| 25 | Tall-kun | Sho | The sink: Sho speaks first; a trade (Oikawa's look-at-the-gap tell for what Oikawa saw in Sho); Oikawa's knee brace; Iwaizumi. Eye clinic with Dad and Mio: the fly test, "4 times since April", the MRI warning. Dad: "Tell her 4." "You were good." Arrives at the team dinner | The knee, seen from outside for the 1st time |
+| 26 | Dinner | Sho | Ukai's dinner, Takeda's speech, the team crying over the food. Ukai's talk. Home: Mom, "4", and Sho's real answer to Mio | What Satoshi never had after a loss |
+| 27 | (open) | Sho or a surprise POV | The days after: 3 days off volleyball, the Wednesday clinic. Tanaka's 8th morning | |
 | 28 | Stay | Sho | 3rd years decide to stay. Shiratorizawa wins Miyagi. The notebook gets a new first page | What he'll do differently with the eye |
-| 29 | The phone call | Ukai | Ukai's side of the week: the decision to play Sho, the decision to pull him, the call that leads to Tokyo | Is he good enough to coach a kid like this? |
+| 29 | (open) | Sho or a surprise POV | The week before Tokyo; the call that leads to the Nekoma camp | |
 | 30 | Invitation | Sho | Nekoma's Tokyo invite. Status card. Hook into the Tokyo arc | |
 
-POV slots can change character if a chapter needs someone else, but always 1 character, and never 2 POV chapters in a row.
+POV chapters are not scheduled (see "POV chapters"). Use one when a moment needs it.
 
 ## Dialogue playbook (rewritten Oct 30)
  
