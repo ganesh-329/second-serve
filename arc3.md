@@ -5364,3 +5364,413 @@ Sho lay in the grass a little longer, with his red arms on his chest, and listen
 - **Hinata in the grass: "There wasn't a bad 1. In the 3rd... So the next 1's still mine." "It's still yours." "On the bad 1. In the 2nd... Like you'd seen it before." "Who's yours?... Your Little Giant. Everybody's got 1. Somebody you saw and went, *that*."** Sho's answer in his head: a white shirt with a navy 5 in a gym in Sendai (never named in prose). Ukai: "IF YOU WANT MEAT, GET DOWN HERE BEFORE NEKOMA EATS IT!" **Hinata: "Tonight. You're telling me tonight."** Sho moved his lips around the name once, with no sound.
 - Ace path: hit at Bokuto's real block (stuffed, then tooled); back-row attack at match point; Ukai names the weight room (Arc 4 program). Mio's magnet still on August.
 - Next: ch 45 "Barbecue" (Sho), end of Arc 3: the aces talk (Bokuto on the top 3: Ushijima, Kiryu, Sakusa; speaker per 03_canon flag 3); Hinata gets his answer, once: "Matsumoto. Number 5." "Nobody's heard of him." "I'll remember him."; home: Mio names the eye "fast-forward" and moves her magnet to January; Sho pays the 4 puddings; new notebook, ace lines on page 1; status card (Block E to D, Serve D to C, Mentality B to A, Emperor's Eye: Conditioned, Meta Vision: Half map).
+
+## Chapter 45: Barbecue
+
+The coaches had built the grills out of oil drums cut in half, 4 of them in a row on the gravel behind the main gym, and by the time Karasuno came down the hill the charcoal had gone white and the 1st meat was on.
+
+The smoke went straight up. There was no wind at all. It went up past the gym roof into a sky that was still light at the top and going dark at the edges, and the smell of pork fat and soy and onions hung over the whole school. 5 schools stood round the drums in their camp T-shirts with paper plates, pushing.
+
+Nekomata and Fukurodani's coach were at the 1st drum with tongs, arguing about when to turn things. Ukai was at the 2nd, with a towel round his neck and the cigarette behind his ear, turning things whenever he felt like it. Takeda stood beside him holding a plate out for each finished piece as if he were receiving a diploma.
+
+Sho got a plate and went to the 3rd drum, where the line was shortest, and found out why. Bokuto was cooking.
+
+"13!" Bokuto pointed the tongs at him. A piece of beef fell off them into the coals and went up in a flame, and he didn't notice. "Plate! Give me your plate!"
+
+Sho held it out. Bokuto put 3 pieces of meat on it, then a 4th, then looked at Sho's forearms, the right 1 with the patch going from red to purple at the edges, and put on a 5th.
+
+"For your arms," said Bokuto, and pointed the tongs at Sho's arm.
+
+"Thank you, Bokuto-san."
+
+"You need about 1000 more of those."
+
+"Bokuto-san," said Akaashi, from behind him, where he was quietly taking the pieces Bokuto had forgotten off the grill before they turned to charcoal. "Other people are waiting."
+
+---
+
+They ate standing up, or sitting on the concrete step along the side of the gym, or on the gravel. Sho sat on the step between Asahi, who had an ice pack strapped to his lower back under his T-shirt and a plate of nothing but cabbage, and Tanaka, who had a plate of nothing but meat.
+
+Across the gravel, Daichi was standing over Tsukishima with a full plate, holding it out and waiting, and Tsukishima was looking at it as if it were a homework assignment. Nekoma's 1st years were staring at Kiyoko and Yachi and Fukurodani's 2 managers, who were standing together by the drinks cooler, and Yamamoto was explaining to anybody who would listen, with real tears in his eyes, that Nekoma had never once had a manager. Lev was on his 3rd plate. Hinata was everywhere.
+
+Then Bokuto came over with Kuroo, both of them with plates piled up like mountains, and sat down on the gravel in front of the step.
+
+Kuroo started, the way Kuroo started most things, by poking.
+
+"Ask him," Kuroo said to Hinata, who had sat down cross-legged in the gravel with them. "Ask Bokuto where he is on the list."
+
+"What list?" said Hinata.
+
+"Every volleyball magazine in the country's got the same 3 names on it," said Kuroo. "Top 3 high school aces." He held up 3 fingers and folded them down 1 at a time. "Ushijima Wakatoshi, Shiratorizawa. Kiryu Wakatsu, Mujinazaka, down in Kyushu. Sakusa Kiyoomi, Itachiyama, here in Tokyo. And then, a little way down the page..."
+
+"I'm top 5," said Bokuto. "Top 5 in the country."
+
+"Top 5," Kuroo agreed, and ate a piece of Bokuto's meat.
+
+"TOP 3 IS JUST 3 GUYS!" Bokuto said, so loud that Nekomata looked over from the 1st drum. "5 is MORE guys! 5 is BIGGER!"
+
+Hinata had stopped eating. He was sitting very still in the gravel with his chopsticks in the air.
+
+"Ushijima," he said. "Shiratorizawa."
+
+"You know him?" said Bokuto.
+
+"He's in Miyagi. He's in our prefecture." Hinata put the chopsticks down. "He's who we have to beat to get to Tokyo."
+
+The way he said it, flat, with all the bounce gone out of him, made Bokuto stop shouting and look at him properly.
+
+Sho knew the name. He'd seen it in June, in a square of newspaper Dad had folded small and left beside his bowl: a grainy photo of a tall boy in purple and white at the top of a jump with his left arm drawn all the way back. Shiratorizawa had beaten Seijoh in the final. Oikawa's team. Oikawa, who'd beaten Karasuno in 3 sets and smiled about it at the sink. And somebody had beaten Oikawa.
+
+The other 2 names meant nothing to him. A boy in Kyushu. A boy in Tokyo. He wanted to stand across a net from all 3 of them. He wanted to find out how high they reached, and then reach higher. A list like that got written again every year, and it was written in pencil.
+
+He looked down at his right forearm, at the purple edge of the patch, and closed his hand slowly and opened it again.
+
+Beside him, Asahi had stopped eating his cabbage.
+
+"Asahi-san."
+
+"Mm."
+
+Asahi was looking at the gravel between his feet. His big hands were holding the paper plate very carefully, by the edges, as if it might break.
+
+"You want to be on that," he said. Very low, so it went no further than the step.
+
+Sho thought about pretending he hadn't heard. Then he thought about Asahi at the set break that afternoon, standing pale in front of Ukai, saying *I'm telling you now. Before.*
+
+"Yes," said Sho.
+
+Asahi nodded slowly. He turned the plate a little in his hands.
+
+"Me too," said Asahi.
+
+He said it to the gravel, and his ears went pink, and he put a piece of cabbage in his mouth and chewed it slowly. Sho sat beside him and ate Bokuto's 5th piece of meat, and let it lie there between them, and in front of them Bokuto had put his arm round Hinata's neck and was telling him about the 1st time he'd ever stuffed a 3rd year, and Hinata's bounce was coming back.
+
+---
+
+He went to get water from the cooler, and Kenma was standing beside it with an empty cup, waiting for Lev to finish filling 6 bottles.
+
+Kenma's eyes went to his feet. Then, this time, to his face.
+
+"Next time," said Kenma, "I'll watch your ears."
+
+Sho stopped with his hand on the cooler lid.
+
+"How did you know?"
+
+"You turned your head." Kenma tipped his own head, a few degrees, toward his left shoulder, exactly the way Sho must have done it. "On the tap. In the 2nd lie. Before you moved." He held his cup under the tap now that Lev had gone. "You still do it. You did it at the grill. When Bokuto dropped the meat."
+
+Sho stood there by the cooler and laughed.
+
+Kenma filled his cup. On the way past, he said, "Shoyo's more fun to play," and Sho said, "Everybody says that," and the corner of Kenma's mouth moved the same small amount it had moved at the net that morning, and he went back across the gravel to where Hinata was sitting under Bokuto's arm.
+
+---
+
+It got dark. Somebody turned on the light over the gym door, and the moths found it. The coaches ran out of meat and started on yakisoba, on a hot plate balanced across the last drum, and Ukai let Hinata stir it until Hinata nearly put the whole thing on the ground.
+
+Sho was back on the step, with a plate of noodles on his knee, when Hinata sat down beside him.
+
+He sat down hard, the way he did everything, and pulled his knees up, and put his plate on top of them, and ate 4 mouthfuls very fast. Then he stopped.
+
+"Tonight," said Hinata. "You said."
+
+"I know."
+
+Hinata turned on the step and looked at him. His face was orange on 1 side from the gym light and dark on the other. "Who's your Little Giant?"
+
+The yakisoba hissed on the hot plate. Over by the drums Tanaka and Noya were trying to teach Lev a dance. Somewhere behind the gym a cicada had started up and was going on and on, like somebody who's forgotten what he came in to say.
+
+Sho put his chopsticks down across his plate.
+
+In 4 months, in this life, with this mouth, he'd never once said the name out loud. He'd thought it at the desk in his room at 4:15 in the morning, and on the hill, and in the dark on the bus home from Tokyo with Yachi's tiny screen glowing on his knees.
+
+"Matsumoto," said Sho. "Number 5."
+
+Hinata waited for more.
+
+"Matsumoto who?"
+
+"Nobody's heard of him."
+
+"Was he good?"
+
+Sho thought about it.
+
+"He was good at 19," he said. "He played on the wing. He wanted the bad ball. Whenever it all went wrong and there was no setter and nobody knew what to do, he wanted it. He used to put his hand up and shout for it before anybody else had worked out what was happening."
+
+"Like you did."
+
+Sho opened his mouth, and shut it again.
+
+"Where does he play now?" said Hinata.
+
+"He doesn't."
+
+"Why?"
+
+"His knee."
+
+Hinata was quiet. He looked down at his plate. He was quiet for long enough that the cicada stopped, and started again.
+
+"Where did you see him?" Hinata said at last.
+
+"In a gym in Sendai," said Sho. "A long time ago."
+
+Hinata nodded, as if that made sense.
+
+"Okay," said Hinata. He picked up his chopsticks. He put a big mouthful of noodles in, and chewed, and swallowed, and said, to the gravel and the drums and the moths round the light:
+
+"I'll remember him."
+
+Sho's left hand had gone to his left knee at some point. He found it there, resting on the kneecap, the fingers spread.
+
+He left it there, and picked up his chopsticks with the other hand, and they ate the rest of the yakisoba on the step side by side while Tanaka and Noya gave up on Lev.
+
+---
+
+The bus left Shinzen at 9 the next morning and got to Karasuno a little after 3.
+
+Sho walked out of the school gate with his bag over his shoulder and the summer coming up off the road in waves, and went the long way, past Sakanoshita.
+
+The shop door was propped open with a crate of empty bottles. Ukai had got there before him, somehow, and was already behind the counter in his apron, with his headband pushing his hair back, opening a box of cigarettes for the rack. He looked up when Sho came in and didn't seem surprised.
+
+Sho went to the fridge cabinet at the back and took out 4 puddings, the custard kind with the caramel at the bottom and the little plastic spoon taped to the lid. He brought them to the counter and lined them up.
+
+Ukai looked at them.
+
+"4," he said.
+
+"I owe them to my sister."
+
+"What for?"
+
+Sho thought about how to put it. "I told her everything. Except once."
+
+Ukai rang them up. He didn't ask anything else. He put them in a bag with a cold pack from under the counter, and pushed it across, and said, "Monday. 7 in the morning. The room under the old gym. Bring shoes you don't care about."
+
+"Yes, Coach."
+
+Sho paid. He looked at the steamer by the register, where the meat buns sat in their little paper cups behind the glass.
+
+"Coach. Is the meat bun still 120?"
+
+"It's 120."
+
+"I've been away for a week. I've lost a lot of weight. For the team."
+
+"It's 120, Kiyose."
+
+He bought 1 for 120 and ate it on the walk home, out of the paper, in the heat.
+
+---
+
+Mio was waiting at the door.
+
+She had been waiting a while, by the look of it. She was sitting on the step inside the genkan with her knees up and her pale blue notebook on them, and when the door opened she stood up so fast the notebook slid off onto the shoe rack.
+
+She looked at his knees 1st. Both of them, left and then right, the way she'd looked at them every evening since April when she thought he wasn't watching. Then his forearms. She took his right wrist in both hands and turned it over and looked at the bruise, which had gone purple in the middle and dark at the edges, the size of a hand.
+
+"Who did that?" said Mio.
+
+"Bokuto-san."
+
+She touched the edge of it with 1 finger, very lightly. Then she let go of his wrist and reached up, and took his face in both hands, and pulled it down to her level, and looked at his eyes. 1 and then the other. Close. Her hands were sticky. She'd had a popsicle.
+
+"Okay," said Mio, and let go, and he held up the bag, and she looked at it and then at him.
+
+"4," said Sho.
+
+From the kitchen, Mom said, "Dinner before the bath," without coming out, and then she did come out, wiping her hands on a cloth, and looked at him the way she always did, all of him at once, the way you'd look at a room to see if anything had been moved. Her eyes stopped on his arm. Then they went back to his face.
+
+"You're thinner," said Mom.
+
+"I ate a lot of meat, Mom."
+
+"Hm," said Mom, and went back into the kitchen, and he heard the rice cooker lid go up.
+
+---
+
+Mio put the 4 puddings in a row on the kitchen table and counted them with her finger. Then she put 3 in the fridge, at the back, behind the miso, and wrote *MIO* on each lid in marker so nobody would make a mistake. She sat down across from him with the 4th, and peeled the lid, and opened her notebook beside it.
+
+"All of it," said Mio.
+
+"I told you all of it. Every night."
+
+"The last game you didn't. You called on the bus and said *we lost, I'll tell you at home.*" She pointed the pudding spoon at him. "You're home."
+
+So he told her.
+
+He told her about set 2 1st. The bad ball. Hinata running past it and giving it to him. Then he told her about set 3. Bokuto blocking him and shouting about it. The ball he'd wiped off Bokuto's little finger into the chairs. Daichi-san's hand on his back. Tsukishima at 23-23. He told her about the last ball in order, the way he'd tell it to Coach: where everybody was, why it had to be Bokuto, why it had to be the line, where he'd stood. He told her the ball had come exactly where he'd been standing, and that his arms had been exactly where they had to be, and that it had gone into the bench anyway.
+
+Mio listened with the spoon in her mouth. When he got to the bench, she took it out.
+
+"So you were right."
+
+"Yes."
+
+"And it went in the bench anyway."
+
+"Coach says my arms are too weak. So on Monday I start in a room under the old gym with a squat rack from 1990."
+
+Scratch. She wrote it down. He could read it upside down: *ARMS. Monday. Room. 1990.*
+
+"Eyes," said Mio.
+
+"Once. In the 3rd set. I asked it, and it came. It didn't hurt."
+
+"Who on?"
+
+"Akaashi-san. Their setter."
+
+Scratch. *Eyes: 1. Asked. Didn't hurt. Setter.*
+
+"What does it look like?" said Mio.
+
+He looked up.
+
+She'd never asked that. All summer she'd asked *did it come* and *how long* and *where did it hurt*, and kept the score in a column in her notebook..
+
+She was looking at him across the table, with the pudding in 1 hand and the pencil in the other, waiting, the way Hinata had waited on the step.
+
+"It goes quiet," said Sho slowly. "The gym. All the noise goes thin. And the person I'm looking at... a bit of them goes on ahead. A little bit. Like a ghost of them. I see what their hands are going to do, or their arm, just before they do it. Then they do it. And then the noise comes back."
+
+Mio thought about that. She ate a spoonful of pudding while she thought.
+
+"So you see it before," she said. "A bit before everybody else."
+
+"A bit."
+
+"Like fast-forward."
+
+Sho's hands went still on the table.
+
+He thought about a camcorder on a bus in the dark, and the little rubber buttons worn shiny by other people's thumbs.
+
+"Yes," he said. "Like that."
+
+Mio turned to a clean page in her notebook. At the top, in capitals, pressing hard, she wrote *FAST-FORWARD*, and drew a box round it, and then 2 little triangles after it, pointing right, the way they were on the button.
+
+"That's its name now," she said.
+
+"It doesn't need a name."
+
+"It does for my notebook." She tapped the page with the pencil. "You keep saying *eyes*. *Eyes* is a column already. This gets its own page."
+
+He looked at the 2 little triangles. He couldn't think of anything to say against them.
+
+"When's the next 1?" said Mio. "The next big game."
+
+"The Spring High prelims. In the autumn. In Sendai." He hesitated. "If we win those, the nationals are in Tokyo. In January. Daichi-san said it in the timeout. *Next time we're in Tokyo, it's January.*"
+
+Mio put her spoon down.
+
+She got up and went to the fridge. The calendar was still there, the whole year on 1 sheet, with every day of June and July crossed out in red marker and August half done. Her magnet, the round red 1 from the bank, was still sitting on August like a flag.
+
+She took it off. She looked at the bottom of the calendar, where it ran out at December.
+
+Then she reached down below the bottom edge of the calendar, onto the bare white door of the fridge, where next year would be if anybody had put it up yet, and stuck the magnet there.
+
+It stuck with a small click.
+
+"January," said Mio.
+
+From behind the newspaper at the other end of the table, Dad said, "Mm."
+
+---
+
+After the bath, Dad was waiting in the hall with a pencil.
+
+He didn't explain. He never did. He stood by the kitchen door frame, where the paint was scratched with years of lines, Sho's and Mio's both, little marks with dates beside them in his small square handwriting, and he held up the pencil, and waited.
+
+Sho stood with his back to the frame and his heels against the wood. Dad put the flat of a book on his head, pressed it down, and drew a line under it. Then he took the book away, and took the tape measure from his pocket, and measured, and wrote beside the line.
+
+*183. Aug.*
+
+The last line, from April, was a centimeter lower. Under that, the lines got lower and lower, and closer together, all the way down to a mark at about the height of Sho's hip with *Sho 4* beside it in faded pencil.
+
+"Mm," said Dad.
+
+He put the pencil behind his ear and went back to the living room. At the door he stopped, half turned, and said, to the hall, "Your sister wants to know how high you can reach. She wants to mark it on the garage wall."
+
+"Okay, Dad."
+
+"I'll find some chalk," said Dad, and went in.
+
+---
+
+His notebook was full.
+
+He'd known it would be. He'd written the last of the Fukurodani page on the bus that morning, in the back seat, with Hinata asleep on his shoulder and drooling on his T-shirt: *Bokuto: line at match point. Correct. Platform: no.* There was no more room after that. The inside of the back cover had a column of scores in it already, and the times of Mio's calls.
+
+He sat at his desk in the lamp light and turned through it from the front. April. The 1st page, with Hinata's name spelled wrong. May, and Nekoma, with the box round *Kenma*. June, and Seijoh, in 2 different handwritings, his and Suga's. The June page that Ikkei had stopped on. *Hand up at the burning. Tell Coach 1st. Build the map so I don't need the eye. Listen. Play all 3 sets.*
+
+He stopped on the last line.
+
+There was a knock on his door, a single knock with 1 knuckle, and Mio came in without waiting. She was in her pajamas. She had something flat under her arm.
+
+"Here," she said, and put it on the desk.
+
+It was a notebook. The cheap kind with a pale blue cover that every primary school child in Miyagi had a stack of. Brand new. Nothing torn out of it. On the front, in marker, in the same capitals as the page downstairs, she'd written *SHO 2*.
+
+"I had 3," said Mio. "That's the good 1."
+
+"Thank you."
+
+"Don't put sad things on the 1st page," said Mio, and went out, and closed the door, and opened it again. "Goodnight."
+
+"Goodnight."
+
+The door closed.
+
+He opened *SHO 2* to the 1st page and smoothed it flat with the side of his hand. The paper was very white under the lamp. He uncapped the pen and sat with it over the page.
+
+He wrote:
+
+*Reach: ___. (Measure Monday. Garage wall. Mio.)*
+
+*Weight room. Mon, Wed, Fri. 40 min. Technique 1st. Write the numbers.*
+
+*Knees: anything hurts, hand up. Tell Coach 1st. Same day.*
+
+*Arms. Enough to hold Bokuto's line. Then enough to hit it.*
+
+*The bad ball. Ask for it.*
+
+He sat with the pen over that 1. Then he wrote under it, small:
+
+*1 more.*
+
+And then, at the bottom, because it had been at the bottom of the old 1 and he wasn't finished with it:
+
+*Play all 3 sets. In a match that counts.*
+
+He put the pen down.
+
+Downstairs the television was on, low, and Mom was saying something to Dad. Outside a car went past. In the kitchen, on the white door of the fridge, the round red magnet sat on its own, past the end of the year.
+
+```
+[Kiyose Sho]
+Age: 15 | Height: 183cm (from 182) | Karasuno #13
+Power: C   Jump: B   Speed: C   Stamina: B
+Reception: C   Serve: C (from D)   Block: D (from E)   Set: D
+Mentality: A (from B)   Shamelessness: S
+Emperor's Eye: Conditioned (from Partial awakening)
+  Trait: Elite Observational Genius
+Meta Vision: Half map (from Scanning)
+  Trait: Long-Term Strategic Scrutiny
+```
+
+**Continuity (ch 45)**
+
+- Sho POV. **End of Arc 3.** The last night of the Shinzen camp (barbecue), then home the next day. **Status card** (bible "Status card plan"): Serve D to C, Block E to D, Mentality B to A, Emperor's Eye Partial awakening to Conditioned (Elite Observational Genius), Meta Vision Scanning to Half map (Long-Term Strategic Scrutiny); Power stays C; height 182 to 183 (Dad's pencil).
+- **Barbecue (canon: the coaches host a barbecue at the end of the camp; managers; Nekoma has no manager; Daichi makes Tsukishima eat [memory]).** Fic: 5 schools; 4 oil-drum grills; Nekomata and Fukurodani's coach arguing over turning; Ukai turning things whenever; Takeda receiving each piece "as if he were receiving a diploma"; Yamamoto in tears about managers; Lev on his 3rd plate. **Bokuto at the 3rd drum: 5 pieces on Sho's plate, "For your arms." "You need about 1000 more of those."** Akaashi rescuing burnt meat.
+- **The aces talk (canon: Bokuto on rivals around the country; top 3 Ushijima, Kiryu, Sakusa, Bokuto "top 5" [memory; speaker unconfirmed, fic: Kuroo pokes, Bokuto answers]):** "TOP 3 IS JUST 3 GUYS! 5 is MORE guys!" **Hinata: "He's who we have to beat to get to Tokyo."** Sho: the June newspaper photo of Ushijima (left arm drawn back; arc 2); "somebody had beaten Oikawa"; Sho's want (an ace's): stand across a net from all 3, reach higher; the list "written in pencil." **Asahi (ice pack, cabbage): "You want to be on that." "Yes." "Me too."** (ace to ace; ears pink).
+- **Kenma at the cooler: "Next time I'll watch your ears." "How did you know?" "You turned your head. On the tap. In the 2nd lie. Before you moved... You did it just now."** (fic: Sho tilts his head toward a sound.) "Shoyo's more fun to play." "Everybody says that."
+- **The Little Giant (user approved, used once):** on the step, yakisoba. "Tonight. You said." "I know." **"Matsumoto. Number 5." "Matsumoto who?" "Nobody's heard of him." "Was he good?" "He was good at 19... He wanted the bad ball... put his hand up and shout for it." "Like you did." "Where does he play now?" "He doesn't." "Why?" "His knee." "Where did you see him?" "In a gym in Sendai. A long time ago." "I'll remember him."** Sho had never said the name aloud in this life. **His left hand on his left knee (Mio's #3); he left it there.** Never explained.
+- **Home (next day):** bus 9 a.m., Karasuno a little after 3. **Sakanoshita: 4 custard puddings; "I owe them to my sister... I told her everything. Except once." Ukai: "Monday. 7 in the morning. The room under the old gym. Bring shoes you don't care about."** Meat bun still 120 ("I've lost a lot of weight. For the team." "It's 120, Kiyose."); bought 1.
+- **Mio at the genkan:** checked knees, forearms (bruise purple, dark edges: "Who did that?" "Bokuto-san."), then his eyes, his face in both hands (sticky, popsicle). "Okay." Mom: "Dinner before the bath." "You're thinner."
+- **Pudding bet paid: 4** (3 in the fridge behind the miso, *MIO* on each lid). "All of it": set 2's bad ball, then set 3 and the last ball in order; "So you were right." "And it went in the bench anyway." "Coach says my arms are too weak." Notebook: *ARMS. Monday. Room. 1990.* *Eyes: 1. Asked. Didn't hurt. Setter.* **1st time she asks what it looks like; Sho: quiet, "a bit of them goes on ahead... like a ghost"; Mio: "So you see it before... Like fast-forward."** (Never explained: the camcorder buttons in ch 34, Satoshi's rewind at 3 a.m.) **Mio's page: *FAST-FORWARD* in a box with 2 triangles; "That's its name now." "It doesn't need a name." "It does for my notebook... *Eyes* is a column already. This gets its own page."**
+- **The magnet:** Spring High prelims in the autumn in Sendai; nationals in Tokyo in January (Daichi). **The fridge calendar is 1 year on 1 sheet (June, July crossed out in red, August half done); Mio's round red bank magnet moved from August to the bare fridge door below December: "January."** Dad: "Mm."
+- **Dad's pencil:** kitchen door frame, *183. Aug.* (April mark 1 cm lower; *Sho 4* at hip height). "Your sister wants to know how high you can reach. She wants to mark it on the garage wall." "I'll find some chalk." (Reach page seed.)
+- **The old notebook is full** (last line on the bus: *Bokuto: line at match point. Correct. Platform: no.*; Hinata asleep on his shoulder). The June page reread. **Mio's gift: a new pale blue notebook, *SHO 2* on the cover ("I had 3. That's the good 1." "Don't put sad things on the 1st page.").**
+- **Page 1 of SHO 2 (ace lines):** *Reach: ___. (Measure Monday. Garage wall. Mio.)* / *Weight room. Mon, Wed, Fri. 40 min. Technique 1st. Write the numbers.* / *Knees: anything hurts, hand up. Tell Coach 1st. Same day.* / *Arms. Enough to hold Bokuto's line. Then enough to hit it.* / *The bad ball. Ask for it.* / *1 more.* / *Play all 3 sets. In a match that counts.* Final image: the red magnet on the fridge door "on its own, past the end of the year."
+- Next: Arc 4 (Spring High prelims). Opens with the weight room under the old gym (Monday 7 a.m.; Ukai, Takeda's key; technique 1st, light loads) and the reach mark on the garage wall (Mio's *REACH* page, Dad's chalk). See the bible's "The ace path" (Arc 4 timeline) and the canon timeline for Arc 4.
