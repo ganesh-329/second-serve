@@ -4894,3 +4894,344 @@ At the head of the table Ukai looked up and saw him in the doorway. He looked at
 - Inside: 12 boys in black jackets, full plates, nobody eating; a gap on the bench between Tanaka and Suga with a plate and an untouched bowl of rice. Ukai: "Sit down. Eat first." (The talk he owes Sho comes after.)
 - Owed in ch 26: the dinner (Takeda's speech, the team crying over the food, canon); Ukai's talk; telling Mom "4" with his nose like that; Sho's real answer to Mio; telling Ukai about Oikawa's tell. Then 3 days off; Wednesday clinic.
 - No status card.
+
+## Chapter 26: Dinner
+
+Sho put his bag down by the door with the others and went down the long table to the gap.
+
+The bench was the long kind, a plank with a cushion on it, and to get to the gap he had to step over the end of it behind Noya and Ennoshita and Narita with 1 hand on the wall. Tanaka slid along to make the gap wider. Suga moved his elbow.
+
+Sho sat. In front of him there was a plate of ginger pork, thick slices in sauce with shredded cabbage on the side, a bowl of rice, miso, and a little dish of pickles. The steam came up off it into his face. It smelled so good his stomach hurt.
+
+Every pair of chopsticks down the table was still laid across its bowl. Across from him Hinata was staring at his pork as if it had done something to him. Kageyama sat beside Hinata with his hands flat on his thighs. Asahi had his elbows on the table and his face in his hands. Noya was looking at the ceiling. Tsukishima had taken his glasses off and was cleaning them on the bottom of his shirt, slowly, the same lens over and over.
+
+At the head of the table Ukai had his arms folded, and Takeda sat beside him. Kiyoko was at the corner nearest the door with her bag on her knees and her own plate in front of her, untouched.
+
+The cook came out from behind the counter with a teapot, filled every cup down the table without asking, and went back. The griddle hissed. It was the only sound.
+
+Takeda stood up. He did it with both hands on the edge of the table, as if he needed them, and then he took them off and held them together in front of him, and looked down the table at every face, 1 by 1.
+
+"I've been thinking about something since the last whistle," said Takeda. "I want to say it before we eat, because I think after we eat I'll lose my nerve." He pushed his glasses up. "People say losing is proof that you're weak. That the team that lost was the weaker team, and that's what a loss means."
+
+He looked at Hinata, and at Kageyama, and at Daichi.
+
+"I think a loss is a thing that happens to you, the same as a win. What it means depends on what you do next. If you lie down where it happened and stay there, then it was proof. And I watched every one of you today do something you couldn't have done in April."
+
+His voice had gone up at the end. He stopped and breathed, and his hands came apart and went back together.
+
+"I'm sorry. That was long."
+
+He sat down and looked at his plate.
+
+Ukai unfolded his arms.
+
+"Eat," he said.
+
+Nobody moved.
+
+"Oi. I'm paying for this, and it's getting cold." Ukai picked up his own chopsticks and pointed them down the table at all of them. "You can't get stronger on an empty stomach. You want to beat them next time? Eat. All of it. Eat till you're sick, and tomorrow eat more."
+
+Daichi picked up his chopsticks, took a slice of pork, put it on his rice and ate it, chewing steadily with his eyes on his bowl. Then he did it again. Suga picked his up next. Asahi took his face out of his hands.
+
+Then Tanaka picked up his bowl in 1 hand and his chopsticks in the other and shoveled in a huge mouthful of rice, and his face crumpled up around it. He kept chewing. Tears ran straight down off his chin into the bowl. He took another mouthful.
+
+"Iff goob," he said, through it. "Iff really goob."
+
+Across the table Hinata was eating with his head down so far his fringe nearly went in the miso. His shoulders were shaking. Noya was crying out loud with his mouth full and eating faster than anyone. Kageyama ate without stopping, fast and steady, his eyes on a point in the middle of the table and his face perfectly still, and his ears had gone dark red, and every so often he wiped his face on his sleeve without putting his chopsticks down.
+
+At the far end Yamaguchi was crying into his miso with his hand over his eyes. Tsukishima had put his glasses back on and was eating his pickles 1 by 1, and when Yamaguchi's hand came down from his eyes, Tsukishima pushed the pickle dish across to him and went on eating.
+
+Sho ate.
+
+The pork was sweet and salty and hot, with ginger in it that went up his nose. The rice was the sticky good kind. There were little cubes of tofu in the miso. He'd had nothing since an onigiri at 10 in the morning, and he'd played 8 rallies that felt like 80, and his body wanted the food more than it had ever wanted anything.
+
+He'd lost bigger than this. Satoshi had lost a whole career in the time it took a ligament to make a sound. And after the surgery he'd eaten dinner alone in a hospital bed, off a tray with a plastic lid, rice gone hard at the edges, while a TV on a bracket showed a match he should have been playing in.
+
+Nobody had bought him dinner. Nobody had told him to eat.
+
+His eyes were running, warm, down both sides of his nose. He put another piece of pork on his rice and ate it, and let them run.
+
+Tanaka's chopsticks came across into his bowl and dropped a slice of pork on his rice and went back. Tanaka was still crying and still chewing and still staring at his own food.
+
+"You eat too," said Tanaka, thickly. "You played. Eat."
+
+"I'm eating, senpai."
+
+"Eat MORE." Tanaka wiped his face with the back of his wrist and smeared sauce across his cheek. "You were... in set 2, you..." He couldn't get any further, and shoved more rice in his mouth.
+
+On Sho's other side Suga had stopped eating. He was looking at his hands round his bowl. Then he took a slice of pork off his own plate and put it on Sho's rice, on top of Tanaka's, and went back to eating.
+
+Sho ate both.
+
+---
+
+Later, when the plates were mostly empty and the crying had gone quiet, the way rain goes quiet without quite stopping, Kageyama looked across the table.
+
+"Kiyose."
+
+"Yes."
+
+"The last one." Kageyama's voice was hoarse. "Did you see it?"
+
+Hinata's chopsticks stopped.
+
+"Yes," said Sho. "1 second before. Too late to say."
+
+"What did they do."
+
+Sho put his chopsticks down.
+
+"Before the serve, Oikawa-san talked to each of his blockers. Then when the pass went up, they stopped watching your hands." He looked at Kageyama, and at Hinata. "They watched Hinata's feet. Only his feet."
+
+Hinata's mouth had come open. Kageyama stared at the middle of the table, and his jaw moved. After a while he picked up his chopsticks and finished his rice in 4 mouthfuls and sat with his hands on his thighs again.
+
+Across from him Hinata was looking down, under the table, at his own feet in their indoor shoes, as if he'd never seen them before.
+
+---
+
+Ukai paid at the counter. The team went out under the red curtain into the rain, which was coming down properly now, steady and warm, bouncing up off the road. The ones with umbrellas went. The ones without stood under the shop's awning and called home.
+
+Sho held his phone close to his face and found Dad's name.
+
+"Kiyose."
+
+Ukai was beside him under the awning with an unlit cigarette in his mouth. He took it out and put it back in the packet.
+
+"Over here."
+
+He went to the end of the awning, away from the others, where the drainpipe came down and the rain ran off it in a rope into the gutter. Sho followed. They stood with the rain making a curtain in front of them and a streetlight blurred behind it.
+
+"What did the doctor say."
+
+"My eyes are healthy. Tired. The muscles stopped working together. 3 days no sports, no screens. Back on Wednesday. If it happens again this bad, I get a scan. An MRI."
+
+Ukai rubbed his face with his whole hand.
+
+"I saw you miss that free ball at 21 all," he said. "I saw you blink at it. And I left you on for the rest of the set, because we were winning and I wanted it." He was looking at the rain. "You're 15. That's why it's not your call. It was mine, and I got it wrong."
+
+"I wanted it too."
+
+"Yeah. Doesn't matter."
+
+The rain ran off the drainpipe.
+
+"New rule. Just you." Ukai lifted his right hand flat to shoulder height, the way you'd ask a teacher a question. "The second it starts. Middle of a rally, I don't care. Hand up. You come off. No argument, and I don't ask you anything in front of anybody."
+
+"Even if we're winning."
+
+"*Especially* then."
+
+Sho thought about a locker room in Osaka, and tape pulled tight round a knee, and walking out onto the court.
+
+"I'll put my hand up," he said. "When it starts."
+
+Ukai looked at him and nodded, once, and turned to go back to the others.
+
+"Coach."
+
+Ukai stopped.
+
+Sho took the notebook out of his back pocket and held it close to his face and found the crooked line at the bottom of the Seijoh page. He made himself say it before he could decide not to.
+
+"Oikawa-san looks at the gap. When he's going to serve at a seam. Once, before he walks in, and then never again. I saw it yesterday. And at 17-17 today, before his 3 serves." He swallowed. "I didn't tell you. I'm sorry."
+
+Ukai stared at him.
+
+"Yesterday."
+
+"Yes."
+
+"And at 17-17 you were sitting right next to me."
+
+"Yes. I'm sorry."
+
+"...And who else knows?"
+
+There was no point lying about it.
+
+"Oikawa-san," said Sho. "I told him. At the sink. After. I wanted to know what he'd seen in me, and he wouldn't have told me for nothing."
+
+Ukai's mouth opened. Nothing came out of it for a while.
+
+"You told *Oikawa*," he said. "His own serve. The night before he plays Ushijima." He swore, once, under his breath, and put his hand over his eyes and held it there. "Unbelievable."
+
+"I'm sorry."
+
+"Stop saying sorry." Ukai took the hand away. He looked tired, more than angry. "Next time, me 1st. Before your notebook. Before anybody. Got it?"
+
+"Yes."
+
+"Go home. Sleep."
+
+He went back down the awning to the others.
+
+---
+
+Dad came with the big black umbrella, walking, because the house was 10 minutes away and he'd never once driven anywhere he could walk. He stopped at the edge of the awning and held the umbrella out, and Sho stepped under it, and they started home.
+
+It was a big umbrella, and still too small for 2. Dad held it tilted over toward Sho. By the end of the 1st block Sho could hear the rain drumming on Dad's left shoulder, and by the corner by the shrine Dad's whole left sleeve was dark. Sho tried to push the handle back toward him. Dad let him, and then a few steps later it had tilted back again.
+
+The konbini by the shrine had its lights on. The streets were wet and shining and smelled of hot asphalt cooling down. At the crossing by the post office Dad stopped even though there wasn't a car anywhere, and waited for the green man, because he always did.
+
+"Did you eat?" said Dad.
+
+"Yes. Ginger pork. Tanaka-senpai gave me some of his."
+
+"Mm."
+
+The green man came on, and they crossed.
+
+---
+
+The porch light was on.
+
+Mom opened the door before Sho touched it.
+
+She was in her cardigan with her hair tied back, and she looked at his face. At his nose, still a little swollen. At the dried brown at the edge of 1 nostril that he hadn't been able to see to wash off. At his eyes, red, and not quite pointing at her. Then she looked at Dad, behind him, with the umbrella and the soaked sleeve.
+
+"Mm," said Dad, and went past them both into the house.
+
+"Tadaima," said Sho.
+
+"Okaeri." Mom stood aside. Her eyes stayed on his face. "Shoes. Then the kitchen."
+
+Mio's sneakers were in the genkan, kicked off on top of each other, 1 on its side. He put his own next to them.
+
+On the kitchen table, on a folded dish towel, there was a bag of frozen edamame. It had already started to sweat.
+
+"Your sister put that out," said Mom. "Half an hour ago. She said you'd need it for your eyes. Then she went upstairs."
+
+Sho sat at the table and held the edamame against his eyes. It was cold and smelled faintly of freezer. Behind it, in the dark, he heard Mom put the kettle on, and pull out the chair across from him, and sit.
+
+"Your father called me from the station," said Mom. "He said, *He'll tell you.* And then he hung up."
+
+In the living room the TV came on, low, and then went off again.
+
+"I had a nosebleed," said Sho. "At the end of the 2nd set. And my eyes stopped working properly. Depth. I couldn't tell how far away things were. They took me to the first aid room, and then Dad took me to an eye doctor by the station. She said my eyes are healthy, just very tired. I can't play for 3 days, and I have to go back on Wednesday."
+
+"Wednesday. I'll take you."
+
+The kettle started to tick, heating up.
+
+He'd had *a couple of times* ready since the first aid room. He took the edamame off his eyes. Mom was a blur across the table with her hands folded on the cloth. He found her face and kept his eyes on it.
+
+"It's happened 4 times," said Sho. "Since April. Today was the worst. The doctor said if it happens again like this, I get an MRI."
+
+Mom sat with her hands folded. The kettle ticked, and then began the low noise it made just before it boiled.
+
+She got up and turned it off as it started to whistle. She got 2 cups down, and the tin of barley tea, and stood at the counter with her back to him while she made it. Her shoulders didn't move the whole time.
+
+She put a cup in front of him and sat back down with the other.
+
+"I know you're happy," said Mom. "Since April. I didn't know you could be happy like this. You weren't, before."
+
+Sho held his tea.
+
+"I'm not telling you to stop," she said. "But you tell me. Something like this, you tell me the same day." She looked at him across the table. "Promise me."
+
+"I promise."
+
+Mom looked at him a while longer. Then she reached over, took the dish towel off the edamame, refolded it so the cold side was out, and gave it back.
+
+"Drink your tea," she said. "Then bath. Then bed."
+
+---
+
+Mio's door was shut. There was light under it.
+
+Sho knocked.
+
+"What."
+
+"It's me."
+
+A pause. "...What."
+
+He opened the door. Mio was sitting up in bed in her pajamas with her knees up and a manga open on them that she wasn't reading. The only light was the small lamp by her bed, orange. The room smelled of her shampoo and of the plastic stars on her ceiling that had stopped glowing 2 years ago.
+
+He sat on the floor by the bed with his back against the side of it, so she was above him and a little behind, the way she'd been at the rail.
+
+"I told Mom," he said. "4."
+
+"I know. I was on the stairs."
+
+"Thanks for the edamame."
+
+"It was going off anyway."
+
+The manga's pages turned, 1, 2, without being read.
+
+"You said answer at home," said Sho.
+
+"Yeah."
+
+"I can't promise I'll never do it again."
+
+The pages stopped.
+
+"I'm sorry. If it's the last set of something, and it's the only way, I don't know what I'll do. I'd be lying if I said I knew, and you'd know I was lying." He looked at the circle of orange light on the wall. "Coach made a rule tonight. If I feel it start, I put my hand up, and he takes me off. And Mom made me promise to tell her the same day. And I'll tell you."
+
+Mio thought about it. He could hear her thinking about it.
+
+"If you put your hand up, you come off," she said. "So you can't do it."
+
+"...Unless I put it up after."
+
+"After."
+
+"After it's started. If I've already done it."
+
+Mio was quiet for a while. The bed creaked as she moved.
+
+"After still counts," she said. "If you tell me after. All of it. What it was like, and how long, and where it hurt. Everything."
+
+"And if I don't tell?"
+
+"Then I win. 5 puddings."
+
+Something cold touched the top of his head. It was a pudding cup. She was holding it on his head like a crown.
+
+"Deal," said Sho.
+
+She dropped the pudding cup in his lap.
+
+"That's for holding," said Mio. "Put it back in the fridge."
+
+He sat with it. Then he got up. At the door he turned round, and Mio was a blur of orange light and pajamas, with the manga still open on her knees.
+
+"Mio."
+
+"Go to bed. You smell like a restaurant."
+
+---
+
+He put the pudding cup back in the fridge, on the shelf where she'd see it. He had his bath and washed the brown out of his nostril by feel. He went to bed with the edamame on his eyes.
+
+His alarm had been set for 4:15 since April. He held the phone close to his face until the numbers stood still, and turned it off.
+
+He lay in the dark.
+
+At 4:14 his eyes opened by themselves.
+
+The house was quiet. Through the wall, Mio's clock ticked. Outside, the rain had stopped, and a bird somewhere was starting, early and alone. His body was already awake in the way it was every morning now, legs ready, the floor of the Second Gymnasium already in his head, cold under his feet, the blue light coming through the high windows.
+
+Across town, Tanaka would be walking up the path with the key on 1 finger. He'd unlock the door. He'd turn round on the step, the way he did every morning, to see who was coming up behind him.
+
+Sho stayed in bed.
+
+It was the hardest thing he'd done all weekend.
+
+**Continuity (ch 26)**
+
+- Sho POV, Sunday evening into Monday 4:14 a.m. Canon kept (via web search; wording invented): Ukai pays for dinner after the Seijoh loss and tells them to eat to get stronger; the team cries while eating. Takeda's speech is built on his canon question (is losing proof of weakness?), in invented words and set at the dinner [unverified: canon's exact setting and wording].
+- Dinner at the restaurant across from the back gate: ginger pork, cabbage, rice, tofu miso, pickles. Order of eating: Daichi, Suga, Asahi, Tanaka ("Iff goob."). Hinata nearly in the miso; Noya crying out loud, eating fastest; Kageyama steady, ears dark red, wiping his face on his sleeve; Yamaguchi crying into his miso; Tsukishima cleaning 1 lens, then pushing his pickles to Yamaguchi. Kiyoko's plate untouched at first.
+- Sho ate; his eyes ran and he let them. Thought: Satoshi ate alone after the knee surgery off a hospital tray while a TV showed a match. "Nobody had bought him dinner. Nobody had told him to eat." Tanaka gave him a slice of pork ("You eat too. You played. Eat... Eat MORE."); Suga added another without a word.
+- Kageyama asked what Seijoh did on the last ball. Sho only said what he saw: Oikawa talked to each blocker; they stopped watching Kageyama's hands and watched Hinata's feet. Kageyama said nothing more; Hinata looked at his own feet under the table. What they do with it is theirs (canon quick rework later).
+- Ukai's talk (end of the awning, by the drainpipe, unlit cigarette): "I left you on for the rest of the set, because we were winning and I wanted it... You're 15. That's why it's not your call. It was mine, and I got it wrong." "I wanted it too." "Yeah. Doesn't matter." **Hand-up rule:** right hand flat to shoulder height the second it starts, mid-rally if needed; he comes off, no argument, no questions in front of anybody; "*Especially* then" (when winning). Sho: "I'll put my hand up. When it starts."
+- Sho stopped Ukai unprompted and told him Oikawa's look-at-the-gap tell (seen yesterday and at 17-17), and that he'd told Oikawa at the sink. Ukai swore under his breath: "You told *Oikawa*. His own serve. The night before he plays Ushijima." "Stop saying sorry... Next time, me 1st. Before your notebook. Before anybody. Got it?" "Go home. Sleep."
+- Dad walked over with the big black umbrella (the house is 10 minutes from school; Dad never drives where he can walk) and held it tilted over Sho; his left sleeve got soaked. Waited for the green man at the empty crossing by the post office. "Did you eat?" "Ginger pork. Tanaka-senpai gave me some of his." "Mm."
+- Mom at the door; Dad: "Mm." Mio had left frozen edamame on a folded dish towel on the table half an hour earlier ("She said you'd need it for your eyes."). Dad had called Mom from the station: "He'll tell you." Sho told Mom everything, then "It's happened 4 times. Since April... if it happens again like this, I get an MRI." Mom will take him on Wednesday. Mom: "I know you're happy. Since April. I didn't know you could be happy like this. You weren't, before... I'm not telling you to stop. But you tell me... the same day. Promise me." "I promise."
+- **Mio's terms:** Sho can't promise never; Coach's hand-up rule and Mom's promise. Mio: "If you put your hand up, you come off. So you can't do it." "...Unless I put it up after." "After still counts. If you tell me after. All of it. What it was like, and how long, and where it hurt." If he doesn't tell: Mio wins 5 puddings. Pudding cup on his head like a crown; "That's for holding. Put it back in the fridge." "Go to bed. You smell like a restaurant." Mio was on the stairs when he told Mom.
+- Sho turned off the 4:15 alarm for the 1st time since April. At 4:14 his eyes opened by themselves; he thought of Tanaka unlocking the gym and turning round on the step to see who was coming; he stayed in bed: "It was the hardest thing he'd done all weekend."
+- Owed: Monday at school (3 days no sports, no screens); Wednesday clinic with Mom; Kageyama and Hinata and the quick; the 3rd years' decision; Seijoh vs Shiratorizawa result.
+- No status card.
