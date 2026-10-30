@@ -4384,3 +4384,325 @@ Then he got up, and put the console in his pocket, and went in to warm up.
 - **Hook:** Nekoma warming up (red). **Kenma on the gym step: "Next is us." "I know." "You still stop. It's a circle now. But you still stop."**
 - Ace path: 3rd whole set on the wing (4 of 6 in, 1 tool, Shinzen double-blocking him); a stuff block; but the bad ball went to Tanaka (his).
 - Next: ch 42 "The lie" (Sho): game 2 vs Nekoma: the showcase: **he fakes the stillness Kenma learned to read** (the lie) and digs 2; ears + map + the eye he invites; Tanaka: "FACE LIES!"; Nekomata calls a timeout for #13; **Kenma switches to his feet and wins it 26-24 with a dump into the 1 spot the map ruled out. "You patched it." "Mostly."**
+
+## Chapter 42: The lie
+
+Sho told Ukai 1st.
+
+He found him at the side of the court while Nekoma warmed up, standing with his arms folded and his eyes on Kenma, who was tossing balls to Kuroo in the far corner with no expression at all.
+
+"Coach. 3 lines."
+
+Ukai didn't look round. "Go."
+
+"Their setter reads my stop. When I go still, he knows I've decided, and he sends it somewhere else." Sho kept his voice low. "I'm going to show him a wrong 1. A stop where I'm not."
+
+Now Ukai looked round.
+
+"And when he works that out?"
+
+"Then he has to look at something else. My feet, probably." Sho thought about it, honestly. "Then I'll probably lose that. But he'll have had to change."
+
+Ukai looked at him, and then across the court at Kenma, who had stopped tossing and was standing with the ball in his hands, looking back at them both.
+
+"Your old stop," said Ukai. "The dot. The 1 from Tokyo. You can still do that?"
+
+"I've been doing the other 1 for 3 weeks. I think I can do the old 1 on purpose."
+
+"You think."
+
+"I'll know after the 1st 1."
+
+Ukai was quiet. Then he took the cigarette from behind his ear, looked at it, and put it back.
+
+"Do it," he said. "Asahi's spot. Whole set. And if it costs us, it costs us. I'd rather lose to Nekoma trying something than lose to Nekoma the way we always lose to Nekoma."
+
+"Yes, Coach."
+
+"Kiyose."
+
+Sho stopped.
+
+"You told me before you did it," said Ukai. "Good."
+
+---
+
+The Little Giant's team had never beaten Nekoma. Daichi had said it in May, in the club room, the morning of the 1st practice match, and Ukai had said, *So beat them,* and they hadn't. They'd lost every set in May and every set in Tokyo, 3 weeks ago. Karasuno and Nekoma, the Battle at the Garbage Dump, and the crows had never once won.
+
+Everybody on the court knew it. You could feel it in the way Tanaka was standing, chin up, chest out, too still. In the way Daichi kept rolling his shoulders. In the way Hinata kept looking across the net at Kenma and Kenma kept not looking back.
+
+Kenma was in the back row for the 1st rotation, setting from behind. His eyes went to Sho once before the 1st serve. To his face, and then down.
+
+Sho stood in the middle of Karasuno's back row with his weight easy and let him look.
+
+---
+
+He played honest for the 1st 8 points.
+
+He had to. He had to know Kenma was still reading the stop, and he had to know how, today, before he tried to lie to it. So he stood in his circle, the wide stop Ikkei had given him, heels down in a room instead of on a dot, and played the way he'd played all week.
+
+Kenma read it anyway.
+
+It took him 3 rallies. On the 4th, Yamamoto came in loud from the left, the stampede, every step a shout, and Sho crossed out the line and the tip and stood in the room that was left, and his heels came down, and Kenma, at the top of his set, waited a fraction longer than he needed to. Then he set Kai, from the back row, up the middle, into the 1 part of the room that Sho's heels had said was least likely.
+
+It hit the floor a step from Sho's right foot.
+
+"Kiyose!" said Noya.
+
+"I know."
+
+It happened again at 5-7. A smaller room than in Tokyo. A smaller hole. Kenma found it.
+
+Kenma was reading more than the stop now, Sho thought, standing in his spot after the 2nd 1. He was reading the shape of the room. Where the heels came down, and which way the circle leaned. And then putting the ball in the corner of it Sho was least ready for.
+
+He looked across the net at Kenma. Kenma was looking at the floor.
+
+5-8.
+
+---
+
+At 9-12 Sho lied.
+
+Yamamoto came in from the left. Loud. The stampede. Sho had seen it 30 times in 3 weeks: on the court in Tokyo, on Yachi's tiny screen on the bus in the dark, from the bench, from the back row. Yamamoto ran in like that whether the ball was coming to him or not. That was Nekoma: every hitter swung for real. And when Yamamoto ran in like that, and Sho went still, Kenma sent it somewhere else.
+
+So Sho went still for Yamamoto.
+
+He did it the old way. The dot. He put his heels down hard, both at once, in the deep corner where Yamamoto's cross would go, and let his knees stop, and his hands, the way they had on Sunday at Fukurodani when he hadn't known he was doing it. 3 frames of nothing. A boy who has decided.
+
+But his weight wasn't on his heels. It was on the inside of his left foot, the ball of it, where nobody looking at his heels would see it. Ready to go the other way.
+
+Kenma, at the top, waited for the heels. They came down. He pushed the ball short and quick to Kuroo in the middle, into the space a boy standing in the deep corner had just left.
+
+Sho was already going.
+
+He went off the inside of his left foot before Kenma's fingers had finished with the ball, 2 steps forward and to the right, and down, and Kuroo's quick came through the gap where Sho had been standing a blink ago and straight into his arms.
+
+It went up. Not pretty, high and a bit wild, but up, and Daichi got under it and put it high to the left, and Tanaka came in with his whole body and hit it so hard it went off Lev's wrist and into the wall.
+
+10-12.
+
+Tanaka landed, and turned round, and found Sho in the back row, and pointed at him with his whole arm.
+
+"THAT WAS A LIE!" Tanaka roared, across the whole court, delighted. "YOUR FACE LIED! FACE LIES!"
+
+"It was my feet, senpai," said Sho.
+
+"FEET, FACE, SAME THING!" Tanaka was beaming as if somebody had given him a present. "FACE LIES! I KNEW YOU HAD IT IN YOU!"
+
+On the other side of the net, Kenma was standing very still at his spot, with his hands at his sides, looking at the place on the floor where Kuroo's quick should have landed. He looked at it for a long beat. Then he looked at Sho's feet.
+
+Then he looked at Sho's face.
+
+It was the 1st time Sho could remember Kenma looking at his face for longer than a glance. It was the look of somebody who'd been playing a game for a long time and had just watched the boss do something the boss had never done before.
+
+---
+
+The 2nd lie came at 14-15.
+
+Kenma was in the front row now, which meant the dump was back. Sho had been waiting for that. In Tokyo Kenma had dumped into the space in front of Kageyama and Hinata while Sho stood 2 steps deep in Yamamoto's corner, and Sho had stood there and watched it drop.
+
+Yamamoto came in loud from the left again. Kuroo ran a quick in the middle. Kai came round from the back.
+
+Sho went still, deep. The old dot. Heels down in the back corner, where a boy who'd been burned on Yamamoto's cross would stand. Weight forward, on the balls of both feet, where nobody would see it.
+
+And he listened.
+
+The main gym was loud, 2 courts going, the roof throwing everything back. But Kenma was 6 meters from him, on the other side of the net, and Sho had been listening to Kenma's hands for a week. Kenma's sets made a sound, a soft double sound, both hands at once, *tk*. His dumps didn't. A dump was 1 hand, 2 fingers, a push. A sound like a single tap on a door.
+
+Kenma rose. He waited at the top for Sho's heels. They came down, deep.
+
+*Tap.*
+
+Sho was already coming forward. He'd heard it before he'd seen the ball move, and his weight was already on the front of his feet, and he went 3 steps in and threw himself flat and got 1 arm under the ball a hand's width off the floor in front of Tsukishima's feet.
+
+It went up. Tsukishima, who had turned round to watch it drop, caught Sho's eye for exactly 1 second from above, with an expression Sho had never seen on him before, and then turned back and blocked Yamamoto's next swing so cleanly it went straight down.
+
+15-15.
+
+"FACE LIES!" bellowed Tanaka, from the other end of the court, at nobody in particular, with his fists in the air.
+
+---
+
+Nekomata called a timeout at 16-15.
+
+Sho saw him do it. He was standing at Nekoma's bench with his hands behind his back, small and old in his tracksuit, and he lifted 1 hand and made the T, and while he made it he was looking straight across the court at Karasuno's back row. At Sho.
+
+"Huh," said Daichi, beside him, quietly. "That 1's for you."
+
+In Karasuno's huddle Ukai left it alone. He talked about Kuroo's quick and Yaku's serve and told Hinata to keep his eyes shut on the normal 1, and at the end, as they broke, he said to Sho, "He's going to change," and Sho said, "I know," and Ukai said, "Good. Watch what he changes to."
+
+Sho watched.
+
+At Nekoma's bench Nekomata was talking, low, with his hands. Kuroo was grinning. Yaku was nodding hard. Kenma was sitting at the end of the bench with a towel over his head, the way he'd sat in May, and from under the towel his eyes came out, and went across the court, and down.
+
+To Sho's feet.
+
+Not the heels. Lower. Further forward. The toes.
+
+---
+
+He tried it a 3rd time at 17-16.
+
+Yamamoto loud from the left. The dot, deep in the corner, heels down hard. Weight on the inside of the left foot, ready to go to the middle.
+
+Kenma, at the top, didn't wait for the heels at all. His eyes were on the front of Sho's left foot. And he set the ball, high and outside, to Yamamoto. To the corner. Exactly where Sho's heels had said, and exactly where his weight wasn't.
+
+Yamamoto hit the cross into the corner Sho had just pretended to stand in and had started to leave, and Sho twisted back for it and got a finger on it, and it went into the bench.
+
+17-17.
+
+"Ah," said Sho, on the floor.
+
+So that was what Kenma had changed to. He'd stopped trusting the heels. He was reading the weight under them. And the weight couldn't lie, because the weight was the part that had to actually go somewhere.
+
+Sho got up and went back to his spot and stood there and laughed, quietly, at himself, because he'd known it would happen and it had happened exactly as he'd said to Ukai it would.
+
+On the bench Ukai was looking at him with his arms folded. He lifted 1 shoulder, very slightly. *You said.*
+
+Sho stopped lying.
+
+He stood in his circle again, the honest 1, Ikkei's room, heels down where they came down, weight where it went, and played the rest of the set the way he played. Kenma read some of it. Sho read some of Kenma. It went point for point.
+
+---
+
+He hit too. It was his 4th whole set on the wing, and Kageyama set him 7 times.
+
+Against Nekoma it was like hitting into fog. Kuroo's hands were always where he didn't want them. When he got past Kuroo, Yaku was there. At 19-19 he saw the empty place in Nekoma's court before he jumped, the back left, where Fukunaga had just come out of the block coverage a step late, a chair with nobody in it. He went up and didn't look for it. He already knew where it was. He hit a soft roll over Kuroo's fingers into the empty chair.
+
+Yaku was sitting in it.
+
+He'd come across from nowhere, the way Yaku came across from nowhere, and he dug it up off the floor without even getting his knees dirty, and stood up, and looked at Sho through the net.
+
+"Nekoma doesn't have empty chairs," said Yaku.
+
+Sho laughed out loud on the way down. Kuroo, landing beside the net, laughed too.
+
+He got 3 of the 7 in. 1 off Kuroo's outside hand into the stands. 1 straight down past Lev, who was still learning. 1 roll into a chair Yaku really hadn't reached. The other 4 Nekoma dug, or blocked, or Sho put out. It was the kind of line Satoshi would have written in a report about somebody else, and then underlined *against Nekoma*, because against Nekoma 3 of 7 was not bad at all.
+
+---
+
+At 23-23 Hinata hit the normal quick with his eyes shut and Lev, who'd been touching it all week, got his long arm on it, and it went up, and Daichi dug it, and Kageyama set Tanaka, and Tanaka hit it past Lev's other arm into the floor.
+
+24-23.
+
+Karasuno's set point.
+
+The whole of Karasuno's bench was on its feet. Yamaguchi had both hands over his mouth. Takeda was gripping the clipboard so hard it bent. On the court Hinata was bouncing on his toes and couldn't stop.
+
+*The Little Giant's team never beat Nekoma.*
+
+Sho stood in the middle of the back row and felt it. All of it. 3 weeks of losing to them, and May before that, and the whole of the Battle at the Garbage Dump before any of them were born. 1 point.
+
+Nekoma served. Daichi passed. Kageyama set Hinata the normal quick, and Kuroo was there, reading it the way Kuroo read everything, and blocked it straight down.
+
+24-24.
+
+Nekoma served again. Yaku dug Tanaka's best hit off the floor as if it were nothing, and Kenma set Yamamoto, and Yamamoto hit it so hard through Tsukishima's hands that Noya, diving, only got his fingertips to it.
+
+24-25.
+
+---
+
+Kenma was in the front row. Nekoma's ball was coming back over after Karasuno's attack: a dig off Kai, high and slow, and it was going to Kenma, and Kenma was going to set it, and this was the point.
+
+Sho stood in the middle of the back row.
+
+He'd never asked for it with this much riding on it. In the 3rd gym it had been 2 nights ago and nothing at stake. Against Shinzen this morning it had come by itself. Now Karasuno was 1 point from losing to Nekoma again, and Mio's voice was in his head, small and fierce and certain: *Then ask it nicely.*
+
+He looked at the middle. The net, the tape, the space over Kenma's hands. He let the edges come. He crossed out what he could: Kenma's hips square to the left, his feet a step and a half back from the net; too far off for the dump, Kenma had never dumped from that far. Kuroo already in the air in the middle, early, a decoy. Lev late. Fukunaga out of position from the dig. That left Yamamoto, coming in loud from the left, and Kai behind him.
+
+*If you'd like to come,* he thought. *Now would be a good time.*
+
+It came.
+
+The gym went quiet, and it came, the way somebody sits down beside you, and it sat down on the loudest thing on the court.
+
+Yamamoto.
+
+Yamamoto hung over the net in points of light with his arm all the way back, every inch of him shouting *mine*, and the ghost peeled off his hand a blink early and swung, full, hard, cross. The real swing. Yamamoto always swung for real.
+
+The map said Yamamoto. The eye said Yamamoto. Sho's feet were already going toward Yamamoto's cross, 2 steps back and to the left.
+
+The sound came back.
+
+*Tap.*
+
+1 hand. 2 fingers. A push.
+
+Kenma, a step and a half off the net, from a place Sho had crossed out because nobody dumped from there, had reached up with his left hand as Yamamoto swung at nothing and pushed the ball over the net, soft and short, into the 1 piece of Karasuno's court that every line in Sho's head had gone dark over.
+
+It landed a meter in front of Tsukishima's feet, where Sho had been standing a blink before he'd gone to Yamamoto's cross.
+
+It bounced once. It rolled.
+
+24-26.
+
+---
+
+Nekoma's side went up. Kuroo had both arms in the air, and Lev was shouting, and Yamamoto, who had swung at nothing, was punching the air as if he'd hit it. Yaku was looking at Kenma with his eyebrows raised.
+
+Sho stood 2 steps deep in the back left corner, where Yamamoto's cross would have gone, with his arms out for a ball that had never come, and looked at the ball rolling to a stop by the net post.
+
+The eye hadn't lied. Yamamoto had swung. The map hadn't been stupid. Nobody dumped from a step and a half off the net with their hips square to the left.
+
+Nobody except a setter who'd been watching you cross things out all morning.
+
+*Good ones do things that can't happen,* Ikkei had said, in the children's gym. *Sometimes.*
+
+Sho put his hands on his knees. He was breathing hard, and smiling, and he couldn't have stopped it if he'd tried.
+
+---
+
+At the net the 2 teams lined up and shook hands.
+
+Kuroo gripped his hand too hard and grinned and said, "Notebook," and nothing else. Yaku shook it and said, "Your feet were good." Lev said, "You lied! You lied with your FEET!" with enormous admiration, and tried to show him how, badly.
+
+Kenma reached him and stopped, 1 step too long, the way he had in May.
+
+His eyes went down to Sho's feet.
+
+Then they came up to Sho's face, and stayed there.
+
+"You patched it," said Kenma.
+
+"Mostly," said Sho.
+
+Kenma held the look. Then the very corner of his mouth moved, so small that only somebody who'd been watching people's faces for a living would have seen it, and he went on down the line to Tsukishima.
+
+---
+
+Karasuno went up the hill.
+
+Sho went up it in the middle of them, with Tanaka on 1 side yelling "FACE LIES!" every 10 meters for no reason at all, and Hinata on the other side not yelling anything, for once, with his jaw set and his eyes on the top of the hill. Halfway up, Hinata said, without looking at him, "We'll beat them. At the Spring High. On the real court."
+
+"Yes," said Sho.
+
+"You'll lie to him again."
+
+"He'll be ready for it."
+
+"Then lie better," said Hinata, and ran ahead.
+
+At the top Sho stopped and turned round and looked down at the school: the main gym, the 3rd gym at the edge of the trees, Shinzen's players carrying the water, Nekoma in red on the grass by the door. Kenma was sitting on the step again with his console, not playing it, looking up the hill.
+
+Down by the gym door Ukai was standing with his arms folded. He looked up the hill too. He didn't wave. He just stood there, looking, until Sho turned and started down.
+
+2 games left. Ubugawa. And then, last of all, Fukurodani.
+
+**Continuity (ch 42)**
+
+- Sho POV, day 8 (last day) of the Shinzen camp, game 2 vs Nekoma. **Nekoma won 26-24** (Karasuno-first: 24-26). **The lie (showcase), ears, the map (ruling out), the invited eye; the final dump into the 1 spot the map ruled out.** No status card.
+- **"Tell Coach 1st" (Den Den Mushi, 3 lines):** "Their setter reads my stop... I'm going to show him a wrong 1. A stop where I'm not." "And when he works that out?" "Then he has to look at something else. My feet, probably... Then I'll probably lose that. But he'll have had to change." Ukai: "Your old stop. The dot... You can still do that?" "I'll know after the 1st 1." **"Do it. Asahi's spot. Whole set... I'd rather lose to Nekoma trying something than lose to Nekoma the way we always lose to Nekoma." "You told me before you did it. Good."**
+- **Stakes:** the Little Giant's team never beat Nekoma (May, club room); Karasuno lost every set in May and Tokyo; the Battle at the Garbage Dump. Kenma back row in the 1st rotation.
+- **Honest for the 1st 8 points:** Kenma reads the wide stop too: "the shape of the room... which way the circle leaned"; Kai's back-row middle into the least likely corner (4th rally); again at 5-7. 5-8.
+- **Lie 1 at 9-12:** Yamamoto's loud approach (every Nekoma hitter swings for real); **Sho shows the old dot deep (heels down, knees, hands still, "3 frames of nothing") with his weight on the inside of the left foot; Kenma sets Kuroo's quick into the space; Sho goes off the left foot and digs it**; Daichi sets Tanaka; off Lev's wrist: 10-12. **Tanaka: "THAT WAS A LIE! YOUR FACE LIED! FACE LIES!" "It was my feet, senpai." "FEET, FACE, SAME THING!... I KNEW YOU HAD IT IN YOU!"** Kenma looked at Sho's face for the 1st time for more than a moment ("the boss do something the boss had never done").
+- **Lie 2 at 14-15 (Kenma front row: the dump is back):** dot deep, weight forward; **ears: Kenma's set = soft double "*tk*", dump = 1 hand, 2 fingers, "a single tap on a door"; *Tap*; Sho 3 steps in, flat, 1 arm under it in front of Tsukishima's feet;** Tsukishima's 1-second look, then a straight-down block on Yamamoto: 15-15. Tanaka: "FACE LIES!"
+- **Nekomata's timeout at 16-15, looking at Sho.** Daichi: "That 1's for you." Ukai: "He's going to change... Watch what he changes to." Kenma under a towel (as in May); **his eyes went to Sho's toes.**
+- **Lie 3 at 17-16 fails: Kenma reads the weight, sets Yamamoto into the corner Sho pretended to stand in and was leaving; finger, into the bench, 17-17.** "Ah." Ukai's 1-shoulder shrug (*You said.*). **Sho stopped lying;** honest circle; point for point.
+- **Ace: 4th whole set on the wing, 7 swings, 3 in** (1 off Kuroo's outside hand, 1 past Lev, 1 roll into a real empty chair). **19-19: Blind Spot roll into Fukunaga's empty chair; Yaku dug it: "Nekoma doesn't have empty chairs."** Kuroo laughed too. "Against Nekoma 3 of 7 was not bad at all."
+- **23-23:** Lev touched Hinata's normal quick (eyes shut); Daichi dug; Tanaka past Lev: **24-23, Karasuno's 1st ever set point vs Nekoma.** Kuroo blocked Hinata's quick: 24-24. Yaku dug Tanaka; Yamamoto through Tsukishima, Noya fingertips: 24-25.
+- **The last rally:** Kai's dig high to Kenma (front row). Sho invited the eye ("*Then ask it nicely.*"; "*If you'd like to come...*"); ruled out: dump (Kenma a step and a half off the net, hips square left; never dumped from there), Kuroo decoy early, Lev late, Fukunaga out of position; left: Yamamoto and Kai. **The eye came and sat on the loudest thing on the court: Yamamoto (Kenma's bait); ghost: full real cross swing.** Sho went 2 steps back-left. ***Tap.* Kenma's left-hand dump from a step and a half off the net into the 1 piece every line in Sho's head had gone dark over, a meter in front of Tsukishima. 24-26.** "The eye hadn't lied. Yamamoto had swung. The map hadn't been stupid... Nobody except a setter who'd been watching you cross things out all morning." Ikkei's line. Sho smiling (not laughing).
+- **Handshakes:** Kuroo: "Notebook." Yaku: "Your feet were good." Lev: "You lied with your FEET!" **Kenma (1 step too long, as in May): feet, then face. "You patched it." "Mostly."** The corner of Kenma's mouth.
+- **Hill:** Tanaka "FACE LIES!" every 10 meters; Hinata: "We'll beat them. At the Spring High. On the real court." "Yes." "You'll lie to him again." "He'll be ready for it." "Then lie better." Kenma on the step looking up the hill; Ukai at the gym door looking up, no wave.
+- **2 games left: Ubugawa, then Fukurodani last.**
+- Next: ch 43 "The last game" (Sho): Ubugawa (brief), then the canon final vs Fukurodani (goal: win at least 1 set? camp games are single sets: the final is the last game); **the new quick lands (Hinata and Kageyama's, theirs)**; Sho on court every set; **the out-of-system kill (the bad ball) finally his**; 1 rally where map and eye run together. Ch 44: last ball (Fukurodani wins, canon), "You were there. All 3." (Kageyama), laughing on the floor in the penalty.
