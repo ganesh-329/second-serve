@@ -612,3 +612,366 @@ Tomorrow morning, against Fukurodani, or Nekoma, or whoever came 1st, Suga would
 - Hook (Sho's read): tomorrow Suga sets, no quick, 2 empty front-row places that Ukai has to fill.
 - Next: ch 32 "Flying falls" (trip 1, Fukurodani Academy, Tokyo; the morning without Hinata and Kageyama; Sho plays real minutes and gets read by Akaashi; the eye fires on Bokuto, a little soreness gone by the next game; penalty dives; Saeko drives Hinata and Kageyama, theirs).
 - No status card.
+
+## Chapter 32: Flying falls
+
+The bus was at the school gate at 5:40, white, with *Karasuno High School* on a card in the windscreen in Takeda's handwriting. The engine was running. The driver was a man of about 60 in a cap, reading a sports newspaper with his feet up on the dashboard.
+
+It was barely light. The sky over the hills was the color of milk, and the street lamps along the school wall were still on, and a crow sat on top of the gate post watching them load the bags into the hold underneath. Sho had his bag on 1 shoulder and the bundle Mom had tied for him in the other hand: onigiri, 4 of them, and a frozen bottle of barley tea wrapped in a towel to keep them cold. In the inside pocket of his bag, zipped shut, the permission form in its clear plastic folder, and next to it, folded, a Classical test with *58* on it in red.
+
+Everybody was there except 2.
+
+Tanaka stood by the bus door with his arms folded, looking up the empty street toward the station, as if a car might come round the corner any minute. Noya stood beside him with his hands in his pockets, looking the same way.
+
+"They'll be fine," said Tanaka, to the street. "They'll do the test, and they'll pass it, and Saeko-nee will bring them."
+
+"Saeko-nee drives like a demon," said Noya.
+
+"She drives like a demon," Tanaka agreed. "They'll be fine."
+
+Daichi counted heads twice, the way he always did. Takeda counted them a 3rd time. Ukai came out of the convenience store across the road with a coffee and a bag of bread rolls and got on without counting anybody. Kiyoko sat at the front with the first-aid box on her knees. Yachi sat beside her with a clipboard she'd been given on Monday and hadn't put down since, reading the schedule for the 3rd time with her lips moving.
+
+Sho got the window seat halfway down on the left. Yamaguchi sat next to him, and then got up again because Tsukishima was across the aisle and he wanted to tell him something, and then sat down again. The bus pulled away from the gate at 6:02. Through the back window Sho watched the school go, the gym roof, the cherry trees, the crow on the gate post, and then the road turned and it was gone.
+
+2 seats near the front were empty. Nobody sat in them. Nobody put their bags on them.
+
+---
+
+It was nearly 5 hours to Tokyo.
+
+Most of the bus slept for the 1st 2. Tanaka slept with his mouth open and his head on Noya's shoulder, and Noya slept with his head on the window. Asahi slept sitting perfectly upright with his arms folded, like a monk. Tsukishima had his headphones on and his eyes shut, and Sho couldn't tell if he was asleep. Yamaguchi slept against Sho's arm, which Sho let him do.
+
+Sho watched the window.
+
+The motorway went south through Fukushima and the hills folded away on both sides into paddies and forests and small towns with big shrines. Somewhere around Koriyama he realized he knew this road. Satoshi had done it at 20, on a university team bus going the other way, north, to a tournament in Sendai, the spring before the knee went. He'd sat by the window then, too. He'd watched the same hills go by, and thought about the match, and about his left knee, which had been sore for weeks by then, a little, nothing, nothing he was going to tell anybody about.
+
+He looked at his own knee now, his left one, Sho's, under his track pants. It was fine. It had always been fine.
+
+He took out the notebook and opened it on his knee, and turned to the 2 pages on Nekoma, and then to a blank one, and wrote at the top: *Fukurodani Academy Group. Day 1.* Then he sat with the pen and didn't write anything else, because he didn't know anything else yet. He'd know by tonight.
+
+Past Utsunomiya the land flattened out. The buildings came closer together and got taller and grayer. Around 10 the bus woke up, all at once, the way buses did. Tanaka sat up and wiped his mouth and looked out of the window and said, "Is that Tokyo?"
+
+"That's Saitama," said Ennoshita.
+
+"It looks like Tokyo."
+
+"It's Saitama."
+
+They crossed a river that was wider than any river in Miyagi, brown and slow, with baseball pitches along its banks. Then it was Tokyo, and it went on and on, buildings and train lines and expressways stacked on top of each other, and everybody on the bus who'd been asleep was now pressed against a window.
+
+---
+
+Fukurodani Academy had a gymnasium bigger than Karasuno's First and Second Gymnasiums put together.
+
+It was new, or newer, with a curved roof of white steel and glass and high windows all along 1 side, so that the light came down in bright bars across 2 full courts side by side. On 1 court a team in white and black was warming up. On the other, a team in red that Sho knew from May. The noise came off both courts at once and went up into the roof and came back down doubled: shoes squealing, balls slapping, someone laughing, a whistle, a voice shouting "HEY HEY HEY!" at a volume that made 2 of the Karasuno 1st years stop in the doorway.
+
+Sho stopped in the doorway too.
+
+He stood there with his bag on his shoulder and let it all come at him. Ears 1st, the way he'd been training. The pass on the near court, a solid pass off both arms. A set, then a spike, the crack of it doubled by the roof. Somebody's shoes. A pass on the far court, and another, and the roof took the sound of them and threw it back and mixed them together, near court and far court, the echo of 1 pass landing on top of the next one, until he couldn't tell which was which. He shut his eyes, the way he did on the step, and listened.
+
+Everything. All at once. 2 courts and a roof full of echo, and no way to pick 1 pass out of it.
+
+He opened his eyes. Behind him Ennoshita said, "You're in the door," and he moved out of it.
+
+"Karasuno?" A tall man in a polo shirt with a whistle round his neck had come across from the near court. "Welcome. Fukurodani. You're on court 2 at 12, against Shinzen. Changing rooms are that way." He pointed. "Your coach?"
+
+Ukai raised a hand.
+
+"Nekomata-sensei says hello," said the man, and nodded at the red team. "He says you've met."
+
+They had. Sho found Kenma without trying, at the back of Nekoma's line, hair half yellow and half dark, and looked away before Kenma could look back.
+
+They changed. They came back out and warmed up on the side of court 2 while Nekoma finished on it. Sho stretched by the wall and watched the near court, where the team in white and black was running a hitting line.
+
+Their setter was a 2nd year, or looked like it. Dark hair. Calm, almost sleepy face. He set every ball the same way, quiet hands, a small pause at the top, and the ball went where it went, and his face didn't change whether it was a good set or a bad one.
+
+He had *5* on his back, black on white, the plain block numeral, a little faded from washing. Half the teams in Japan had a 5 on somebody. Satoshi had worn 5, at university, for 2 years, navy on white, with his name stitched on the sleeve of the team jacket.
+
+His hand had gone to his left knee. He found it there, resting on the kneecap, and took it away.
+
+"Kiyose," said Tsukishima, from further along the wall. "You're staring at their setter."
+
+"He's good."
+
+"Should I get you his autograph?" said Tsukishima, and went back to stretching his hamstrings.
+
+On the near court the setter with 5 on his back set a ball high and outside to a hitter with gray and black hair sticking up in 2 points like horns, who went up into it with his whole body and hit it so hard it bounced off the floor and up into the windows and came back down onto the next court.
+
+"HEY HEY HEY!" shouted the hitter, landing. "DID YOU SEE THAT, AKAASHI?"
+
+"I set it, Bokuto-san," said the setter.
+
+---
+
+Sho started on the bench, with the spare towels folded on his knees.
+
+Suga set. Narita took Hinata's place in the middle. Tsukishima was the other middle. Daichi, Asahi, Tanaka on the wings, Noya behind them. It was a normal lineup with a normal setter and no quick, and it played like one: solid, careful, a little slow. Suga's sets went high and outside and gave the hitters time, and Shinzen's blockers had time too, all the time they needed, because there was no little orange-haired boy running at them from the middle and pulling 2 of them across the net every time. They lined up in front of Asahi and Tanaka and waited.
+
+Sho watched it from the bench, the way he'd watched for 9 years, seeing everything and touching none of it. By 12-17 he'd folded the top towel into a square the size of his palm.
+
+Sho went in at 14-18 for Asahi, in the back row.
+
+"Um. Borrow it longer this time," said Asahi, as they passed in the substitution zone, and squeezed Sho's shoulder on the way past, and went to the bench.
+
+The noise was worse on the court. Ears were no good here. The roof took every pass and threw it back mixed with the pass from the other court, and the shouting from both benches, and the squeal of 24 pairs of shoes. He gave up on listening after 2 rallies, and just looked. 1 look at the far side before every serve: their setter, their front row, their libero, the gap. Then the server.
+
+He passed 3 clean. He dug 1 off the block. He got set once, a high back-row ball on the right, from behind the 3-meter line, and hit it cross, and Shinzen's block was waiting for it, and it came back down at his feet.
+
+Shinzen won 25-19.
+
+"Penalty!" called the Fukurodani coach over his shoulder, from the near court.
+
+Karasuno lined up on the end line.
+
+"How many?" said Yamaguchi, who'd come off the bench to line up with them.
+
+"1 length," said Daichi. "Every time we lose."
+
+He went 1st. He threw himself forward onto the polished floor of Fukurodani Academy's gymnasium with his arms out, and his hands caught him, and he slid on his chest the length of his own body, and got up, and went again. Suga went next. Then Asahi, enormous and graceful, sliding like a seal. Then Tanaka, who yelled "FLYING FALL!" every single time he left the ground. Then Noya, who skimmed, as if he'd been born on a polished floor.
+
+Sho went.
+
+He ran 3 steps and threw himself forward, and the floor came up at him, polished and cool, and his hands caught it and his chest hit it and he slid, and the gym went past at the level of the floor, people's shoes, the bottom of the net, the lines. He got up. He went again.
+
+On the 3rd one, halfway down the court, flat on his chest on the floor of a gym in Tokyo, he started laughing.
+
+It came up out of him on its own. He was 15, and he was lying on his face on the floor of somebody else's gym, in Tokyo, in a team shirt, because he'd lost a game of volleyball that he'd played in. Satoshi had sat in a room with the lights off for 9 years and watched other people lose, and never once got to lie on the floor afterward with his face against the boards because he'd been out there.
+
+He got up, still laughing, and threw himself forward again.
+
+At the far end Tsukishima was standing up from his last one, brushing off his chest with both hands, and looking at Sho with his eyebrows raised over his glasses.
+
+"You're enjoying this," said Tsukishima.
+
+"Yes," said Sho.
+
+Tsukishima looked at him a while longer. Then he went to get water.
+
+---
+
+The 2nd game was Fukurodani, at 12:50, on the near court.
+
+Ukai started Sho.
+
+He said it in the huddle without making anything of it, reading the lineup off his clipboard, and only paused when he got to the end. "Asahi, you're out this one. Kiyose, you're in. Same spot."
+
+Asahi nodded. "Yes, Coach." He looked at Sho, and rubbed the back of his neck. "Um. Their 4. Bokuto. I watched him in warm-up. He hits cross more than line." He thought about it. "When he's happy."
+
+"When he's happy," said Sho.
+
+"You'll see," said Asahi.
+
+Fukurodani came out onto the court in their white and black, Bokuto at the front of them, bouncing on his toes. "HEY! Karasuno! Kuroo says you've got a little one! A jumpy one! Where is he?"
+
+"They're not here yet, Bokuto-san," said Akaashi behind him, in the same voice he'd used to say *I set it.*
+
+Sho went to his spot at the back right. Before the 1st serve he looked once across the net and took in all of it: Akaashi at the right of the front row, hands loose at his sides; Bokuto on the left, up on his toes, grinning at nothing; their middle, tall and quiet; their libero, small and quick, bouncing on his heels. 1 look, and he let it go, and watched the server.
+
+Fukurodani served. Daichi passed. Suga set Tanaka on the left, and Tanaka hit it hard down the line, and their libero dug it, and Akaashi got under it. Sho watched Akaashi's hands. They came up to the ball the same way they'd come up to every ball in warm-up, with no tell in the wrists and no lean in the hips, and the ball went high and outside to the left, to Bokuto.
+
+Bokuto came in big and loud, every step of his approach slapping the floor, and went up high with his arm all the way back, and the gym went silent.
+
+Sho knew the silence. It came the way it always came, without asking: the noise of both courts and the roof and the benches went far away all at once, as if someone had shut a door, and Bokuto became points of light hanging in the air above the net, shoulder and elbow and wrist and hips. The brightest was his right hand, burning white. A ghost peeled off it 1 blink early. Its wrist turned out toward the sideline, and the arm came through long.
+
+Line. And from that height, with that much arm, deep. The back right corner, where Asahi had said he wouldn't hit when he was happy, and where Sho was standing.
+
+He was already moving, 2 steps back and to the right, and down. He put his arms together where the ghost had pointed, and kept them there, and the sound came back all at once, the crack of Bokuto's hand on the ball and the roar off the Fukurodani bench, and the ball was already on him.
+
+It was the hardest ball he'd ever had come at him. Harder than Iwaizumi. It hit his forearms like a kicked door and went straight up, high and wild, toward the side of the court, and Noya ran it down and scooped it over the net with 1 arm.
+
+"NICE, KIYOSE!" Noya yelled, from the floor. "LEAVE THE REST TO ME!"
+
+Fukurodani put it away on the next touch anyway. 1-0 to them.
+
+On the far side of the net Bokuto had landed and was standing quite still, pointing at Sho.
+
+"HEY!" said Bokuto. "13! You got it! You GOT it! That was my best one! Akaashi, did you see? He got my best one!"
+
+"I saw, Bokuto-san," said Akaashi.
+
+Sho went back to his spot. His eyes stung a little, the way your eyes sting after you've stared at something bright, a dull warmth at the back of them. He blinked twice and looked across the net while the Fukurodani server bounced the ball.
+
+The server had the ball in his hands, and Akaashi was looking past him, across the net, at Sho. It was a short, plain look, the kind you'd give a word on a page you hadn't expected to find there. Then Akaashi turned back to the net and put his hand behind his back for the serve.
+
+---
+
+Sho saw the 1st change on the 4th rally.
+
+Bokuto went up on the left, the same big approach. Sho was in the back right, ready for the line, and the ball went cross instead, hard, at Noya, who dug it and yelled about it.
+
+He saw the 2nd change on the 6th. Fukurodani had the ball on a free ball, an easy pass, and every Karasuno blocker leaned toward Bokuto, and Akaashi set the middle instead, quick, into the floor in front of Daichi.
+
+On the 9th Sho cheated. Bokuto was on the left again, and Sho took half a step toward the middle, for the cross, and Bokuto went line after all. Soft. A slow roll shot over the block, down the line, into the deep corner Sho had just stepped out of. Sho got 1 hand to it, flat on the floor, and it went out of the court off his knuckles.
+
+He lay there and watched Akaashi walk back to his spot.
+
+Then he got up, and on the next rally he watched the set.
+
+It was a 9-year habit, from the room with the monitors. The setter tells you before the hitter does. And he saw it at once, now that he was looking at the right thing. When Akaashi wanted Bokuto to go cross, the set came a ball's width tighter to the net and a little further inside the antenna, and from there Bokuto's arm went cross by itself, because that was the only big swing the ball left him. When Akaashi wanted line, the set drifted out toward the antenna, and Bokuto's arm went down the line. Bokuto didn't have to know. Akaashi put the ball where he wanted, and Bokuto hit it there, happy, every time.
+
+So that was how. The question was when. When had Akaashi decided where Sho would be?
+
+At 6-11 Ukai called a timeout.
+
+"How did you know line?" he said to Sho, in the huddle, before anything else. "On the 1st one."
+
+"His wrist turned out. And he had a lot of arm left."
+
+"Hm." Ukai looked at him for 1 beat longer than he looked at anybody else. "What else."
+
+Sho told him in 3 lines, the way he used to write them for coaches to read before a match. "Akaashi-san sets him tighter when he wants cross. Out to the antenna when he wants line. Watch the set and you'll know before Bokuto-san does."
+
+Ukai turned to his front row. "You heard. Tsukishima, you're on the set."
+
+Tsukishima pushed his glasses up. "I was already on the set."
+
+A few rotations later Sho came up to the front row and switched to the right side, across the net from Bokuto's spot. The 1st time Bokuto came at him, he read the set early, tight, cross, and he went up with Bokuto's approach, and hung there, and came down. Bokuto was still going up. Bokuto waited at the top of his jump until Sho's hands were on the way down, and hit the ball off the tips of Sho's fingers and out into the next court.
+
+"HEY HEY HEY!" said Bokuto.
+
+Sho stood at the net with his fingers stinging and looked at his own hands.
+
+He'd been right about everything. The set, the cross, the angle. He'd been right too early.
+
+On the next one he waited, and Bokuto hit over him anyway, because Bokuto was 2 years older and had about 20 centimeters of jump on him. But on the one after that he waited, and Tsukishima waited next to him, and the ball hit Tsukishima's hands and came straight back down onto Fukurodani's floor. Bokuto stood looking at it with his mouth open, and for the next 3 rallies he hit everything into the net, and Akaashi set the middle and the right side and said "Bokuto-san" twice, quietly, until he came back.
+
+Back in the back row Sho called the short ones. "Short!" when Akaashi tipped, and Daichi was there. "Line!" once, and Suga was there. He didn't call Tsukishima's blocks. Tsukishima would have looked at him.
+
+The sting at the back of his eyes stayed with him the whole game, faint and warm, and didn't get any worse.
+
+They lost 25-17.
+
+---
+
+After the penalty, on the bench, with his chest still warm from the floor, Sho got his notebook out of his bag and wrote:
+
+*Akaashi. #5. Read me in 1 dig. Stopped sending Bokuto's line to my corner. Never said a word to Bokuto. He steers with the set (tight = cross, out = line). When did he decide?*
+
+He thought about it. Then he added:
+
+*Everybody else watched the ball. He was watching me.*
+
+He looked at that for a while. Then he wrote the line he'd been carrying since the timeout:
+
+*Did he see me go still?*
+
+He put the notebook back in his bag. On the court Ubugawa were warming up, and Ukai was already reading the next lineup off his clipboard, and Sho's name wasn't in it.
+
+---
+
+Saeko's car arrived at 3:10.
+
+Sho was on the bench for the 3rd game, against Ubugawa, and heard it before anyone else did. A car engine somewhere outside the gym, revving far too hard, and then a squeal of tires on tarmac that went on for longer than tires should squeal. Then a car door slamming. Then another.
+
+Then the side door of the gymnasium banged open, and Hinata came through it at a full sprint, in his school uniform, with his bag still on his back, and didn't stop running until he was at the edge of court 2, where he stood with his hands on his knees, gasping.
+
+"WE... MADE IT!" he gasped, at the whole gym.
+
+Behind him Kageyama walked in, a little green in the face, carrying his bag in 1 hand, and stopped just inside the door. He leaned against the wall. He looked as if he'd just stepped off a boat.
+
+Behind Kageyama, in the doorway, there was a young woman with short blond hair and sunglasses pushed up on her head and car keys on her finger, grinning from ear to ear.
+
+"RYU!" she shouted, across the whole gym. "I BROUGHT YOUR BABIES!"
+
+On the court, waiting to receive, Tanaka put his face in his hands.
+
+Ubugawa won 25-21. Karasuno threw themselves down the floor again. Sho's eyes, by then, felt like anybody else's.
+
+Ukai let Hinata and Kageyama warm up, and put them in for the last game of the day, against Shinzen again. Sho watched from the bench as the quick came back onto the court for the 1st time that day: Hinata in the air before the ball left Kageyama's hands, the crack of it on the floor, Shinzen's blockers turning their heads 1 beat too late. Hinata and Kageyama still weren't speaking to each other. They ran the old quick, the one where Hinata shut his eyes, and it went in, and went in.
+
+Shinzen won 25-23 on everything else.
+
+Nekoma were waiting for the next court, sitting along the wall behind the Karasuno bench. Kenma was at the end of their row with a handheld game console in his lap, and he wasn't playing it. He was watching the court. He watched Hinata, the way everybody did, and then, for a few rallies, he watched Sho on the bench.
+
+Sho felt it the way he'd felt Akaashi's look at 1 o'clock. He looked up and across, and Kenma's eyes had already gone down, the way they had in May in the handshake line, to Sho's feet, and stayed there a while, and went back to the game.
+
+---
+
+That night they slept on futons in a classroom on the 2nd floor of Fukurodani Academy, 13 futons in a row with the desks pushed to the walls, and the windows open on a Tokyo night that never got properly dark.
+
+At 9:30 Sho went down to the courtyard with his phone, and sat on a bench under a light, and called home.
+
+Mio answered on the 1st ring.
+
+"You said every night," she said.
+
+"It's night."
+
+"It's 9:30. I've been waiting since 8." A rustle. The supermarket flyer, he guessed, unfolded on her knees. "Okay. Go. Who'd you play?"
+
+He told her. Shinzen, 19 to 25. Fukurodani, 17 to 25. Ubugawa, 21 to 25. Shinzen again, after Hinata and Kageyama came, 23 to 25.
+
+"You lost all of them," said Mio.
+
+"All 4."
+
+"So you lay on the floor 4 times."
+
+"4 times." He told her about the flying falls, and that he'd laughed, and she said "Why would you laugh?" and he said "I don't know. It was fun," and the line went quiet long enough that he wondered if she was writing it down. He told her about Saeko-san, and the car, and Tanaka-senpai putting his face in his hands, and Mio laughed so hard she dropped the phone.
+
+"Okay," she said, when she'd picked it up. "Eyes."
+
+"Once," said Sho. "On their ace. Bokuto-san. He's really strong. I dug his best hit."
+
+"And?"
+
+"And my eyes stung a bit."
+
+"Where?"
+
+"Behind them. Like after you've been looking at a screen."
+
+"How long?"
+
+"Till the next game. Then it went."
+
+"Less than Seijoh."
+
+"Much less."
+
+"Okay," said Mio. "I'm keeping score. What else."
+
+"Their setter wears number 5."
+
+"So?"
+
+He looked at the light above the bench, where moths were going round it.
+
+"Nothing," he said. "It's a good number. And he read me in 1 rally. He watched me dig 1 ball and then he never sent it to me again."
+
+There was a pause on the line while Mio worked that out.
+
+"Is that bad?"
+
+"It's interesting," said Sho.
+
+"That means bad."
+
+"It means interesting." He watched the moths go round. "Tomorrow we play Nekoma. Their setter's the one who read me in May. In 4 rallies. Today Akaashi-san did it in 1."
+
+"So tomorrow it'll be 0," said Mio.
+
+"Maybe," he said.
+
+"Then don't let him," said Mio. "Goodnight. Tell me tomorrow." And she hung up.
+
+**Continuity (ch 32)**
+
+- Sho POV, Saturday, trip 1, day 1 at Fukurodani Academy, Tokyo. The eye fired once (on Bokuto). Cost: a faint warm sting behind the eyes for the rest of that game, gone by the next (bible "Adapting"; user direction: no drama).
+- Bus at the school gate 5:40, left 6:02, nearly 5 hours (driver about 60 in a cap). Kiyoko (first-aid box) and Yachi (clipboard, schedule) aboard. 2 empty seats near the front. Mom's bundle: 4 onigiri, frozen barley tea. Permission form and the Classical 58 in the zipped pocket. Tanaka/Noya: "Saeko-nee drives like a demon."
+- **Satoshi memory:** at 20, the spring before the knee went, on a university team bus north to Sendai past Koriyama; knee sore for weeks, "nothing he was going to tell anybody about" (fits bible: 3 months of pain at 20). Notebook: *Fukurodani Academy Group. Day 1.* Tanaka: "Is that Tokyo?" Ennoshita: "That's Saitama."
+- **Fukurodani's gym:** bigger than both Karasuno gyms; curved white steel and glass roof; 2 courts; echo. **Sound reads fail there** (passes blur); Sho switches to 1 look before every serve. A Fukurodani coach (polo, whistle): "Nekomata-sensei says hello... He says you've met." Nekoma already there; Sho sees Kenma and looks away first.
+- **Akaashi #5** (Satoshi's university number, 2 years, navy on white). Sho's hand went to his left knee. Tsukishima: "You're staring at their setter." "He's good." "Should I get you his autograph?" Bokuto: "DID YOU SEE THAT, AKAASHI?" "I set it, Bokuto-san."
+- **Game 1, Shinzen, lost 19-25 (12:00):** Suga (S), Narita and Tsukishima (MB), Daichi, Asahi, Tanaka, Noya (L). Sho on the bench folding a towel ("the way he'd watched for 9 years"). In at 14-18 for Asahi, back row. Asahi: "Um. Borrow it longer this time." (callback to ch 22 "Please let me borrow it for a bit"). 3 clean passes, 1 dig off the block, 1 back-row attack from the right blocked.
+- **Flying falls** (Takeda explained them in ch 29): Yamaguchi "How many?" Daichi: "1 length. Every time we lose." Order Daichi, Suga, Asahi (like a seal), Tanaka ("FLYING FALL!"), Noya (skimmed), Sho. **Sho laughed on the floor** on his 3rd dive. Tsukishima: "You're enjoying this." "Yes."
+- **Game 2, Fukurodani, lost 17-25 (12:50):** Ukai started Sho in Asahi's spot. Asahi (same year as Bokuto, no -san): "Um. Their 4. Bokuto. I watched him in warm-up. He hits cross more than line. When he's happy." Bokuto: "Kuroo says you've got a little one! A jumpy one!" Akaashi: "They're not here yet, Bokuto-san." **Eye fired on rally 1:** ghost's wrist turned out, arm long: line, deep, back right (against Asahi's scouting); Sho dug it wild; Noya scooped it over ("NICE, KIYOSE! LEAVE THE REST TO ME!"); Fukurodani scored. Bokuto: "13! You GOT it! That was my best one!" "I saw, Bokuto-san." Akaashi looked at Sho across the net.
+- **Akaashi read Sho:** rally 4 cross at Noya; rally 6 free ball, middle quick; rally 9 Sho cheated toward cross, Bokuto rolled the line into the corner he'd left (1 hand, out). **Sho saw the mechanism** (analyst habit, watch the set): tight to the net and inside = cross; out to the antenna = line. Open question: *when* Akaashi decided.
+- **Timeout at 6-11 (Den Den Mushi):** Ukai: "How did you know line?" "His wrist turned out. And he had a lot of arm left." "Hm." Sho's 3 lines: tight = cross, out = line, watch the set. Ukai: "Tsukishima, you're on the set." "I was already on the set."
+- **Front row (right side vs Bokuto):** Sho read it right and jumped too early; Bokuto waited and hit off his fingertips ("He'd been right too early": seeds block timing). Next he waited and was hit over (Bokuto 2 years older, about 20 cm more jump); then Tsukishima stuffed Bokuto; Bokuto sulked 3 rallies, Akaashi said "Bokuto-san" twice. **Hawk-Eye calls** from the back row ("Short!", "Line!"); never calls Tsukishima's blocks.
+- Notebook after the penalty: *Akaashi. #5. Read me in 1 dig. Stopped sending Bokuto's line to my corner. Never said a word to Bokuto. He steers with the set (tight = cross, out = line). When did he decide? / Everybody else watched the ball. He was watching me. / Did he see me go still?*
+- **Game 3, Ubugawa, lost 21-25** (Sho benched). **3:10 Saeko's car (canon: Saeko drives them; staging invented):** squealing tires; Hinata sprinted in in uniform: "WE... MADE IT!"; Kageyama green, leaning on the wall; Saeko (short blond hair, sunglasses on her head, keys): "RYU! I BROUGHT YOUR BABIES!" Tanaka, waiting to receive, put his face in his hands.
+- **Game 4, Shinzen again, lost 23-25** with Hinata and Kageyama in; still not speaking to each other; the old eyes-shut quick went in (nobody stops it yet; Lev's block is day 2). Canon: Karasuno lose every game on trip 1.
+- **Kenma** along the wall waiting for the next court, console in his lap, not playing; watched Hinata, then Sho; eyes went to Sho's feet (May handshake line callback) and stayed a while.
+- Night: 13 futons in a 2nd-floor classroom. **Mio call (9:30, courtyard bench, moths; she has the flyer):** "You lost all of them." "All 4." "So you lay on the floor 4 times." The laugh ("It was fun."). Saeko; Mio dropped the phone laughing. Eyes: "Once... stung a bit." "Where?" "Behind them. Like after you've been looking at a screen." "How long?" "Till the next game." "Less than Seijoh." "Much less." "I'm keeping score." Akaashi #5 ("It's a good number."). "He read me in 1 rally." "Is that bad?" "It's interesting." "That means bad." Kenma read him in May in 4 rallies. "So tomorrow it'll be 0." "Maybe." "Then don't let him."
+- Next: ch 33 "Read" (Kenma POV, surprise POV 1): day 2 vs Nekoma; Kenma reads Sho's stillness; Lev's block on Hinata (Lev's); loss.
+- No status card.
