@@ -2319,7 +2319,7 @@ She turned them round so Mom could see. Sho could see too. The June column was t
 
 "The muscles that turn his eyes in," said the doctor. "In June they'd been worked too hard, too fast, and they gave out. Since then he's used them every day, a little at a time, the way I told him. And they've done what muscles do." She tapped the new column. "They've adapted. Like any muscle you train."
 
-Mom looked at the 2 columns for a while. She didn't say anything. Her thumb moved once along the edge of the magazine.
+Mom looked at the 2 columns, the circled one and the new one. Her thumb moved once along the edge of the magazine.
 
 "So he can play," she said. "At the camp. All week."
 
