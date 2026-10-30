@@ -5895,3 +5895,458 @@ Then he looked at the phone again, at *several sets a day*, for a long time, wit
 - **The notebook's new 1st page** (31 pages left): *Hand up at the burning. / Tell Coach 1st. / Build the map so I don't need the eye. / Listen. / Play all 3 sets.* (underlined once). Satoshi's last 1st-page goal, at 20 in hospital, leg braced hip to ankle: *Back on court by spring.*
 - Hook: Takeda's group-chat message at 10:52 p.m.: *Everyone! I have just got off the phone with Nekoma High School!* ... "a week of matches in Tokyo, against Nekoma, Fukurodani and others, several sets a day". Details (dates, the exam condition) come in ch 29.
 - No status card.
+
+## Chapter 29: Invitation
+
+Takeda's message was long enough that Sho had to scroll it with his thumb 4 times.
+
+*Everyone! I have just got off the phone with Nekoma High School!*
+
+*Nekomata-sensei, Nekoma's coach, called me this evening. He followed our results at the prefectural preliminaries. He said (I wrote it down): "Tell old Ukai's grandson to bring them down here. Let's see what they've got now."*
+
+*Nekoma practices every summer with a group of strong schools from the Tokyo area, called the Fukurodani Academy Group: Fukurodani Academy, Ubugawa High School, Shinzen High School, and Nekoma. Nekomata-sensei asked them, and they have agreed to let us join them this summer!!*
+
+*In all, a week of matches in Tokyo, against Nekoma, Fukurodani and others, several sets a day! 1st a weekend of practice matches at Fukurodani Academy, after end-of-term exams. Then a full training camp in August at Shinzen High School, in Saitama. Fukurodani's ace is one of the best in the country, Nekomata-sensei says.*
+
+*I know some of you will be thinking about money. I am working on it! Please don't worry yet.*
+
+*I will explain everything properly tomorrow after school. I'm sorry for the late message. I couldn't wait.*
+
+*Takeda*
+
+Under it the group chat had already gone off like a string of firecrackers. Hinata had replied 11 times in a row, mostly with the word TOKYO, once with a picture of a cat that might have been about Nekoma or might just have been a cat. Tanaka had replied *TOKYOOOOOOO*, and then, half a minute later, *wait are there girls' teams at camp*. Noya had replied *RYU*. Kageyama had replied *Understood.* Ennoshita had replied *Sensei, it's 11 at night.* Yamaguchi had sent a single thumbs-up. Tsukishima hadn't replied at all.
+
+Daichi's message came in while Sho was still reading. *Everyone sleep. Details tomorrow. Thank you, sensei.*
+
+The doctor had said screens, an hour a day, not before bed. It was before bed. Sho had already used half the hour on the group chat that evening, before Takeda's message, and he'd read this one twice.
+
+He put the phone face down on the shelf and turned onto his back and looked at the dark.
+
+*Several sets a day.*
+
+Nekoma. He'd played them once, in May, in the Second Gymnasium with the spring air coming through the open windows. He could still see most of it: Kuroo at the net with 1 elbow on the tape, showing him the line like a door left open, then shutting it. Yaku cheating a half step away from his right side. And Kenma, serving with no expression at all, then setting with no expression at all, and holding the ball for 1 beat longer than any setter needed to, until Sho's eyes moved. Then dumping it exactly where Sho had stopped looking. 4 rallies, by Sho's count afterward, was all it had taken him. In the handshake line Kenma had stopped 1 step too long, looked down at Sho's feet, and said, "You stopped looking." And Kuroo, last in the line, grinning: "Win your prelims, notebook. We'll see you in Tokyo."
+
+They were going to Tokyo on Nekoma's invitation instead.
+
+He lay there a long while. The crack in the plaster above the window ran from the corner almost to the light fitting, and he couldn't see it in the dark, but he knew where it was. He kept seeing the inside of a gym he'd never been in, full of teams he'd never played, and himself on the court in it, for all of it.
+
+---
+
+He was on the step at 4:55 on Friday.
+
+The doctor had said light practice from Monday. Ukai had said stage only. Nobody had said anything about the step outside, so Sho sat on it with the cloth bundle on his knees and his back against the doorframe, and waited for the key.
+
+Tanaka came up the hill at 4:58 at a run, which he never did, with his phone in his hand.
+
+"Did you SEE it?"
+
+"Good morning, senpai."
+
+"TOKYO." Tanaka stopped at the bottom of the step and held the phone out at him, as if Sho might not have heard of the place. "A week! Fukurodani! Their ace is one of the best in the COUNTRY!"
+
+"I read it."
+
+"Did you read the part about exams?"
+
+"There wasn't a part about exams."
+
+"There's going to be a part about exams." Tanaka put the key in the lock and turned it. *Clack.* "There's always a part about exams. You wait. Sensei's going to stand there tomorrow with his hands together, all happy, and then he's going to say *but*."
+
+He went in and turned the lights on, bank by bank. Sho stayed on the step and listened: the buzz and flicker of each bank coming up, the squeal of the cart's bad wheel, and then the 1st ball off the wall.
+
+Both arms. The next one, both arms. The one after that, left.
+
+Sho had his eyes shut, against the doorframe. "Left."
+
+"I KNOW."
+
+Both arms. Both arms. Left. Both arms.
+
+"How are your grades?" said Sho.
+
+The next ball came off the wall and Tanaka missed it, and it hit him on the shoulder and rolled away across the floor toward the stage. Sho heard him go and get it, and come back, and stop in the doorway behind him.
+
+"...Why."
+
+"Because if there's a part about exams."
+
+Tanaka stood in the doorway with the ball under his arm, looking out over the bike racks at the morning coming up gray and soft.
+
+"Math's okay," he said. "I'm okay at math. English is..." He made a noise like a bicycle tire going down. "And Classical. Classical's the worst. Who cares what some guy in a hat wrote 1,000 years ago?"
+
+"I'm bad at Classical too."
+
+Tanaka turned round. "You're bad at something?"
+
+"Classical Japanese. I can't read it. The grammar goes backward." It was true, and it was a strange kind of true. Satoshi had sat all of this once, long ago, and forgotten every word of it the day the last exam finished. The math had come back with everything else. The English had come back better than before, after 9 years of reading scouting reports in it. Nobody in a V.League video room had ever needed the Tale of Genji. "I got 41 on the last test."
+
+Tanaka stared at him. Then a grin came up across his face, slowly, all teeth.
+
+"41," he said.
+
+"Out of 100."
+
+"41!" He threw the ball at the wall with both hands and caught it on the rebound. "You're a monster at volleyball, and you got 41 in Classical! HA!"
+
+"What did you get?"
+
+Tanaka's grin stayed exactly where it was, and he went back to the wall without answering.
+
+Both arms. Both arms. Left.
+
+---
+
+On Friday after practice Takeda stood in front of them with his hands together, exactly as Tanaka had said he would.
+
+The whole club sat on the floor in a half circle with towels round their necks. Ukai leaned on the wall by the door with his arms folded. Kiyoko sat at the end with her clipboard. Sho sat at the back, by the stage, with his notebook on his knee.
+
+Takeda went through the 2 trips, the weekend at Fukurodani and the week at Shinzen, sleeping in classrooms and eating in the school cafeteria and playing from morning until night. Then he checked his notebook.
+
+"Fukurodani's ace is a 3rd year called Bokuto Kotaro," he said. "Nekomata-sensei says he's ranked in the top 5 in the country."
+
+Hinata made a noise that wasn't a word.
+
+"And the matches are short," said Takeda. "1 set each, I'm told, over and over, all day. The team that loses each one does a penalty." He checked again. "A *flying fall*. The length of the court. I'm not entirely sure what that is."
+
+"A dive," said Daichi. "You throw yourself forward and slide on your chest."
+
+"Up and down the whole court," said Suga.
+
+"Every time you lose," said Ukai, from the wall.
+
+Hinata's hand shot up. "How many sets a day?"
+
+"Many," said Takeda. "Nekomata-sensei said *many*."
+
+Hinata looked down the row, quickly, toward where Kageyama was sitting, and away again before Kageyama could look back. Kageyama was looking at the floor in front of him. Neither of them had said a word to the other all week, and they didn't now. But both of them had sat up straighter, and both of them had their hands pressed flat on their knees, the same way.
+
+"There is a condition," said Takeda.
+
+In the front row, Tanaka put his face in his hands.
+
+"The school has approved the trips," said Takeda, "on 1 condition. The end-of-term exams are the week before the 1st trip. Anybody who fails a subject has to sit a make-up test, and the make-up tests are on the Saturday." He looked round at them gently, the way you'd look at people you were about to hurt. "The same Saturday we leave. The vice principal was very clear. If you fail, you sit the make-up, and you don't come to Tokyo."
+
+Nobody moved.
+
+Then Hinata said, in a very small voice, "...How many is failing?"
+
+"Below 30," said Takeda. "In any subject."
+
+Hinata's face went the color of paper. A few places away, Kageyama had gone completely still, the stillness of somebody doing arithmetic and not liking the answer.
+
+At the end of the row Tsukishima breathed out through his nose. Yamaguchi elbowed him, and then looked as if he wished he hadn't.
+
+"Kageyama," said Daichi. "What did you get in English last time?"
+
+Kageyama looked at the floor. "...I'd rather not say, Daichi-san."
+
+"Hinata?"
+
+"I'd ALSO rather not say!"
+
+Ukai pushed himself off the wall.
+
+"Right. Nobody fails. That's simple." He looked down the half circle. "Anybody who thinks he might fail something, I want to know by Monday. Not Tuesday. Monday. Sort out who you're studying with."
+
+There was a silence in which Hinata and Kageyama both looked, very carefully, at Tsukishima, and Tsukishima looked, very carefully, at the ceiling.
+
+Ukai's eyes came to the back of the room.
+
+"Kiyose. Grades."
+
+"Fine, Coach. Except Classical."
+
+"How bad."
+
+"41."
+
+In the front row Tanaka turned all the way round, beaming.
+
+"That's a pass," said Ukai.
+
+"It's close to 30."
+
+"It's 11 more than 30. Don't let it get closer." He looked at Sho a little longer. "Monday, light practice. Back of the court. Receive, nothing hard."
+
+"Yes."
+
+"And Tokyo." Ukai said it to all of them. "Several sets a day, every day. Everybody plays. Everybody." His eyes went round the half circle and stopped nowhere. "So nobody fails a test. Got it?"
+
+"YES!"
+
+---
+
+On Saturday Dad brought Mio to watch.
+
+He walked her to the door of the Second Gymnasium at 9:58, holding her hand across the car park, which she would never have let him do in front of anyone she knew, and let go at the door. Sho saw them from the stage, where he was already sitting. Mio had her hair in 2 bunches and her good white sneakers on, and a pencil and a folded flyer from the supermarket in her hand.
+
+Dad stood in the doorway and looked into the gym, at the nets going up and the boys in practice clothes running in pairs. Then at Sho, on the stage. He nodded once, bent down and said something to Mio, and went back outside. He didn't go far. Through the open door Sho could see him sit down on the step, his step, and take the folded newspaper out of his jacket.
+
+Mio came along the wall, carefully, the way she walked through other people's houses, climbed the 3 steps to the stage, and sat down next to Sho with her legs over the edge like his.
+
+"Dad's on the step," she said.
+
+"I saw."
+
+"He's reading the paper. He read it at breakfast. It's the same paper."
+
+"I know."
+
+Practice started. They bowed, and warmed up, and the noise came up off the floor: the squeak of shoes, the slap of balls, Ukai's voice, the shouting. Mio watched all of it with her mouth a little open. She'd seen them from the far side of a big gym at a tournament, small, behind the girls with fans. She'd never heard them up close.
+
+"They're loud," she said.
+
+"They're always loud."
+
+"Which one's the loud one with no hair?"
+
+Sho pointed with his chin. Tanaka was in the receive line, bouncing on his toes, yelling "COME ON! COME ON!" at Ennoshita, who was serving to him and hadn't said a word.
+
+Mio looked at Tanaka for a while.
+
+"He has hair," she said. "It's just short."
+
+The receive drill went on. A ball came off Tanaka's arm and skidded toward the wall, and Sho, who had his eyes shut, said "Left," under his breath.
+
+"What's left?"
+
+He opened his eyes. Mio was looking at him.
+
+"His left arm. It's lower than his right when he passes. The ball hits the bone and goes sideways."
+
+She looked at the court, at Tanaka frowning at his arm. Then back at him.
+
+"Your eyes were shut."
+
+"Yes."
+
+"How do you know it was his left arm, with your eyes shut?"
+
+"It sounds different."
+
+Mio gave him the look she gave math homework she thought was a trick. Then she unfolded the supermarket flyer, turned it over to the blank side, and drew a line down the middle with the pencil.
+
+"Do it again," she said. "I'll check."
+
+So he shut his eyes and listened. Ennoshita's serve, flat and soft. The shuffle of feet. The pass.
+
+"Daichi-san. Clean."
+
+The scratch of her pencil, and a pause while she looked.
+
+The next serve. The pass.
+
+"Noya-san."
+
+Scratch.
+
+"Tanaka-senpai. Left."
+
+"It went up."
+
+"It went up crooked."
+
+A pause. "...A bit." Scratch.
+
+He kept going. Some of them he was sure of before the ball had stopped moving. Noya's were almost silent, a soft deep sound, like a hand laid on a table. Daichi's were solid, the same every time. Tanaka's left was flat and hard, and easy. The others were harder. Asahi and Narita both passed with their arms very straight and their sounds came out the same, and he guessed, and sometimes he guessed wrong. A ball that went short sounded clean off the arms, and he only found out it was short from the sound of the setter's feet running for it, half a second too late to count.
+
+At 20 he opened his eyes. The light came in, bright, and the court in it, at the right distance, where it should be.
+
+Mio was looking at the flyer. 2 columns, *SHO* and *REAL*, and a row of little circles and crosses down the side.
+
+"11," she said. "Out of 20."
+
+"Which ones were wrong?"
+
+She showed him, with the pencil. 4 of them were Asahi and Narita, mixed up. 3 he'd called clean that had gone short. 2 he'd got the wrong person altogether.
+
+Sho looked at the 9 crosses for a while.
+
+"Narita-san and Asahi-san sound the same," he said. "I'll have to listen to their feet."
+
+"How do you listen to feet?"
+
+"I don't know yet."
+
+She looked at him. Then she wrote something small at the bottom of the flyer, with her arm curled round it so he couldn't see, and folded it in half, and put it in her pocket.
+
+---
+
+At the water break Ukai came over to the stage.
+
+He came the long way, round the end of the court, with his clipboard under his arm, and stopped below them with his hands in his track pants pockets. Mio sat up straight. Ukai nodded to her.
+
+"Your sister?"
+
+"Yes, Coach. Mio."
+
+"Hello," said Mio.
+
+"Hello." Ukai looked at Sho. "You had your eyes shut for most of that drill."
+
+"Yes. Resting them."
+
+"You were saying names."
+
+Sho thought about how to put it.
+
+"Who passed," he said. "And if it was clean. By the sound."
+
+Ukai looked at him. Then at the court, where Ennoshita was picking up balls, and back.
+
+"How many'd you get?"
+
+Mio had the flyer out of her pocket before Sho could open his mouth. She held it up, folded, without unfolding it.
+
+"11," she said. "Out of 20."
+
+"Huh." Ukai rubbed the back of his neck. He stood there a while longer, looking at the floor in front of the stage as if there was something written on it. "Ears like a bat," he said, not quite to Sho.
+
+Then, to Sho, plainly: "That's useful. You hear the pass before you see it, you know where the set's going before the setter does. Monday, back row, light. You call the passes for me. Out loud. Who, and whether it's good. I want to hear it."
+
+"Yes."
+
+"And keep your eyes open on Monday. I want you to see it too." He turned to go, then turned back. "11's not bad. For a bat."
+
+He walked off round the end of the court, blowing his whistle.
+
+Mio looked at Sho.
+
+"Is that good?" she said. "Bat?"
+
+"I think so."
+
+"Bats can't see."
+
+"He said keep my eyes open."
+
+Mio thought about it. Then she unfolded the flyer, turned it over, found a corner that was still blank, and drew another line down it.
+
+At the far end of the court, Hinata had seen Mio. He came across at a jog with his water bottle and stopped at the bottom of the stage steps.
+
+"Are you Kiyose's sister? I'm Hinata!"
+
+Mio looked down at him from the edge of the stage, from his shoes up to his hair.
+
+"You're the orange one," she said. "From the tournament."
+
+"...Yes!"
+
+Kageyama was coming across the court behind him with a bottle of water. Hinata heard him coming. He didn't turn round. He said "See you!" to Mio, very fast, and went back to the far side of the gym by the other end of the stage, the long way, without passing Kageyama at all.
+
+Kageyama stopped at the bottom of the steps where Hinata had been. He looked up at Mio. He held out the bottle.
+
+"For you," he said. "It's hot in here."
+
+Mio looked at him, and at the bottle.
+
+"You're the angry setter," she said.
+
+Kageyama's face went very still.
+
+"I'm not angry," he said.
+
+Mio took the bottle. "Thank you," she said.
+
+"...Un." Kageyama turned and went back to the court. His ears had gone red. On the far side of the gym, Hinata was refilling his own bottle at the tap with his back to everyone.
+
+Mio watched them both for a long time.
+
+"They're fighting," she said.
+
+"Yes."
+
+"About what?"
+
+"About whether Hinata keeps his eyes shut or open."
+
+Mio looked at Hinata's back, and at Kageyama, standing by the net with his arms folded, watching Hinata's back too.
+
+"That's a stupid thing to fight about," said Mio.
+
+"It's not stupid to them."
+
+Mio drank some of the water, and looked at the 2 of them on and off for the rest of the morning.
+
+---
+
+That night after dinner Mom put a sheet of paper on the table, between the rice cooker and the soy sauce.
+
+It was the permission form. Takeda had handed them out at the end of practice, handwritten and photocopied slightly crooked. *Karasuno High School Volleyball Club: Tokyo Practice Matches and Summer Training Camp.* 2 dates. A list of things to bring, with *own towel (2)* underlined. A line for the bus. A line for meals. A box for a parent's name, and a box for the seal.
+
+Dad put his chopsticks down and picked up the form and held it at arm's length and read every line of it, including the towels.
+
+"Tokyo," said Dad.
+
+"Yes. And Saitama, in August."
+
+"Mm."
+
+Mom looked at the line for the bus for a while, and then at the line for the meals. She took the form from Dad and got up and went to the drawer by the phone for the family seal.
+
+"I can pay some of it," said Sho. "I've got my New Year's money."
+
+"Eat your rice."
+
+"I've been saving it since..."
+
+"Eat your rice, Sho."
+
+She sat back down with the seal and the ink pad, pressed the seal into the ink, and pressed it onto the form with her other hand flat on the paper, carefully, and lifted it. Red. *Kiyose*, in the old-fashioned characters, a little crooked. Dad wrote his name in the box beside it in his small, neat handwriting. Then he put the form in a clear plastic folder, the kind he kept the insurance papers in, and got up and put the folder in the inside pocket of Sho's school bag himself, and zipped the pocket shut.
+
+Mio had the supermarket flyer beside her bowl. She'd been looking at it on and off all through dinner.
+
+"You have to call," she said. "Every night. In Tokyo."
+
+"Okay."
+
+"All of it. Who you played. If you won. What your eyes did. And your score." She tapped the flyer. "I'm keeping score."
+
+"Even if it's bad."
+
+"Even if it's bad."
+
+"Okay," said Sho.
+
+Mio nodded and went back to her fish.
+
+After the dishes, when Mom and Dad had gone through to the TV, Sho brought his notebook to the kitchen table and sat across from Mio, who was doing her kanji homework with her tongue between her teeth.
+
+He turned past the new 1st page, all the way to the back, to May.
+
+The Nekoma page was 2 pages long, in his old writing, smaller and more cramped than now, the writing of somebody trying to get it all down before it got away. Kuroo's hands on the line. Kuroo's paused quick. Yaku's half step. And at the bottom, boxed twice:
+
+> Kenma saw the checks and set into them. He holds the ball for 1 beat to make me look.
+
+In May his checks had been his whole head turning, setter, middle, Kuroo, Yamamoto, the setter again, 12 snapshots in about 5 seconds, like a lighthouse beam going round. Kenma had watched the beam go round and simply waited for it to point the other way. Since Golden Week the looks had moved to his eyes, quick and small. Since Tuesday on the step, he'd been learning to do some of it with his ears.
+
+Oikawa had still seen it. *You only move your eyes. It's hard to see.* Hard to see still meant somebody could see it.
+
+Kenma was better at seeing than Oikawa. Sho was fairly sure of that.
+
+He picked up the pen. Under the box, in his new handwriting, the bigger one, he wrote:
+
+*What does he see now?*
+
+He looked at it. Across the table Mio rubbed something out, hard, and blew the eraser crumbs onto the floor, and turned the page of her kanji book.
+
+Under the question he wrote:
+
+*Find out. Before he does.*
+
+*End of Arc 2.*
+
+**Continuity (ch 29)**
+
+- Sho POV, Thursday 11 p.m. to Saturday night. The last chapter of Arc 2; no status card (see bible "Eyes as a weapon").
+- **Takeda's message** (quoted in full; matches ch 28's 1st line and the 4th-line clause "a week of matches in Tokyo, against Nekoma, Fukurodani and others, several sets a day"): Nekomata (invented quote): "Tell old Ukai's grandson to bring them down here. Let's see what they've got now." The Fukurodani Academy Group: Fukurodani Academy, Ubugawa, Shinzen, Nekoma. A weekend of practice matches at Fukurodani after end-of-term exams; then a full camp in August at Shinzen High, Saitama. Money: "I am working on it!" Group replies: Hinata 11 times (TOKYO, a cat picture); Tanaka *TOKYOOOOOOO* then *wait are there girls' teams at camp*; Noya *RYU*; Kageyama *Understood.*; Ennoshita *Sensei, it's 11 at night.*; Yamaguchi a thumbs-up; Tsukishima nothing; Daichi *Everyone sleep.* Sho put the phone down (not before bed).
+- Sho's memory of Nekoma (ch 14 to 15): Kuroo's door-left-open line; Yaku's half step; Kenma's 1-beat hold, dumping where Sho stopped looking, 4 rallies by Sho's count; "You stopped looking."; Kuroo: "Win your prelims, notebook. We'll see you in Tokyo."
+- Friday 4:55 on the step: Tanaka predicted "a part about exams"; sound calls ("Left."). **Sho's weak subject: Classical Japanese, 41 on the last test** (Satoshi forgot it; math and English came back, English better from 9 years of scouting reports). Tanaka didn't say his own score.
+- **Friday after practice (canon kept, wording invented):** Bokuto Kotaro, 3rd year, top 5 in the country (per Nekomata); camp matches 1 set each, loser does a *flying fall* the length of the court; the condition: end-of-term exams the week before trip 1; failing (below 30 in any subject, invented threshold) means a make-up test on the departure Saturday and no Tokyo (vice principal). Hinata and Kageyama "would rather not say" their English scores. Ukai: "Anybody who thinks he might fail something, I want to know by Monday... Sort out who you're studying with." Hinata and Kageyama both looked at Tsukishima, who looked at the ceiling (the asking is theirs, in ch 30). Ukai to Sho: "It's 11 more than 30. Don't let it get closer." Light practice Monday, back of the court. "Everybody plays. Everybody."
+- **Hinata and Kageyama are still not speaking** (since ch 27): Hinata looked toward Kageyama and away; at the stage Hinata left the long way when Kageyama came over; Kageyama watched Hinata's back.
+- **Saturday:** Dad walked Mio to the door holding her hand, then sat on the step with the same paper. Mio (2 bunches, white sneakers, a supermarket flyer and pencil). "He has hair. It's just short." **The sound game, private:** Sho eyes shut, called 20 passes; Mio checked on the back of the flyer (*SHO* / *REAL*): **11 out of 20** (4 Asahi/Narita mix-ups: both pass with straight arms; 3 called clean that went short, heard only from the setter's feet; 2 wrong person). Noya's passes almost silent; Daichi's solid; Tanaka's left flat and hard. Mio wrote something private at the bottom.
+- **Ukai noticed on his own** and came to the stage at the water break: "You had your eyes shut... You were saying names." Mio showed the score (11). Ukai: "Ears like a bat... That's useful. You hear the pass before you see it, you know where the set's going before the setter does. Monday, back row, light. You call the passes for me. Out loud. Who, and whether it's good... And keep your eyes open on Monday. I want you to see it too... 11's not bad. For a bat." (Ukai reads it as a skill: IQ.)
+- Mio met Hinata ("You're the orange one.") and Kageyama (brought her water: "It's hot in here." "You're the angry setter." "I'm not angry." "Thank you." "...Un."). Mio: "They're fighting... That's a stupid thing to fight about." Sho: "It's not stupid to them."
+- **Saturday dinner:** the permission form (handwritten, photocopied crooked; 2 dates; *own towel (2)* underlined; bus, meals, name, seal). Dad read every line: "Tokyo." Mom stamped the seal (red, a little crooked); refused Sho's New Year's money ("Eat your rice, Sho."). Dad signed and zipped the form, in a clear insurance-papers folder, into the inside pocket of Sho's bag. **Mio's terms:** call every night in Tokyo; all of it: who, whether he won, what his eyes did, his score ("I'm keeping score." "Even if it's bad." "Okay.").
+- After dinner, at the kitchen table across from Mio's kanji homework: the May Nekoma page (verbatim box: *Kenma saw the checks and set into them. He holds the ball for 1 beat to make me look.*). In May: 12 snapshots in about 5 seconds; since Golden Week eyes-only; since Tuesday some by ear. New lines: *What does he see now?* / *Find out. Before he does.*
+- Next: Arc 3, ch 30 "Red pen" (exams; Classical; Hinata and Kageyama ask Tsukishima themselves, theirs; Suga's English Wednesdays; Monday light practice with Sho calling passes for Ukai). See bible "Arc 3 outline".
