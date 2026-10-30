@@ -975,3 +975,450 @@ There was a pause on the line while Mio worked that out.
 - Night: 13 futons in a 2nd-floor classroom. **Mio call (9:30, courtyard bench, moths; she has the flyer):** "You lost all of them." "All 4." "So you lay on the floor 4 times." The laugh ("It was fun."). Saeko; Mio dropped the phone laughing. Eyes: "Once... stung a bit." "Where?" "Behind them. Like after you've been looking at a screen." "How long?" "Till the next game." "Less than Seijoh." "Much less." "I'm keeping score." Akaashi #5 ("It's a good number."). "He read me in 1 rally." "Is that bad?" "It's interesting." "That means bad." Kenma read him in May in 4 rallies. "So tomorrow it'll be 0." "Maybe." "Then don't let him."
 - Next: ch 33 "Read" (Kenma POV, surprise POV 1): day 2 vs Nekoma; Kenma reads Sho's stillness; Lev's block on Hinata (Lev's); loss.
 - No status card.
+
+## Chapter 33: Read (Kenma)
+
+The good spot in Fukurodani's gym was the corner behind court 2, between the folded-up scoreboard and the wall, where the morning sun didn't reach and nobody walked past on the way to the toilets. Kozume Kenma had found it yesterday almost as soon as he walked in. He was in it at 7:40 on Sunday with his back against the wall and his knees up and his console resting on them, playing nothing.
+
+The game was paused on the save screen. It had been paused there since he sat down.
+
+He was thinking about a 1st year from Karasuno who'd laughed on the floor.
+
+It had happened yesterday, a little after 12, on the other court. Kenma had been waiting for Nekoma's turn, and Karasuno had lost to Shinzen and lined up on the end line for the penalty, and he'd watched them do it because it was there to be watched. The captain went 1st. Then the gray-haired setter, the one who'd set all morning because the real setter was somewhere else failing English. Then the big scary one who wasn't scary. Then the shaved one, yelling. Then their libero. Then 13.
+
+13 had thrown himself down Fukurodani's floor, and got up, and thrown himself down again, and on the 3rd one, flat on his chest in the middle of the court, he'd started laughing.
+
+Kenma had looked at it for a long time.
+
+Penalties were effort you did for nothing. They were the part of the game where the game made you pay for losing, and afterward there was only more floor. Shoyo would laugh at a penalty; Shoyo laughed at everything that made him tired. This was 13. 13 was the one who wrote in a notebook.
+
+Kenma had thought about it on the train home, and in the bath, and for some of the night, and he still didn't have it. He didn't like not having it. Not having something meant he'd keep thinking about it, and thinking about it was effort too.
+
+"You're not playing," said Kuroo, from above him.
+
+Kenma kept his eyes on the screen. Kuroo was the only person who could find the good spot in any gym without trying, because he'd been finding Kenma in good spots since they were 7.
+
+"I'm thinking."
+
+"About Shoyo?"
+
+"No."
+
+Kuroo sat down against the wall next to him, folding up his long legs, close enough that Kenma could feel the warmth of him through the sleeve of his jersey. He'd brought 2 cartons of apple juice. He put 1 on Kenma's console, on top of the paused game.
+
+"About notebook," said Kuroo.
+
+Kenma moved the juice off the screen.
+
+"He laughed," Kenma said. "Yesterday. During the penalty."
+
+"I saw." Kuroo stuck the straw into his own carton. "He was having a nice time."
+
+"It was a penalty."
+
+"Some people like it." Kuroo drank. "Your little Shoyo likes it."
+
+"Shoyo's different."
+
+"Mm." Kuroo looked out at court 2, where Fukurodani's 1st years were putting up the net and Bokuto was trying to help and making it worse. "What else have you got on him? Notebook."
+
+Kenma thought about not answering. It was easier to answer Kuroo than to have Kuroo keep asking. It had always been easier.
+
+"In May he looked at everything," he said. "His head went round like a fan. So I waited at the top and let him look, and put the ball where he'd just looked away from. Twice. 3 with the freeze. Then he stopped looking."
+
+Kuroo grinned into his juice. He remembered. He remembered the walk to the station afterward, too, Kenma knew, and how quiet Kenma had been on it.
+
+"Yesterday he looked once," Kenma said. "Before the serve. Everything at once, and then nothing, and then he just watched the ball." He turned the console over in his hands. "That's a lot to fix in 2 months."
+
+"So he's better."
+
+"He's better." Kenma looked at the paused screen. "And he does something now. I don't know what it is yet."
+
+Kuroo looked down at him with interest, the way he looked at a spiker who'd just hit around his block.
+
+"Akaashi read him," Kenma said. "Yesterday. In 1 ball."
+
+"Akaashi reads everybody in 1 ball."
+
+"Akaashi took 1 ball," said Kenma, "to find something I didn't see in a whole match in May." He put the straw in his mouth and didn't drink. "So it's new. Or I missed it."
+
+Kuroo didn't pick either. Out on court 2 the net went up, a bit crooked, and Bokuto shouted "HEY HEY HEY!" at it as if it had done something brave, and Kuroo finished his juice and stood.
+
+"Karasuno at 9:20," he said. "Coach wants us at 8:30. Shoyo's here, you know. They both are."
+
+"I know."
+
+"He didn't come and say hi."
+
+"I know," said Kenma.
+
+Kuroo stood there a little longer than he needed to. Then he went off to see what Lev had broken.
+
+Kenma pressed the button. The save screen went away and the game came back, a small man standing in a field with a sword. Kenma didn't move him. When you let go of the controller, the small man didn't do anything. He just stood and breathed, his shoulders going up and down, ready for whatever you pressed next.
+
+Kenma watched him breathe. Then he saved, and turned it off.
+
+---
+
+Shoyo still hadn't come to say hi by 8:30.
+
+He was warming up on the far side of court 2 in Karasuno's black, jumping, landing, jumping, his face shut tight round something. Kageyama was tossing balls to himself against the wall at the other end, and the 2 of them were careful never to need the same part of the gym. Everybody could see it. Karasuno's captain could see it, and was rubbing the back of his neck. Even Lev could see it, and Lev saw almost nothing that wasn't a ball.
+
+"Are they fighting?" Lev asked, loudly, at the water bottles. "The tiny one and the scary setter? Are they having a fight?"
+
+"Shut up, Lev," said Yaku, and kicked him in the back of the knee.
+
+Kenma watched Shoyo jump. He didn't know what the fight was about. He thought he could guess. Yesterday afternoon, in the last game, Shoyo's quick had been the old one, eyes shut, perfect. This morning, in warm-up, at the top of every jump, Shoyo's eyes were open, as if he wanted to watch the ball come to him. And a few of them had come wrong.
+
+Shoyo wanted to see more. Kenma could see wanting that. Wanting it as badly as Shoyo did just looked tiring.
+
+He looked along Karasuno's line for 13.
+
+13 was at the end of it, near the wall, doing hamstring stretches with his eyes on court 1, where Fukurodani's setter was warming up. Akaashi. 13 was watching Akaashi's hands. Every set. When Akaashi turned to set backward, 13's head tilted a tiny bit, the way a cat's does at a noise in a wall.
+
+He studied setters. Kenma had known that since May. He'd watched 13 write in that notebook from the bench, small fast writing without looking down at the page, and he'd known, the way you know when somebody behind you on the train is reading your screen, that some of it was about him.
+
+Kenma didn't like being in somebody's notebook. A notebook about a player was a guide. Kenma had never used a guide in his life. You played a game to find out how it worked; if somebody else had already written down how it worked, there was nothing left for you to find. And being *in* a guide was worse. It meant somebody had solved you.
+
+13 looked up from his stretch, across 2 courts, straight at Kenma's corner.
+
+Kenma looked at the floor. When he looked back up, 13 had gone back to Akaashi.
+
+---
+
+Nekomata didn't say much in the huddle. He never did. He was old, and small, and he stood in the middle of them with his hands behind his back like a man waiting for a bus he didn't mind missing.
+
+"Karasuno," he said. "Their setter and their little one aren't speaking. You'll see it on the quick." He smiled, all his wrinkles at once. "Don't help them. Don't hurt them either. Just play."
+
+"Yes, sir!"
+
+"And Lev."
+
+"Yes!"
+
+"Hands up early on the little one. Higher than you think. Your arms are longer than you think, too."
+
+"I KNOW!" said Lev. "I'm very long! I'm going to block him today! The tiny one! You'll see!"
+
+"Mm," said Nekomata, still smiling. "Then let's see it."
+
+Coach Naoi read the lineup. Kenma, Kuroo, Lev, Yamamoto, Fukunaga, Kai, and Yaku in for whichever middle was in the back. Kenma heard his own name and went to his spot and stood in it.
+
+Across the net, Karasuno's 6 were in: the scary setter, Shoyo, the tall blond one with glasses, the captain, the big ace with the bun, the shaved one. Their libero tapped in for the blond one at the back. 13 was on the bench at the end, sitting very straight, with a towel over his knees and a pencil behind his ear.
+
+Next to him sat a small blond girl in a Karasuno tracksuit, who hadn't been there in May. She had a big silver camcorder in both hands, the old school kind, and she was pointing it at the court with her elbows tucked in and her tongue between her teeth, as if it might jump out of her hands and run away.
+
+The 1st whistle went at 9:22.
+
+---
+
+The quick went wrong on the 3rd rally.
+
+Kenma had been waiting for it. Karasuno's setter got a good pass and turned his hands toward the middle, and Shoyo was already in the air before the ball had left Kageyama's fingers, the way he always was. That was the trick of it. Shoyo flew to a spot and the ball was delivered there, and Shoyo never had to look, because the ball was always there.
+
+But Shoyo was looking.
+
+His eyes were open and on the ball. His arm was back. And Kenma, who'd watched this attack all through May's match, saw what was wrong before anybody: Shoyo's arm was waiting. It was waiting for the ball to arrive so he could see it arrive, and Kageyama's set wasn't built for anybody to wait, and the ball came through where Shoyo's hand had been a blink ago.
+
+Shoyo's fingers clipped it. It went sideways off his hand, out, into the bench.
+
+"Hey!" said Kageyama.
+
+Shoyo landed and turned his back and didn't answer him.
+
+It happened again at 5-3. The 3rd time, at 8-5, Shoyo went up eyes open and the set was right there for once, a good one, and he hit it hard, and Lev was in front of him.
+
+Lev had been saying all morning that he was going to block the tiny one. He'd said it to Yaku and to Inuoka and to the man who sold drinks at the gate. He'd played volleyball since spring and knew about as much about reading a setter as Kenma knew about running, and none of that mattered, because he'd gone up the moment Shoyo did, and his arms went up and up, longer than seemed fair, and Shoyo's spike hit the very top of Lev's right hand and went straight up off it. Yaku ran under it and dug it to the ceiling.
+
+Lev landed. He looked at his hand.
+
+"I TOUCHED IT!" Lev said, to the whole gym. "I TOUCHED THE TINY ONE'S SPIKE! YAKU-SAN! DID YOU SEE?"
+
+"Play the ball, you idiot!" Yaku yelled, from the floor.
+
+Kenma set Tora, high, and Tora hit it into Karasuno's floor. 9-5.
+
+Then Kenma looked across the net at Shoyo, because he couldn't help it.
+
+Shoyo was standing in the middle of his own court looking at Lev's hand. Kenma knew Shoyo's angry face, and his scared face, and his hungry face. This one was smaller and quieter, the face somebody makes at a door they'd thought was open.
+
+Kenma turned back to the net. He wished, a little, that it was more fun to watch.
+
+---
+
+13 came in at 12-8, to serve.
+
+Karasuno had just won a rally, and their rotation had brought the big ace round to the back, and Kenma saw the paddle go up at Karasuno's bench and the ace walk off. 13 walked on. The ace touched his shoulder on the way past, and 13 nodded to him. The pencil was gone from behind his ear.
+
+Kenma had decided at 7:40 in the corner how he'd start: with the May trick. Wait at the top for 1 beat, let 13 look around, put the ball where he'd just looked away from. He didn't really think it would work anymore. He wanted to see it not work with his own eyes.
+
+13 served a plain float at Yaku, which was a waste, because Yaku could pass anything. Fukunaga hit Kenma's 1st set into Karasuno's block, and Karasuno's captain dug the deflection, and Kageyama set the shaved one, Tanaka, who hit it hard cross, and Yaku dug it, of course, and it came up to Kenma in a nice slow arc.
+
+Kenma got under it, and waited, as long as the ball would let him.
+
+13's head didn't move. He was standing in the back row with his weight on the balls of his feet and his hands loose, and his eyes were on Kenma's hands and nothing else. The beat came and went, and 13 didn't spend it.
+
+Kenma set Tora, because he had to set somebody. Tora hit it down the line. Karasuno's captain dug it, and the rally went on without anything interesting in it, until a Nekoma block touch went long. 12-9.
+
+Fixed, then. Properly.
+
+Kenma let out a breath through his nose. It felt a bit like annoyance. He sat up a little, too, which annoyance didn't usually make him do.
+
+13's 2nd serve went to Kai, who passed it, and Tora put it away. 13-9. Karasuno would have to win a rally to get the ball back, and 13 stayed where he was, at the back, and on defense he drifted into the middle of the back row, the way Karasuno set up with him on, and stood there.
+
+---
+
+At 13-9 Tora went up on the left against Kageyama and Shoyo and hit a big cross over the top of them, hard, at the deep corner where Karasuno's libero was supposed to be.
+
+The libero had gone forward for the tip. The deep corner was empty.
+
+Kenma saw what happened next because he'd been watching 13 instead of Tora, and nobody else in the gym was doing that. Just before Tora's hand touched the ball, 13 stopped.
+
+The whole of him stopped. He'd been moving slightly the way receivers moved, little shifts of weight, a twitch of the knees, and then all of it went out of him at once, and he stood there in the middle of the back row for a piece of a second as if somebody had let go of his controller.
+
+The stop showed in his feet first. Before his face, before his hands. His feet went flat and quiet on the floor, both of them at once.
+
+Then he went. Before Tora hit it. 2 steps back and to the left and down, into the exact place where the ball arrived, and the ball hit his forearms and went up, high, a little wild. Kageyama ran under it and set Shoyo, and Shoyo, eyes open, hit it into the net.
+
+14-9. Kenma barely noticed.
+
+He was looking at 13, getting up off the floor. 13 blinked twice, hard. He put his thumb in the corner of his right eye, pressed once, and took it away.
+
+In May there'd been something like that too. After the freeze. 13 had sat on the bench with his hands flat on his knees and looked at nothing, and Kenma had decided then that whatever 13 did came with a cost. A skill with a cooldown. You use it, it goes gray for a while, and you're ordinary until it comes back. Every game had skills like that. You learned how long the cooldown was, and then you hit the player inside it.
+
+So when the next ball came to him from Yaku, Kenma set Tora again, and Tora hit it into the middle of the back row, straight at 13, inside his cooldown.
+
+13 dug it.
+
+He was ordinary about it. No stop. No early. He just moved like a good receiver, saw Tora's shoulder and went where it pointed, and the ball came up to Kageyama clean, and Karasuno scored off it. 14-10.
+
+13 had his hands on his knees, getting his breath back. His eyes were fine. Clear, and calm, and a little interested in the scoreboard.
+
+No cooldown, then. Or one so short Kenma couldn't find it. In May it had taken him the rest of a set to come back.
+
+Kenma found he didn't mind that as much as he'd expected to.
+
+---
+
+Nekoma took the next rally, and Karasuno's coach called a timeout at 15-10.
+
+Nekoma went to their bench. Kenma sat down on the end of it with a towel and drank from his bottle and kept his eyes on the floor, which was how he listened best.
+
+"Their 13," said Nekomata, to nobody in particular, though he was standing in front of Kenma when he said it. "Does he look tired to you?"
+
+Kenma shook his head.
+
+"Hm." Nekomata smiled at the floor. "Lookers get tired. Watching takes it out of you, and that one's watching very hard." He shrugged. "He'll get tired. Later. Not today, maybe."
+
+Kenma drank. He thought Nekomata was a bit wrong this time, and he didn't want to say so, because saying so would mean explaining, and explaining 13 meant explaining something he'd only just started to understand.
+
+He'd seen it twice now. The stop. It had happened yesterday too: he could see it now that he knew what it looked like, 13 in the back row against Fukurodani, Bokuto's arm going back, 13 going still for that little piece of time before he moved for the line. Akaashi must have seen it then. Akaashi saw everything in setters' time. And in May, in the handshake line, Kenma had looked at 13's feet without knowing why. He knew why now. The feet were where it started.
+
+13 went still when he knew where the ball was going.
+
+Guessers kept moving. Guessers shifted and hopped and leaned both ways, because they were waiting to find out. 13 stopped because he'd already found out. The stillness was the moment he decided. After it, he went where he'd decided, and he stayed decided.
+
+Hiding where the ball was going was hard work, and 13 was good at seeing through it. Letting him decide was easy. Then you made him decide wrong.
+
+Kenma lowered the bottle.
+
+"Tora," he said.
+
+Yamamoto turned round so fast he nearly fell over the bench. Kenma didn't talk in timeouts much. When he did, people turned round.
+
+"Next time you're on the left," said Kenma, to the towel, "run in like you're getting it. Louder. Swing all the way. Like it's yours."
+
+Tora looked at him. Then he grinned, a big wicked grin. "So it's not mine."
+
+"Maybe not."
+
+"Got it."
+
+"Kuro. Kai." Kenma still didn't look up. "Run everything. Every time. Even when I'm looking at Tora."
+
+Kuroo's eyebrows went up over the top of his bottle. Kai, who never got excited about anything, nodded once.
+
+The whistle went.
+
+---
+
+Nekoma had rotated on the point before the timeout, and now Kenma was in the front row, on the right, with Tora on the left and Kuroo in the middle. Kai and Fukunaga were in the back with Yaku. Nekoma served.
+
+The right ball came on the 1st rally. Yaku dug a hard one from the shaved one, high and slow, plenty of time, and it came down toward Kenma, and Tora came in from the left.
+
+Tora was always loud. This time he was a stampede, every step slapping the floor, his arms swinging all the way back, his face lit up, his whole body yelling *mine, mine, MINE.* Kai came in from the back row behind him. Kuroo came in up the middle, fast and low, like a man who'd just remembered something. Kenma turned his shoulders to Tora, and looked at Tora, and let the ball come down into his hands at the angle you'd use for a big high set to the left. And he watched 13.
+
+13 was watching his hands. Then, at the edge of it, 13's eyes went to Tora's run, the big loud arm, the shoulder coming round, and his feet went flat and quiet on the floor, and he stopped.
+
+Kenma set the middle.
+
+He pushed it short and quick to Kuroo, who was already in the air because Kenma had told him to be, and Kuroo met it at the top and hit it sharp into the middle of the back row, into the space 13 had just been standing in. 13 was already 2 steps toward the corner where Tora's cross would have gone, if there'd been a cross. Tora had swung his whole arm at nothing, all the way through, and landed laughing.
+
+16-10.
+
+13 stood in the back corner and looked at the place where the ball had landed.
+
+Kenma had been ready for angry. 13 looked at the spot on the floor, and then up at Tora, still grinning, and then across the net at Kenma, straight at him, the way he'd looked at Akaashi's hands in warm-up, with his head tilted a little, as if somewhere in Kenma there was a wire making a noise.
+
+Kenma turned back to the net.
+
+It worked again on the next serve. Tora loud, 13 still, and this time the set went back to Kai, a pipe from the back row up the middle, and 13 was 2 steps the wrong way again, reaching for it with 1 hand, too late. 17-10.
+
+It worked a 3rd time on the serve after that, and this time Kenma didn't set it at all. He let 13 go still on Tora, and then he jumped and pushed the ball over the net with 2 fingers into the front of Karasuno's court, the dump, the oldest trick he had. It dropped in front of Kageyama and Shoyo while both of them were turning to block Tora. Yesterday, against Fukurodani, 13 had called the short ones from the back row; Kenma had heard him across the gym. This one he didn't call. He was 2 steps deep, in Tora's corner, by then.
+
+18-10.
+
+Across the net 13 stood with his hands on his hips, breathing, looking at the floor where the dump had gone. Then he did something Kenma hadn't expected.
+
+He started moving.
+
+On the next rally 13 never stopped. He kept his feet going the whole time, little shuffles, a rock from heel to toe and back, his knees always bending, like a guesser. Like somebody trying very hard to be a guesser.
+
+He'd felt it, then. He'd felt that he was being read through something, and he'd guessed what, or nearly. Kenma was a bit impressed by that.
+
+But you couldn't see what 13 saw and move like a guesser at the same time. When Tora hit a plain cross straight at him, no trick at all, 13 was rocking back on his heels as the ball came, and got to it a beat late, and it went off his arms into the bench. 19-10.
+
+The stillness was where all his early came from. He couldn't throw away 1 without the other.
+
+13 looked down at his own feet.
+
+He stayed on through 1 more of Karasuno's rotations, over to the left side of the back row. He kept rocking. He passed 1 serve well and 1 badly and dug 1 ball from Fukunaga that he'd have been early on an hour ago, and wasn't. Then Karasuno won a rally at 21-12, and the rotation carried his spot to the front, and the big ace came back on for him. 13 walked off, and sat down on the end of Karasuno's bench next to the girl with the camcorder, and put the towel over his knees, and got the pencil out from somewhere, and wrote.
+
+---
+
+Nekoma won 25-17.
+
+Kenma's last set was a plain high ball Tora could hit, and Tora hit it so hard that Karasuno's libero dug it into the wall. Then the whistle went, and everyone shouted, and Lev shouted the loudest about his hand, and Kenma went and sat down on the end of the bench and put the towel over his head.
+
+From under the towel he watched Karasuno line up on the end line for the penalty.
+
+Shoyo went with his face shut tight. He threw himself down the floor as if the floor had done something to him, and got up, and went again, and kept his eyes off Kageyama, who was 2 people behind him doing the same thing with the same face.
+
+13 ran 3 steps and threw himself down. Got up. Down again. On the 3rd one, halfway down the court, he laughed.
+
+It was shorter than yesterday's. It came out of him once, into the floor, and he got up still smiling and went again.
+
+Kenma watched him do it all the way to the far end. He'd lost. He'd been read and made a fool of 3 times in a row by somebody who'd spent the timeout sitting on a bench with a towel. He'd tried something and it had made him worse, and he'd had to come off. And he was lying on the floor laughing.
+
+Kenma didn't have it. He was starting to think he wouldn't get it by watching.
+
+---
+
+The water fountains at Fukurodani were in a corridor outside the gym, 3 of them in a row, low and cold. Kenma liked the end 1. It had the coldest water and nobody used it because it was furthest from the door.
+
+13 was using it.
+
+He was bent over it, cupping water onto the back of his neck. When Kenma came round the corner he straightened up, and wiped his hand on his shorts, and stepped back from the fountain to let him have it, and stayed.
+
+Kenma drank. It took as long as he could make it take.
+
+"When did you see it?" said 13.
+
+His voice was polite. A little amused, the way it had been in May when he'd said *Mostly*. Up close he was tall, nearly as tall as Kuroo, and he stood very easily, the way Nekomata stood, as if he'd been standing for a long time and had stopped thinking about it.
+
+Kenma straightened up. He thought about not answering. 13 would stand there looking at him until he did.
+
+"Yesterday," said Kenma. "Against Fukurodani."
+
+"Did Akaashi-san see it first?"
+
+"Probably."
+
+13 nodded slowly. "I know I stop," he said. "Somebody on my team told me. I don't know what it looks like from over there."
+
+Kenma looked down the corridor, toward the gym door. The small blond girl was standing in it with her clipboard under her arm and the camcorder held against her chest the way you'd hold a cat that might jump. She'd come out to find 13, Kenma thought, and lost her nerve at the door.
+
+"She's been filming you," said Kenma. "All morning."
+
+13 turned and looked at the girl. The girl jumped, and nearly dropped the camcorder, and hid behind the door.
+
+When 13 turned back, he was looking at Kenma the way Kuroo did when Kenma finally said the thing Kuroo had been waiting all day for him to say. Kenma didn't know what to do with that, coming from somebody who wasn't Kuroo. So he stood there and let it be looked at.
+
+"Thank you," said 13.
+
+"That's so you'll stop looking at me," said Kenma.
+
+"Okay."
+
+Kenma started to go. Then he stopped, because he still didn't have it, and it was going to keep him awake again.
+
+"You laughed," he said. "On the floor. Twice."
+
+13 thought about it. Kenma could see him thinking, actually hunting for the true answer, which most people didn't bother to do.
+
+"It was fun," said 13.
+
+"It was a penalty."
+
+"I know," said 13, and smiled, a small one, mostly with his eyes.
+
+Then Lev's voice came down the corridor from the gym door, saying "KENMA-SAN! Yaku-san says we're on in 5 minutes and you have to come or he'll kick me!" and Kenma went, because it was easier.
+
+Behind him he could feel 13 standing by the end fountain, looking at the girl with the camcorder.
+
+---
+
+They played Karasuno again at 2:10. Nekoma won that one 25-20. Shoyo and Kageyama were still not talking, and Shoyo's eyes were still open, and Lev touched 2 more of his quicks and screamed about both of them. 13 came in at the back for the ace again.
+
+He didn't go still once. He didn't rock either. He stood with his feet quiet, an ordinary receiver's feet, and his eyes on Kenma's hands, and he dug what came straight at him and missed what Fukunaga hit behind him, and he was never early at all.
+
+He was being careful. He was playing like an ordinary good receiver, on purpose, so there'd be nothing on him to read until he'd seen for himself what Kenma had been reading.
+
+It was the most boring 13 had ever been.
+
+---
+
+Nekoma went home on the train at 6. They took up most of a carriage. Lev slept with his head against the window and his mouth open, and Yaku sat next to him looking as if he'd like to kick him and was too tired. Tora was telling Inuoka about the stampede, again.
+
+Kenma sat at the end by the door with his console, playing the small man in the field.
+
+Kuroo sat down next to him at Ochanomizu.
+
+"Notebook," he said.
+
+Kenma kept playing.
+
+"You beat him 3 times in a row," said Kuroo. "With 1 timeout. Tora's never been so happy. What was it?"
+
+"He stops," said Kenma. "Before he's right."
+
+Kuroo turned that over. "And you made him right about the wrong guy."
+
+"Yeah."
+
+"And then?"
+
+Kenma's small man walked into a cave. "Then he stopped stopping, and got worse. Then this afternoon he played like nobody."
+
+"So you broke him."
+
+The small man fought a bat. "His manager filmed the whole day," Kenma said. He didn't add that he'd been the one to tell 13 so. Kuroo would find out on his own; Kuroo always did. "He'll find it on the tape."
+
+Kenma killed the bat. He let go of the controller, and the small man stood in the cave and breathed, shoulders going up and down, waiting.
+
+He'd already thought about what came after the tape, somewhere between 2:10 and Ochanomizu. 13 would watch himself stop. Then he'd fix it, or he wouldn't. If he couldn't, he'd be a good receiver who studied setters, and there were lots of those, and Kenma could beat lots of those.
+
+If he fixed it, though. If he turned up at the camp in Saitama with the stop gone, or doing something with it Kenma hadn't thought of yet.
+
+Kenma would rather he fixed it. That was more interesting.
+
+He pressed the button, and the small man went on into the dark.
+
+**Continuity (ch 33)**
+
+- **Kenma POV (surprise POV 1 of Arc 3; close third, past tense).** Kenma's images: the save screen, the guide ("being *in* a guide... meant somebody had solved you"), the cooldown, the small man who stands and breathes when you let go of the controller. Sho is "13" in Kenma's head; Kuroo calls him "notebook"; Kenma calls Kuroo "Kuro", Yamamoto "Tora", Hinata "Shoyo". No eye from inside; from outside: the stillness, 1 impossible-early dig, 1 thumb pressed to the right eye, no cooldown found.
+- Sunday, trip 1, day 2 at Fukurodani. Kenma's corner behind court 2; game paused since he sat down. Kenma puzzled all night by #13 laughing in yesterday's penalty ("Penalties were effort you did for nothing").
+- **Kuroo** (2 apple juices; finding Kenma's spots since they were 7): Kenma's file: May = head "like a fan", the waiting trick worked "Twice. 3 with the freeze"; yesterday = 1 look; "That's a lot to fix in 2 months." "Akaashi took 1 ball to find something I didn't see in a whole match in May." "Coach wants us at 8:30." Shoyo didn't come to say hi.
+- **Warm-up:** Hinata and Kageyama avoid each other; Lev: "Are they fighting?" Yaku kicks him. Day 1's last game: Hinata's old eyes-shut quick; day 2 warm-up: eyes open (canon direction). #13 watched Akaashi's hands; looked at Kenma's corner; Kenma looked at the floor.
+- **Nekomata huddle (invented wording):** "Don't help them. Don't hurt them either. Just play." To Lev: "Hands up early... Your arms are longer than you think, too." Lev: "I'm very long! I'm going to block him today!" Coach Naoi read the lineup: Kenma, Kuroo, Lev, Yamamoto, Fukunaga, Kai; Yaku for the back-row middle.
+- **Yachi on Karasuno's bench with a big silver school camcorder (invented), next to Sho** from the 1st whistle.
+- **Game 1 vs Karasuno, 9:22, Nekoma won 25-17 (scores Nekoma-first).** Hinata's eyes-open quick clipped into the bench ("Hey!"). Again at 5-3. **At 8-5 Lev's block touch on Hinata (Lev's, canon; his own boast and reach):** "I TOUCHED THE TINY ONE'S SPIKE!" "Play the ball, you idiot!" Tora 9-5. Hinata's face: "a door they'd thought was open."
+- **Sho in at 12-8 to serve (back-row sub for Asahi; defends middle-back).** The May trick fails (head doesn't move): "Fixed, then. Properly." 12-9 on a Nekoma block touch; 2nd serve to Kai, Tora scores 13-9. **13-9: the stillness ("the controller let go"; it shows in the feet first) and the early dig** on Tora's cross to the empty deep corner (libero up for the tip); Hinata into the net, 14-9. Kenma tests the "cooldown" with the next ball: ordinary clean dig, 14-10. "No cooldown, then. Or one so short Kenma couldn't find it."
+- **Ukai timeout 15-10.** Nekomata: "Lookers get tired... He'll get tired. Later. Not today, maybe." Kenma's theory: **13 goes still when he knows, then stays decided; guessers keep moving.** Feet callback (May handshake line). Orders: "Tora... run in like you're getting it. Louder. Swing all the way. Like it's yours." "So it's not mine." "Maybe not." "Kuro. Kai. Run everything. Every time."
+- **The decoys (Kenma front row right, Tora left, Kuroo middle; Kai, Fukunaga, Yaku back; Nekoma serving):** 16-10 Kuroo's quick into the space Sho left; 17-10 Kai's pipe; 18-10 Kenma's dump in front of Kageyama and Hinata (Sho didn't call it). Sho looked at Kenma "as if somewhere in Kenma there was a wire making a noise." **Sho tried to move like a guesser** and was late on a plain cross, 19-10. "The stillness was where all his early came from." He stayed 1 more rotation, rocking; Asahi back on at 21-12. Sho wrote on the bench beside Yachi.
+- **Penalty:** Hinata and Kageyama dive with shut faces, apart. Sho laughed again, shorter.
+- **Water fountains (end 1):** "When did you see it?" "Yesterday. Against Fukurodani." "Did Akaashi-san see it first?" "Probably." **"I know I stop... Somebody on my team told me. I don't know what it looks like from over there."** Kenma: "She's been filming you. All morning." (Yachi hid behind the door.) "Thank you." "That's so you'll stop looking at me." "You laughed... Twice." "It was fun." "It was a penalty." "I know." Lev: "KENMA-SAN!..."
+- **Game 2 vs Karasuno, 2:10, Nekoma won 25-20** (canon: Karasuno take 0 sets off Nekoma on trip 1). Lev touched 2 more quicks. Sho played careful, never still, never rocking, never early ("the most boring 13 had ever been").
+- **Train home at 6; Kuroo sat down at Ochanomizu:** "He stops. Before he's right." "And you made him right about the wrong guy." "He'll find it on the tape." Kenma would rather he fixed it before the Saitama camp: "That was more interesting." Kenma hasn't told Kuroo he pointed Sho at the camcorder.
+- Next: ch 34 "Tape" (Sho): Yachi's camcorder footage; Sho watches himself go still; Hinata and Kageyama's fight, Tanaka breaks it up (theirs); Mio starts her own notebook. Day 2's other games and Mio's call can be told there.
+- No status card.
