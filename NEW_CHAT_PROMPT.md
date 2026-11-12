@@ -35,6 +35,7 @@ Chapters are slow and stretched out where it matters, but they must never lag. E
 ## Workflow per chapter (keep it lean)
 1. Read the old chapter and its spec/audit notes. Tell me in a few lines what's wrong and what you'll change.
 2. Edit the old text in the scratchpad (targeted replacements, not a rewrite).
+   - **Every chapter, no exceptions: run 1 conversations agent (opus) that works only on the dialogue.** Give it the scratchpad brief (rules, Arc 3 voice models, `07_voices.md`, `06_shameless.md`), the old and draft text, and have it judge every conversation against Arc 3 and return verbatim find/replace passages as finished prose. Check its lines for artificial tells before using them. (Author, Nov 12: "Conversations are the key to a fanfic. If you mess that up it is over." Arc 1 must read as well as Arc 3; revised ch 1 to 5 are still a cut below.)
 3. Grep for dashes, tics, negative parallelisms, numbers and the "one" rule.
 4. Evaluate it against the old version honestly. Use a reviewer agent only when a chapter has match logic or big changes.
 5. Replace it in `arc1.md`/`arc2.md` with CRLF line endings and its new chapter number; update `handofff.md`; commit and push.

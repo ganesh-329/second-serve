@@ -69,6 +69,8 @@ Read this first, then the story bible's "Canon and divergence", "Soul sheet", "P
 
 ## User's rules (hard)
 
+- **Conversations agent every chapter (Nov 12, author):** "Conversations are the key to a fanfic. If you mess that up it is over." Each chapter gets 1 opus agent focused only on its conversations, judged against Arc 3. Arc 1 must read as nicely as Arc 3; the author has read to ch 5 and finds it still a cut below.
+
 - **Light touch (Nov 12, author, after reading revised ch 1 and 2):** stretching made the chapters worse and added errors. Rule: if a chapter doesn't need revision, leave it. Keep the old text, its flow, humor and narration; change the conversations (sitcom lines, quips, out-of-voice lines) and fix real errors. Add length only where a scene truly needs it. Ch 1 was redone this way from the old text (Nov 12). Tanaka never names a price for the lesson; the ch 3 nikuman are Sho's surprise. Tanaka laughing: *Bonk.*, he falls over laughing.
 
 - **"One" as a word (Nov 12, hard):** digits only for counts and measures ("1 year", "3 steps"). Pronoun and idiom "one" stays a word: "the one", "this one", "no one", "one of them", "one by one". Applied to revised ch 1 to 6.
