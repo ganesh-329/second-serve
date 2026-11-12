@@ -49,3 +49,12 @@ No em or en dashes. No negative parallelisms in any form ("Not X. Y.", "X, not Y
 
 ## POV chapters (author, added during planning)
 The author wants a few surprise POV chapters in Arc 1 too ("a nice touch but not too much"). Follow the bible's "POV chapters" rules: 1 character per chapter, close third, past tense, their own vocabulary and soul; the story moves forward (new time, or a moment Sho can't see); the reader sees Sho from outside at least once; never 2 POV chapters in a row; title format "Chapter N: <title> (<character>)". Suggest at most 2 or 3 for Arc 1, each only where a moment truly needs that person's eyes, and say why that character and that moment.
+
+## Canon source: the wiki dump (added Nov 12)
+The full Haikyuu fandom wiki (Feb 2020) is extracted as plain wikitext, 1 file per page, in `/tmp/claude-0/-home-user-second-serve/2df8ca28-eea4-5146-bb9b-1f372ce73935/scratchpad/wikipages/` (titles with non-alphanumerics as `_`, e.g. `K_shi_Sugawara.txt`, `Karasuno_vs._Aobajohsai_(Practice_Match).txt`). Canon chapter index (number TAB filename): `/tmp/claude-0/-home-user-second-serve/2df8ca28-eea4-5146-bb9b-1f372ce73935/scratchpad/chapter_index.tsv`. Episode pages end in `_(Episode).txt`. Use `grep -l` / `grep -n` to find things. Cite canon as [wiki: Page_Title]. This replaces WebFetch; tag only what the dump doesn't cover as [memory].
+
+## Author direction (Nov 12, second message)
+- The plan for Sho being **shameless** (bible "Personality: shameless", Lloyd Frontera) was not executed correctly in Arc 1 or Arc 2. It came out as quips and punchlines. Plan it properly.
+- **Most of the conversations in both arcs are not correct**: not true to the canon voices, not meaningful.
+- **The plot is too fast-paced.** Slow it down; add chapters where the material needs them.
+- Take the time and the agents needed to plan it properly. Arc 1 is planned and revised first; Arc 2 gets its own round after.
