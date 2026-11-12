@@ -3796,11 +3796,15 @@ Sugawara, passing behind them, reached out and flicked Sho in the forehead.
 
 "Ow."
 
-"Don't make that face at Ennoshita," Sugawara murmured. "He'll be fine." Then he was gone, cheerful, helping Daichi carry the ball bag.
+"Stand in your own spot," Sugawara murmured. "He'll be fine." Then he was gone, cheerful, helping Daichi carry the ball bag.
 
-Takeda-sensei made a speech in the hallway. He talked about watching something incredible start to grow. He compared Hinata and Kageyama to a chemical reaction, 2 substances that are ordinary alone and turn into something new when you put them together, and halfway through his own sentence he went pink and apologized for being too poetic.
+Takeda-sensei stopped them in the hallway outside the gym, holding his notebook against his chest with both arms.
+
+"Everyone. Good work today." He pushed his glasses up. "I still don't know much about volleyball. I'm learning which whistle means what. But today I felt like I was watching something start." He looked at Hinata and Kageyama. "You 2 are like... on your own, each of you is just an ordinary substance. Sorry, that sounds rude. I mean that when you're put together there's a reaction, and something comes out that wasn't there before, and nobody can put it back the way it was." He stopped. His ears had gone pink. "Sorry. That was too poetic. I teach literature. It's a bad habit."
 
 "No, that was good, sensei," said Hinata, who hadn't understood a word.
+
+Tanaka was wiping his eyes on the bottom of his shirt.
 
 Sho had understood all of it. He watched Takeda put his notebook away and noticed that on the open page, underlined twice, was the word coach.
 
@@ -3834,7 +3838,9 @@ He turned to Hinata. "You. Shrimpy-chan. That jump. That speed. And that last qu
 
 Hinata started to glow.
 
-"Your receive, though," Oikawa said, in exactly the same pleasant voice, "is terrible. So is Glasses-kun's. If you don't fix that before the Inter-High prelims, you might as well stay home." He smiled. "And there isn't much time."
+"Your receive," Oikawa said, in exactly the same pleasant voice, "is terrible. So is Glasses-kun's. If you don't fix that before the Inter-High prelims, you might as well stay home." He smiled. "And there isn't much time."
+
+At the back of the group, Tsukishima put his headphones on.
 
 Hinata stopped glowing.
 
@@ -3846,7 +3852,7 @@ Kageyama's hands were fists.
 
 Daichi stepped forward.
 
-"You're right about the receive," he said, calm, the same voice he'd used for the spread. "It needs work. It's about to get a lot better, though. One of ours is coming back soon."
+"You're right about the receive," he said, calm, the same voice he'd used for the spread. "We know. One of ours is coming back soon."
 
 "Oh?"
 
@@ -3894,7 +3900,9 @@ Iwaizumi looked back over his shoulder at Sho, then at Oikawa, then at Sho again
 
 Then, to the rest of Karasuno, with a short, real bow: "Sorry about him."
 
-They went up the path. Oikawa was still complaining. Iwaizumi didn't let go.
+They went up the path, Oikawa still complaining about his collar.
+
+"You skipped cool-down," said Iwaizumi, and didn't let go.
 
 Kageyama turned to the team. "I'm sorry about that," he said stiffly. "About what he said."
 
@@ -3902,7 +3910,15 @@ Daichi waved it away.
 
 There was a vending machine by the gate. Sho bought 2 cartons of milk and held 1 out to Kageyama. Kageyama looked at it, took it, and stabbed the straw in hard.
 
-Tanaka turned to Sho, eyes wide. "You just ASKED him? To his FACE?"
+Hinata lasted about 10 seconds. "Daichi-san. The guardian what? Who is it?"
+
+"You'll see," said Daichi.
+
+"Is he tall? Is he scary?"
+
+"You'll see."
+
+Tanaka was grinning so hard his whole face had changed shape. Then he turned to Sho, eyes wide. "You just ASKED him? To his FACE?"
 
 "Yes."
 
@@ -3922,7 +3938,7 @@ They ate. The bus pulled out. The light outside was going orange.
 
 Ennoshita looked at him sideways.
 
-"In set 3. Anything. I was on the court, so I couldn't see anything that wasn't on top of me."
+"In set 3. Anything. On the court I only see what's coming at me."
 
 Ennoshita chewed, swallowed, and looked out the window. Then he started talking.
 
@@ -3948,7 +3964,11 @@ Sho thought about that all the way to the next traffic light. Satoshi had watche
 
 "Thank you, Ennoshita-san," he said.
 
-Ennoshita shrugged and went back to his melon bread. But he kept talking, on and off, all the way to the city limits, and Sho kept listening.
+Ennoshita shrugged and went back to his melon bread. A couple of traffic lights later he said, to the window, "When I'm out there again, you can tell me mine."
+
+"Okay," said Sho.
+
+After that he kept talking, on and off, all the way to the city limits, and Sho kept listening.
 
 Somewhere around the river, Takeda-sensei turned around in his seat at the front, notebook open.
 
@@ -3990,7 +4010,9 @@ His mother came out of the kitchen drying her hands. "You won? Your 1st win?"
 
 "Then it'll be practice sekihan."
 
-Dinner was hamburg steak. His mother wanted to know what happened next, so Sho told her: practice, the prelims in June, and the libero coming back, the one the captain had called a guardian deity.
+Dinner was hamburg steak. Nobody asked, so Sho told them anyway, between bites.
+
+"Practice every day now. The prelims are in June." He cut his steak. "And somebody's coming back. Our libero. The captain called him our guardian deity."
 
 "What's a libero?" said Mio.
 
@@ -4010,11 +4032,11 @@ Everyone looked at him.
 
 "I read it somewhere," his father said, and picked his chopsticks back up.
 
-"It depends on the rules," Sho said. "Ours won't. He just receives."
+"It depends on the rules," Sho said. "Ours doesn't. He just receives."
 
-"Ah," said his father, satisfied, and went back to eating.
+"Mm," said his father, satisfied, and went back to eating.
 
-Mio had been quiet all through dinner. When Sho stood up to take his plate to the sink, she spoke up from behind her bowl.
+Mio hadn't spoken since the libero. When Sho stood up to take his plate to the sink, she spoke up from behind her bowl.
 
 "Fine," she said. "New bet. 2 puddings says you quit by summer."
 
@@ -4059,6 +4081,7 @@ He set his alarm for 4:15, turned off the light, and lay in the dark thinking ab
 - Sho and Oikawa: Sho decided to ask at 24-22. "Teach me your jump serve." Oikawa's eyes shut "like a door closing in a lit house". "Tall-kun?" "Kiyose." "Kiyose-kun... I'll have forgotten that by dinner." "Then I'll remind you at the prelims." "Then watch closely at the prelims, Kiyose-kun. I'll show you my serve. From very, very close." To Tanaka: "I think that was a no. I'll ask again at the prelims." (Ch 17's "I said I'd remind you" builds on this.)
 - Iwaizumi at the gate is an addition (canon has Oikawa alone). He drags Oikawa off ("I was being nice!" "No, you weren't."), looks from Sho to Oikawa and back without a word, and bows: "Sorry about him." (Ch 17's flat look, *please don't encourage him*, builds on it.)
 - Kageyama apologized for Oikawa; Sho bought 2 milks at the gate machine and gave him 1.
+- Takeda's speech is spoken (invented words: "I teach literature. It's a bad habit."); Tanaka cries. Tsukishima puts his headphones on when Oikawa calls him Glasses-kun. Iwaizumi to Oikawa: "You skipped cool-down." Hinata asks who the Guardian Deity is; Daichi: "You'll see." (twice, no name). Ennoshita on the bus: "When I'm out there again, you can tell me mine." "Okay." Suga's flick: "Stand in your own spot. He'll be fine." Sho tells the family about the libero unasked; Dad: "Mm."
 - Sho and Tsukishima: "Don't." "Okay." Sho stayed; Tsukishima left his bottle beside Sho's; Sho carried both out.
 - Sho and Ennoshita: Sho stepped back in the bow line; Suga flicked his forehead ("He'll be fine."). On the bus, half a melon bread and "What else did you see?" Ennoshita's reads in his own words: Seijoh's libero cheats line when Tanaka is front row; Kageyama looks at Hinata before every quick; Sho's left foot turns out on his 1st step when he's nervous ("Set 1, mostly. Twice in set 3.").
 - Sho and Takeda: explained block-out, drew 4 diagrams in Takeda's notebook. Takeda's page has "coach" and "block-out" both underlined.
