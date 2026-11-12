@@ -46,3 +46,6 @@ No em or en dashes. No negative parallelisms in any form ("Not X. Y.", "X, not Y
 - Use digits for numbers, no em dashes or en dashes, no "Not X. Y." constructions in your own prose.
 - Do NOT edit arc1.md, arc2.md, arc3.md, the bible or the handoff. Report only.
 - Your final message back: a tight summary under 600 words with the most important, concrete findings.
+
+## POV chapters (author, added during planning)
+The author wants a few surprise POV chapters in Arc 1 too ("a nice touch but not too much"). Follow the bible's "POV chapters" rules: 1 character per chapter, close third, past tense, their own vocabulary and soul; the story moves forward (new time, or a moment Sho can't see); the reader sees Sho from outside at least once; never 2 POV chapters in a row; title format "Chapter N: <title> (<character>)". Suggest at most 2 or 3 for Arc 1, each only where a moment truly needs that person's eyes, and say why that character and that moment.
