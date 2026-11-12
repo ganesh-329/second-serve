@@ -3626,11 +3626,11 @@ And underneath that, in smaller letters: He watches like I do.
 - No status card.
 - Next: ch 9 (from Old chapter 8), set 3. Oikawa pinch serves at 24-21 targeting Tsukishima; Karasuno wins 25-23.
 
-## Old chapter 8: Grand King
+## Chapter 9: Grand King
 
-Oikawa warmed up for a long time.
+Oikawa took his time warming up.
 
-That was the first thing Sho noticed about him in set 3. The coach had told him to take it slow, and he was taking it slow, the way a cat takes it slow when it's watching a bird. He stretched on the sideline behind the Seijoh bench. He jogged. He bounced a ball, caught it, bounced it again. He waved at the balcony every few minutes and the balcony screamed every time.
+That was the 1st thing Sho noticed about him in set 3. The coach had told him to take it slow, and he was taking it slow, the way a cat takes it slow when it's watching a bird. He stretched on the sideline behind the Seijoh bench. He jogged. He bounced a ball, caught it, bounced it again. He waved at the balcony every few minutes and the balcony screamed every time.
 
 And the whole time, his eyes were on Karasuno.
 
@@ -3638,7 +3638,7 @@ Sho saw it on the 4th rally. Daichi passed a serve, and Oikawa's eyes went to Da
 
 He was shopping.
 
-Sho, hidden at opposite where he didn't have to pass anything, felt the cold part of his brain click over. Oikawa was building a list of who couldn't receive. Tsukishima would be on it. Hinata would be on it. And Sho would be on it too, except Daichi had hidden him, so Oikawa had never seen him try.
+Sho, hidden on the right side where he didn't have to pass anything, felt the cold part of his brain click over. Oikawa was building a list of who couldn't receive. Tsukishima would be on it. Hinata would be on it. And Sho would be on it too, except Daichi had hidden him, so Oikawa had never seen him try.
 
 If Daichi had put him in serve receive, Sho would be at the top of that list.
 
@@ -3648,7 +3648,23 @@ He kept that thought and played.
 
 Set 3 went their way, mostly.
 
-Kageyama had stopped being surprised by Hinata, and Hinata had stopped being scared of anything. The quick landed, missed, landed again. Tanaka scored off the gaps it left. Tsukishima and Kageyama put up a wall on Iwaizumi that made the Seijoh bench groan. Sho got 2 balls on the right side and hit them both off Kindaichi's hands and out, because Kindaichi kept drifting toward Kageyama, just like Ennoshita had said, and Sho saw no reason to stop using a gift.
+Kageyama had stopped being surprised by Hinata, and Hinata had stopped being scared of anything. The quick landed, missed, landed again. Tanaka scored off the gaps it left. Tsukishima and Kageyama put up a wall on Iwaizumi that made the Seijoh bench groan.
+
+Sho's 1st ball came at 9-7.
+
+Daichi passed, Hinata ran in for the quick, and Kindaichi took 2 steps toward the middle before he saw the ball going the other way. Kageyama's set came out to the right, fast and flat, the tempo Sho had spent all of set 2 learning. Kindaichi scrambled back and threw his arms up sideways, reaching.
+
+Sho hit the outside hand.
+
+The ball went off Kindaichi's fingertips and out over the Seijoh bench. 10-7.
+
+The 2nd one was the same, at 16-13. Hinata ran, Kindaichi drifted toward Kageyama just like Ennoshita had said, and Sho hit the hand he'd been given. Kindaichi landed and stared at his own fingers like they'd betrayed him.
+
+As far as Satoshi had ever been concerned, that was what the ace was for. When the block hands you something, you take it, and you don't feel bad.
+
+The other thing in set 3 was Tsukishima's passing.
+
+He got 2 hard serves in a row at 18-15 and both went off his arms toward the bench. On the sideline, Oikawa stopped bouncing his ball to watch the 2nd one land.
 
 24-21.
 
@@ -3662,7 +3678,7 @@ Oikawa walked on.
 
 He took a ball from the line judge and walked back behind the end line, and he kept walking. 4 big steps. He stopped, turned, and bounced the ball 3 times.
 
-Then he lifted one hand and pointed across the net.
+Then he lifted a hand and pointed across the net.
 
 At Tsukishima.
 
@@ -3672,7 +3688,7 @@ Tsukishima's face didn't change. His hands, Sho noticed, went flat against his t
 
 The whistle blew.
 
-Oikawa tossed with one hand, high, out in front of his right shoulder. 4 steps, getting longer and faster. He went up into the air behind the end line and hit the ball at the top of his jump with his whole body behind it.
+Oikawa tossed with his left hand, high, out in front of his right shoulder. 4 steps, getting longer and faster. He went up into the air behind the end line and hit the ball at the top of his jump with his whole body behind it.
 
 The sound was a flat crack, like somebody slapping a table.
 
@@ -3682,11 +3698,11 @@ Oikawa landed a meter inside the court and was already smiling.
 
 24-22.
 
-"That serve," Sugawara said quietly on the bench, "is stronger than Kageyama's. And he can put it wherever he wants."
+"That serve," Sugawara said on the bench, "is stronger than Kageyama's. And he can put it wherever he wants."
 
-Sho, at the net, didn't turn around. He was replaying it.
+Sho stayed facing the net and replayed it.
 
-Toss: 1 hand, right hand, about 2 meters above his head, just in front of the hitting shoulder. Approach: 4 steps. Contact: top of the jump, ball in front. Landing: well inside the line.
+Toss: left hand, about 2 meters above his head, just in front of the hitting shoulder. Approach: 4 steps. Contact: top of the jump, ball in front. Landing: well inside the line.
 
 He'd seen that serve before. Satoshi had seen it 1,000 times on tape from the best servers in the V.League. He'd just never seen a high school kid do it this clean.
 
@@ -3700,41 +3716,39 @@ Same hand. Same height. Same spot in the air. The ball came over, hit Tsukishima
 
 The gym was loud now. The balcony was screaming. The Seijoh bench was on its feet. On the Karasuno side it was very quiet, and Sho could hear Tsukishima breathing.
 
-He didn't look at Tsukishima. Tsukishima would hate being looked at right now. Sho knew this the way he knew his own height.
+Sho kept his eyes on Oikawa. Tsukishima would hate being looked at right now. Sho knew this the way he knew his own height.
 
 Hinata looked.
 
 "Hey!" Hinata shouted across the net. "Great King! Aim at me instead!"
 
-"Shut up," said Tsukishima, not turning his head.
+"Shut up," said Tsukishima, eyes on the server.
 
-"No! Everybody on this side of the net is your ally!" Hinata looked back over his shoulder at Tsukishima, red-faced and absolutely serious. "That's what Tanaka-senpai said!"
+"No! Everybody on this side of the net is on your side!" Hinata looked back over his shoulder at Tsukishima, red-faced and absolutely serious. "That's what Tanaka-senpai said!"
 
 Tanaka made a choked sound, and when Sho glanced over, he had his hand pressed to his chest like he'd been shot.
 
-Tsukishima's jaw tightened. He didn't say anything else.
+Tsukishima's jaw tightened, and stayed that way.
 
-Sho had a suggestion ready. He'd had it since the first serve. Spread out. Make Oikawa's target smaller so he has to take power off to hit it.
+Sho had a suggestion ready. He'd had it since the 1st serve. Spread out. Make Oikawa's target smaller so he has to take power off to hit it.
 
 He opened his mouth.
 
 Daichi got there first.
 
-"Spread out," Daichi said, calm. "Hinata, Tsukishima, Tanaka, Kiyose. Wider. I'll take more court."
+"Spread out," Daichi said, calm. "Hinata, Tsukishima, Tanaka. Wider. I'll take more court."
 
-They spread out. Daichi slid over until he was covering almost half the back of the court by himself.
+They spread out. Daichi slid over until he was covering almost half the back of the court by himself. Sho stayed at the net on the right, where he'd been all along.
 
 Sho closed his mouth.
 
-He noticed something else while he did. He'd been about to say it. Daichi had said it 2 seconds earlier, without any tape, without any dead man's 9 years of analysis. Just a captain who looked at his team and knew where the hole was.
-
-Sho filed that under things to respect.
+He'd been about to say it. Daichi had said it 2 seconds earlier. He'd looked at his team and seen where the hole was. Sho had needed 9 years of tape in a dark room to see the same thing.
 
 Oikawa looked at the new formation from behind the end line. Then he smiled, a different smile, the smile of somebody who'd been asked a harder question than he expected and liked it.
 
 He served.
 
-It was softer. Not by much. Enough. To get the ball to Tsukishima past Daichi's arms, he'd had to take some of the power off, and Tsukishima got the ball up. It went high and floated, and drifted back over the net, slow and easy.
+It was softer by a hair, and a hair was enough. To get the ball to Tsukishima past Daichi's arms, he'd had to take some of the power off, and Tsukishima got the ball up. It went high and floated, and drifted back over the net, slow and easy.
 
 A free ball. For Seijoh.
 
@@ -3742,11 +3756,13 @@ A free ball. For Seijoh.
 
 It went to the setter, and the setter went to Kindaichi, and Kindaichi came in hard and swung.
 
-Hinata was already at the net. Sho didn't know how; he'd been in the back row a second ago. He jumped and got a fingertip on it, and the ball slowed and dropped and Tanaka dug it up, ugly and high.
+Hinata was already at the net. Sho didn't know how; he'd been 3 meters back in the receive a second ago. He jumped and got a fingertip on it, and the ball slowed and dropped and Tanaka dug it up, ugly and high.
 
-Hinata hit the floor and kept going. He sprinted the whole width of the court, from the left side to the right, through the gap between Sho and Tsukishima.
+Sho had started his own approach on the right. He was 2 steps in when Hinata hit the floor and kept going. Hinata sprinted the whole width of the court, from the left side to the right, straight across the front of Sho's run.
 
-Kageyama was under the ball. He didn't even look at Hinata.
+Sho pulled up.
+
+Kageyama was under the ball. His eyes never left it.
 
 The set went out fast and flat to the right side, and Hinata was there, already in the air, eyes shut.
 
@@ -3758,9 +3774,9 @@ The ball went past Oikawa's left ear and into the floor.
 
 Sho took a step back.
 
-He didn't mean to. His body did it the way it had done it in college, when a teammate made the winning play and the right thing was to give them the court.
+His body did it on its own, the way it had in college, when a teammate made the winning play and the right thing was to give them the court.
 
-At the edge of his vision, Hinata was screaming with his arms up, and Tanaka was screaming with him, and Kageyama stood very still with his mouth fighting something it was losing.
+At the edge of his vision, Hinata was screaming with his arms up, and Tanaka was screaming with him, and Kageyama stood where he'd set it, his mouth fighting something it was losing.
 
 Sho looked across the net instead.
 
@@ -3768,15 +3784,13 @@ Oikawa hadn't moved. He was standing where he'd landed after the dig attempt, tu
 
 And he was smiling.
 
-This one was small and sharp and real, nothing like the one he gave the balcony, and it was aimed at Kageyama.
-
-Sho filed that too.
+This one was small and sharp and real, and it was aimed at Kageyama.
 
 ---
 
 They lined up and bowed. "Arigatou gozaimashita!"
 
-Then the Karasuno team ran across and bowed to the Seijoh bench and the coach, and ran back and bowed to their own bench, and Sho found himself standing next to Ennoshita in the line. He stepped half a pace back, so that Ennoshita stood in front of him. He didn't explain. Ennoshita didn't ask.
+Then the Karasuno team ran across and bowed to the Seijoh bench and the coach, and ran back and bowed to their own bench, and Sho found himself standing next to Ennoshita in the line. He stepped half a pace back, so that Ennoshita stood in front of him. Ennoshita glanced back once and stayed where he was.
 
 Sugawara, passing behind them, reached out and flicked Sho in the forehead.
 
@@ -3794,17 +3808,15 @@ Sho had understood all of it. He watched Takeda put his notebook away and notice
 
 Tsukishima was at the water bottles alone.
 
-Sho went over to get his own. Tsukishima didn't look at him. He drank, set the bottle down, and said, before Sho could open his mouth:
+Sho went over to get his own. Tsukishima drank, set the bottle down, and said, before Sho could open his mouth:
 
 "Don't."
 
-"I was going to say your shoelace is untied."
+"Okay."
 
-Tsukishima looked down at his shoe.
+Sho drank his water and stayed where he was. Tsukishima gave him a look of deep, weary contempt. Sho drank some more.
 
-The shoelace was fine.
-
-He looked back up at Sho with an expression of deep, weary contempt. Sho smiled back. Neither of them said anything else, and after a second Tsukishima picked up his bag and walked off, and Sho noticed he'd left his water bottle on the bench beside Sho's like a placeholder.
+After a minute Tsukishima picked up his bag and walked off, and Sho noticed he'd left his water bottle on the bench beside Sho's like a placeholder.
 
 Sho picked both of them up and carried them out.
 
@@ -3818,17 +3830,25 @@ Hinata and Tanaka immediately puffed up like 2 cats. Kageyama stopped walking.
 
 "Hey, hey. Don't look at me like that," Oikawa said. "I came to say good game."
 
-He said good game to Hinata, specifically. He said Hinata's jump was amazing and his speed was amazing and the quick was amazing. Hinata started to glow.
+He turned to Hinata. "You. Shrimpy-chan. That jump. That speed. And that last quick." He shook his head, admiring. "Amazing. Really."
 
-Then Oikawa said Hinata's receive was terrible, and so was Tsukishima's, and if Karasuno didn't fix that before the Inter-High prelims, there wasn't much point in turning up. He said it in exactly the same pleasant voice. He said there wasn't much time.
+Hinata started to glow.
 
-Then he looked at Kageyama.
+"Your receive, though," Oikawa said, in exactly the same pleasant voice, "is terrible. So is Glasses-kun's. If you don't fix that before the Inter-High prelims, you might as well stay home." He smiled. "And there isn't much time."
+
+Hinata stopped glowing.
+
+Then Oikawa looked at Kageyama.
 
 "Tobio-chan," he said. "Next time it's official, I'll crush you properly."
 
-Kageyama said nothing. His hands were fists.
+Kageyama's hands were fists.
 
-Daichi stepped forward. He didn't argue. He agreed, in fact, that their receive needed work. Then he said, very calmly, that their receiving was about to get a lot better, because one of their members was coming back soon.
+Daichi stepped forward.
+
+"You're right about the receive," he said, calm, the same voice he'd used for the spread. "It needs work. It's about to get a lot better, though. One of ours is coming back soon."
+
+"Oh?"
 
 "Our Guardian Deity," Daichi said.
 
@@ -3838,7 +3858,7 @@ Oikawa smiled at Daichi like he'd been told a fun secret, and seemed about to le
 
 Sho stepped forward.
 
-He had decided to do this somewhere around 24-22, while he was watching the toss for the second time. He'd weighed it. It was embarrassing, it had no chance of working, and it would cost him nothing he cared about.
+He had decided to do this somewhere around 24-22, while he was watching the toss for the 2nd time. It was embarrassing and it had no chance of working. He'd been embarrassed in 2 lives now, and it had never once killed him.
 
 He bowed. A little too deep.
 
@@ -3846,13 +3866,9 @@ He bowed. A little too deep.
 
 The whole Karasuno team went silent.
 
-Oikawa looked at him. For a second, the smile stayed exactly where it was, but something behind his eyes shut, like a door closing in a lit house. It was there and then it wasn't.
+Oikawa looked at him. The smile stayed exactly where it was, but something behind his eyes shut, like a door closing in a lit house.
 
 Sho saw it. He kept his face friendly and didn't let on that he'd seen it.
-
-"I'll pay," Sho added. "In praise. I'm very good at praise. Ask anyone."
-
-"He is," said Tanaka, nodding seriously.
 
 Oikawa tilted his head. "And you are... Karasuno's..." He looked at Sho's jacket, which had no number on it. "Tall-kun?"
 
@@ -3860,13 +3876,11 @@ Oikawa tilted his head. "And you are... Karasuno's..." He looked at Sho's jacket
 
 "Kiyose-kun." Oikawa said it like he was holding it up to the light and finding it a bit cheap. "I'll have forgotten that by dinner."
 
-"That's fine," said Sho. "I'll remind you at the prelims."
+"Then I'll remind you at the prelims."
 
-Oikawa's smile widened. It was the sort of smile you'd want to see on a shark if you had to see one at all.
+Oikawa's smile widened. It was the smile Aizen wore right before he explained that everything had gone according to plan, and Sho had always liked Aizen a little more than he should have.
 
-"Then watch closely at the prelims, Kiyose-kun," he said. "I'll show you my serve. From very, very close."
-
-It was a threat dressed up as a present, and he said it beautifully.
+"Then watch closely at the prelims, Kiyose-kun," Oikawa said. "I'll show you my serve. From very, very close."
 
 "OIKAWA."
 
@@ -3874,7 +3888,9 @@ A voice from up the path. A broad, short-haired boy in a Seijoh jacket was strid
 
 "Iwa-chan! I was being nice!"
 
-"You were being you." Iwaizumi looked back over his shoulder at Sho for a second, then at Oikawa, then at Sho again. "Great. There's 2 of them now."
+"No, you weren't."
+
+Iwaizumi looked back over his shoulder at Sho, then at Oikawa, then at Sho again, the way you'd hold 2 keys side by side to see if they were cut the same.
 
 Then, to the rest of Karasuno, with a short, real bow: "Sorry about him."
 
@@ -3884,21 +3900,23 @@ Kageyama turned to the team. "I'm sorry about that," he said stiffly. "About wha
 
 Daichi waved it away.
 
+There was a vending machine by the gate. Sho bought 2 cartons of milk and held 1 out to Kageyama. Kageyama looked at it, took it, and stabbed the straw in hard.
+
 Tanaka turned to Sho, eyes wide. "You just ASKED him? To his FACE?"
 
-"He said no," Sho said.
+"Yes."
 
-"He didn't say no."
+"And?"
 
-"He said no very creatively." Sho picked up his bag. "That's the best kind. It means he thought about it."
+"I think that was a no." Sho picked up his bag. "I'll ask again at the prelims."
 
 ---
 
 On the bus, Sho sat next to Ennoshita.
 
-He'd bought 2 melon breads from the vending corner at Seijoh. He tore one in half, a bit unevenly, and held out the bigger half without saying anything. Ennoshita took it without saying anything either.
+He'd bought 2 melon breads from the vending corner at Seijoh. He tore one in half, a bit unevenly, and held out the bigger half. Ennoshita took it.
 
-They ate for a while. The bus pulled out. The light outside was going orange.
+They ate. The bus pulled out. The light outside was going orange.
 
 "What else did you see?" Sho asked. "From the bench."
 
@@ -3906,9 +3924,15 @@ Ennoshita looked at him sideways.
 
 "In set 3. Anything. I was on the court, so I couldn't see anything that wasn't on top of me."
 
-Ennoshita chewed, swallowed, and looked out the window for a moment. Then he started talking.
+Ennoshita chewed, swallowed, and looked out the window. Then he started talking.
 
-He'd seen that Seijoh's libero cheated toward the line every time Tanaka was in the front row. He'd seen that Kageyama always looked at Hinata before a quick, even when the set was going somewhere else, and that the Seijoh blockers hadn't figured that out yet but would. He'd seen that Sho, when he was nervous about a set, started his approach with his left foot turned out.
+"Their libero. Every time Tanaka was in the front row, he cheated toward the line."
+
+"Every time?"
+
+"Every time I saw." He picked a crumb off his knee. "Kageyama looks at Hinata before a quick. Even when the set's going somewhere else. Their blockers haven't figured that out yet." He took another bite. "They will."
+
+Then, in the same voice: "And you. When you're nervous about a set, you start your approach with your left foot turned out."
 
 Sho stopped chewing.
 
@@ -3916,7 +3940,11 @@ Sho stopped chewing.
 
 "Mm."
 
-Sho thought about that for a long time. Satoshi had watched other people's feet for 9 years. Nobody had ever watched his.
+"When?"
+
+"Set 1, mostly. Twice in set 3."
+
+Sho thought about that all the way to the next traffic light. Satoshi had watched other people's feet for 9 years. Nobody had ever watched his.
 
 "Thank you, Ennoshita-san," he said.
 
@@ -3930,7 +3958,7 @@ Somewhere around the river, Takeda-sensei turned around in his seat at the front
 
 "Block-out," Takeda repeated, writing. "Block-out. Thank you."
 
-He turned back around. Sho watched the back of his head for a moment, then leaned forward over the seat.
+He turned back around. Sho watched the back of his head, then leaned forward over the seat.
 
 "Sensei. If you want, I can draw it for you. With the angles."
 
@@ -3950,9 +3978,9 @@ Mio looked at his face. Then her eyes dropped, very fast, to his knees, and to h
 
 "It was probably luck," she said.
 
-"Definitely luck."
+"Probably."
 
-His mother came out of the kitchen drying her hands. "You won? Your first match?"
+His mother came out of the kitchen drying her hands. "You won? Your 1st win?"
 
 "Practice match."
 
@@ -3962,19 +3990,31 @@ His mother came out of the kitchen drying her hands. "You won? Your first match?
 
 "Then it'll be practice sekihan."
 
-Dinner was hamburg steak. His father didn't say much. Then, halfway through, he put down his chopsticks and said, carefully, "Is it true the libero can't serve?"
+Dinner was hamburg steak. His mother wanted to know what happened next, so Sho told her: practice, the prelims in June, and the libero coming back, the one the captain had called a guardian deity.
+
+"What's a libero?" said Mio.
+
+"He only receives. He wears a different shirt."
+
+His father took out his phone.
+
+A few minutes later he started reading out loud. "'The libero may not block or attempt to block.'" He scrolled. "'He may not complete an attack hit from anywhere if, at the moment of contact, the ball is entirely higher than the top of the net.'" He scrolled again. "'When the libero makes an overhand finger pass in the front zone...'"
+
+"Dear," said his mother.
+
+His father put the phone face down beside his plate and went back to his hamburg steak.
+
+Halfway through his rice, he put down his chopsticks and said, carefully, "Is it true the libero can't serve?"
 
 Everyone looked at him.
 
 "I read it somewhere," his father said, and picked his chopsticks back up.
 
-Sho looked at his father for a moment. At his phone, face down beside his plate. He knew, without needing to check, what the search history on that phone looked like.
-
-"It depends on the rules," Sho said. "In the official ones, yeah. He can't serve."
+"It depends on the rules," Sho said. "Ours won't. He just receives."
 
 "Ah," said his father, satisfied, and went back to eating.
 
-Mio had been quiet all through dinner. When Sho stood up to take his plate to the sink, she spoke without looking at him.
+Mio had been quiet all through dinner. When Sho stood up to take his plate to the sink, she spoke up from behind her bowl.
 
 "Fine," she said. "New bet. 2 puddings says you quit by summer."
 
@@ -3982,7 +4022,7 @@ Mio had been quiet all through dinner. When Sho stood up to take his plate to th
 
 "I'm extending it," said Mio. "Because I'm generous."
 
-Sho looked at her for a moment. She was very interested in her rice.
+Sho looked at her. She was very interested in her rice.
 
 "Deal," he said.
 
@@ -3990,7 +4030,7 @@ Sho looked at her for a moment. She was very interested in her rice.
 
 Upstairs, he opened the notebook.
 
-> **Oikawa Toru.** Setter, Aoba Johsai. Jump spin serve. 1-hand toss, right hand, high, in front of hitting shoulder. 4-step approach, starts 4 big steps back. Lands about 1m inside. 3 bounces before every serve.
+> **Oikawa Toru.** Setter, Aoba Johsai. Jump spin serve. 1-hand toss, left hand, high, in front of hitting shoulder. 4-step approach, starts 4 big steps back. Lands about 1m inside. 3 bounces before every serve.
 >
 > Studied our receive during warm-ups and set 3. Picked the weakest 2 receivers before he came on.
 >
@@ -4004,29 +4044,29 @@ Then, on a new page:
 
 > **Jump serve.** Order: float first, then jump float, then spin. 15 min a day of toss-and-catch, no hitting, until the toss lands in the same spot 20 times in a row. Then 1-step. Shoulder warm-up first, every time. Stop if it hurts.
 
-He looked at it for a moment. Then he added one more line at the bottom.
+Then he added 1 more line at the bottom.
 
 > Guardian Deity. Coming back. Who?
 
 He set his alarm for 4:15, turned off the light, and lay in the dark thinking about a toss that went to the same spot in the air, every time, like it was on a string.
 
-Tomorrow, apparently, a god was coming back to Karasuno.
+**Continuity (ch 9)**
 
-**Continuity (ch 8)**
-
-- Canon covered: Oikawa's long warm-up and scouting of Karasuno's receive, set 3 to 24-21, Oikawa subbing in for Kunimi as pinch server, pointing at Tsukishima ("attacking power means nothing if the receive doesn't connect"), 2 aces on Tsukishima (24-22, 24-23), Suga's "stronger than Kageyama's serve", Hinata's "aim at me" and Tanaka's "ally" line repeated, Daichi widening the formation, the softer 3rd serve, Tsukishima's free ball, Kindaichi's swing, Hinata's one-touch, the cross-court sprint and the quick past Oikawa's left ear (25-23), Oikawa smiling at the quick, Takeda's "chemical reaction" speech and his private resolve to find a coach, Oikawa at the gate (Hinata praised, receive weakness, "I'll crush you properly"), Daichi's "Guardian Deity".
-- Changes and additions: Sho is part of Daichi's spread formation. Iwaizumi dragging Oikawa away at the gate is my addition (canon doesn't confirm Iwaizumi was there). The Kindaichi and Kageyama bathroom talk happens off-page.
-- Oikawa's serve type: written as a jump spin serve (canon only says powerful and controlled).
-- Sho and Oikawa: "Teach me your jump serve. I'll pay in praise." Oikawa's eyes shut down for half a second (Sho saw it, said nothing). "Tall-kun?" "Kiyose." "I'll show you my serve. From very, very close." Iwaizumi: "Great. There's 2 of them now."
-- Sho and Tsukishima: "Don't." "I was going to say your shoelace is untied." Tsukishima left his bottle next to Sho's.
-- Sho and Daichi: Daichi called the formation fix 2 seconds before Sho would have. Sho now respects Daichi's eye.
-- Sho and Ennoshita: Sho stepped back in the bow line; on the bus, half a melon bread and "What else did you see?" Ennoshita's reads: Seijoh's libero cheats line when Tanaka is front row; Kageyama looks at Hinata before every quick; Sho's left foot turns out on his first step when he's nervous.
+- Canon covered: Oikawa's long warm-up and scouting of Karasuno's receive, set 3 to 24-21, Oikawa subbing in for Kunimi as pinch server, pointing at Tsukishima ("attacking power means nothing if the receive doesn't connect"), 2 aces on Tsukishima (24-22, 24-23), Suga's "stronger than Kageyama's serve" and its control, Hinata's "aim at me", Daichi widening the formation, the softer 3rd serve, Tsukishima's free ball, Kindaichi's swing, Hinata's 1 touch, the cross-court sprint and the quick past Oikawa's left ear (25-23, Karasuno wins 2-1), Oikawa smiling at the quick, Takeda's "chemical reaction" speech and his private resolve to find a coach, Oikawa at the gate (Hinata praised, receive weakness, "I'll crush you properly"), Daichi's "Guardian Deity". Oikawa's gate speech and Daichi's answer are in invented words.
+- Invented in set 3: Sho's 2 block-outs off Kindaichi's outside hand (10-7 and 16-13) as Kindaichi drifts toward Kageyama (Ennoshita's read from ch 8); Tsukishima shanks 2 serves at 18-15 and Oikawa watches the 2nd land.
+- Positions at 24-21 to 25-23: Hinata front row (middle) and in the receive, Tsukishima back row, Sho front row on the right at the net and out of the receive. Daichi's spread: "Hinata, Tsukishima, Tanaka. Wider." Sho pulled up from his own approach when Hinata crossed in front of him on the final quick.
+- Oikawa tosses with his **left hand** (ch 22 relies on it). Serve written as a jump spin serve.
+- Sho and Oikawa: Sho decided to ask at 24-22. "Teach me your jump serve." Oikawa's eyes shut "like a door closing in a lit house". "Tall-kun?" "Kiyose." "Kiyose-kun... I'll have forgotten that by dinner." "Then I'll remind you at the prelims." "Then watch closely at the prelims, Kiyose-kun. I'll show you my serve. From very, very close." To Tanaka: "I think that was a no. I'll ask again at the prelims." (Ch 17's "I said I'd remind you" builds on this.)
+- Iwaizumi at the gate is an addition (canon has Oikawa alone). He drags Oikawa off ("I was being nice!" "No, you weren't."), looks from Sho to Oikawa and back without a word, and bows: "Sorry about him." (Ch 17's flat look, *please don't encourage him*, builds on it.)
+- Kageyama apologized for Oikawa; Sho bought 2 milks at the gate machine and gave him 1.
+- Sho and Tsukishima: "Don't." "Okay." Sho stayed; Tsukishima left his bottle beside Sho's; Sho carried both out.
+- Sho and Ennoshita: Sho stepped back in the bow line; Suga flicked his forehead ("He'll be fine."). On the bus, half a melon bread and "What else did you see?" Ennoshita's reads in his own words: Seijoh's libero cheats line when Tanaka is front row; Kageyama looks at Hinata before every quick; Sho's left foot turns out on his 1st step when he's nervous ("Set 1, mostly. Twice in set 3.").
 - Sho and Takeda: explained block-out, drew 4 diagrams in Takeda's notebook. Takeda's page has "coach" and "block-out" both underlined.
-- Suga flicked Sho's forehead about Ennoshita.
-- Family: Mio checked his knees and forearms at the door; Mom announced "practice sekihan"; Dad looked up libero rules on his phone; Mio's new bet is 2 puddings that he quits by summer.
-- Sho's notebook: Oikawa scouting notes, jump serve progression plan (float, then jump float, then spin; 15 min/day toss-and-catch; shoulder warm-up), "Guardian Deity. Who?"
-- No status card (no rank changed).
-- Next: ch 9, Nishinoya returns and receives everything.
+- Family: Mio's 1st door check (knees, then forearms); "It was probably luck." "Probably."; Mom's "Your 1st win?" and "practice sekihan"; Sho mentions the libero at dinner; Dad reads libero rules from his phone until Mom says "Dear", puts the phone face down, then asks his 1 question: "Is it true the libero can't serve?" "I read it somewhere." (Satisfies ch 23 and ch 25.) Mio's new bet: 2 puddings says he quits by summer ("I'm extending it. Because I'm generous.").
+- Sho's notebook: Oikawa page (left-hand toss, "He hates being asked.", "Respect.", left foot "Fix."), jump serve progression (float, then jump float, then spin; 15 min/day toss-and-catch; 20 in a row; shoulder warm-up; "Stop if it hurts"), "Guardian Deity. Coming back. Who?" Alarm 4:15.
+- Anime in Sho's head: Aizen.
+- No eye events. No status card.
+- Next: ch 10 (from Old chapter 9), Nishinoya returns.
 
 ## Old chapter 9: Guardian deity
 
