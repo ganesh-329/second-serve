@@ -166,7 +166,7 @@ Halfway there he stopped under a streetlight and looked at his hands. Normal han
 
 So was this a past-life thing? A Naruto thing? If he concentrated hard enough, would a fox start talking to him?
 
-He concentrated. Nothing talked. Naruto had at least got a rude fox out of it.
+He concentrated. Nothing talked. Naruto had at least gotten a rude fox out of it.
 
 He kept walking.
 
@@ -485,7 +485,7 @@ Hinata's face had changed while he talked. Sho could see the gym in it, whatever
 
 He smiled at Kageyama when he said it. Kageyama took half a step back.
 
-"So I need a team," said Daichi. "One the vice principal never has to come in here about again. You 2 can hate each other at home. In here you're on the same side of the net. That makes you allies." He looked from one to the other. "If you're going to fight each other and drag everybody else down with you, I don't care how good you are. We don't need players who fight among themselves."
+"So I need a team," said Daichi. "One the vice principal never has to come in here about again. You 2 can hate each other on your own time. In here you're on the same side of the net. That makes you allies." He looked from one to the other. "If you're going to fight each other and drag everybody else down with you, I don't care how good you are. We don't need players who fight among themselves."
 
 He went to his bag and took out 2 of the 3 forms.
 
@@ -627,7 +627,7 @@ On the 3rd, he got it right. Or close enough. His hand met the ball at the top o
 
 It was about a meter out, and the gym had gone quiet.
 
-Tanaka was looking at the mark the ball had left on the back wall, then at Sho. Sho knew that face. He'd made it himself at 17, at a senior in Osaka who'd dented a gym wall. It said: *I want to hit one harder than that.*
+Tanaka was looking at the mark the ball had left on the back wall, then at Sho. Sho knew that face. He'd made it himself at 17, at a 3rd year in Osaka who'd dented a gym wall. It said: *I want to hit one harder than that.*
 
 "Again," said Tanaka, to Sugawara. He was already walking to the line.
 
@@ -873,7 +873,7 @@ Hinata saw him 1st. "Kiyose! You stayed late!" He was breathing hard. "Did you m
 
 "Still!"
 
-"Out's out," said Kageyama, to the ball, and tossed another one. Hinata ran under it and hit it into the fence and came back shouting. "We're going to make it on Saturday! We're going to beat the captain!"
+"Out's out," said Kageyama, and tossed another one. Hinata ran under it and hit it into the fence and came back shouting. "We're going to make it on Saturday! We're going to beat the captain!"
 
 "Saturday," said Kageyama, to nobody, and picked up the next ball.
 
@@ -1325,7 +1325,7 @@ Tsukishima pushed his glasses up his nose with 1 finger. "You came in at 5 this 
 
 Yamaguchi went after him. Halfway to the bench he looked back at Sho, quickly, as if to see how he'd taken it, and then hurried to catch up.
 
-Sho went back to his hamstrings. *Close to 190,* he thought. *Long arms. Says no in 1 syllable and means it.* In the other life he'd have written that last part down as a strength.
+Sho went back to his hamstrings. *Long arms,* he thought. *Says no in 1 syllable and means it.* In the other life he'd have written that last part down as a strength.
 
 ---
 
@@ -1453,7 +1453,7 @@ He looked at the back of her head over the sofa. The rabbit sweatshirt. The penc
 
 "Mio."
 
-She turned the TV up.
+She changed the channel.
 
 He went upstairs with the edamame still on his arm. Through the floor he heard her turn the TV off, and then her feet on the stairs, and then her door.
 
@@ -1729,11 +1729,11 @@ Sho thought about it. This week he'd been hit in the face in front of 3 stranger
 
 Tsukishima looked at him. Then he took the box and put it in his bag, flat, on top of his books, and changed his shoes, and went up the stairs to class. Yamaguchi went after him. On the landing he stopped and leaned back over the rail.
 
-"Was it the one with the chocolate fan?" he whispered.
+"Was it the one with the chocolate fan?"
 
 "Yes."
 
-Yamaguchi nodded, very seriously, as if a plan had gone right, and ran up after Tsukishima.
+Yamaguchi nodded, as if a plan had gone right, and ran up after Tsukishima.
 
 ---
 
@@ -2005,7 +2005,7 @@ The page turned.
 - **Canon (reference):** Kageyama hits balls at Hinata instead of tossing; Hinata at his limit refuses to stop ("the ball hasn't hit the floor yet"); the full-power ball, the dig, Kageyama's 1st toss to Hinata, "We'll win on Saturday" [wiki: The_Greatest_Teammate]. The evening before the match: Tsukishima holds the ball over Hinata ("first years who caused trouble on the first day", elementary school kids), Yamaguchi gives his height (188), "What's an elite doing here?", "we could throw the game", "King", the semifinal, Kageyama grabs his collar and walks away, Hinata takes the ball from above, "It's just a club" [wiki: The_King_of_The_Court; Kei_Tsukishima]. Canon puts Kageyama's 1st toss "a few days" into the week; the fic puts it on Thursday dawn.
 - **Tanaka (LOCK, the ritual starts here, Thu Apr 11):** on the step before Sho at 4:52: "Senpai. What time did you get here?" "Early." "How early?" "EARLIER THAN YOU." (Count for ch 17's "7 mornings running" starts here.) "Why is everybody so WEIRD this year."
 - **Hinata (canon):** muttered "It hurts. I want to stop." and took a step forward [wiki: Sh_y_Hinata, ch 4 quote].
-- **Friday dawn:** Tanaka on the step again ("Early," before Sho could ask). Kageyama served 10 jump serves at Sho's chest; Sho passed one. "Saturday, I'm serving at you." "I know." "Every time." Hinata: "You'll get killed." "Probably."
+- **Friday dawn:** Tanaka on the step again ("Early," before Sho could ask). Kageyama served 10 jump serves at Sho's chest; Sho passed one. "Saturday, I'm serving at you." "Okay." "Every time." "Can I have 10 more? Now?" "We're on different teams." "No." Hinata: "You'll get killed." "Probably."
 - **Kageyama's drill:** he aims 2 steps past where Hinata can reach, every time (Sho sees it, tells nobody; film brain).
 - **The promise:** Hinata: "Saturday! You're playing seriously, right? No going easy!" "I'm too bad to go easy." "PROMISE." "I promise. I'll try as hard as I can to make you lose." "GOOD!"
 - **Tsukishima's 10 minutes:** Thursday: "You asked yesterday." "It's a club activity." "Please." "No." "5 minutes." "No... You've been here 4 days." "I promised Hinata I'd try." "Then try. On your own." Yamaguchi: "He likes strawberry shortcake." Friday: shortcake from the bakery by the station, 380 yen ("For a middle blocker."); "...This is bribery." "Yes." "You're not even embarrassed." "Should I be?" Tsukishima put it in his bag, flat, on top of his books; Yamaguchi on the landing: "Was it the one with the chocolate fan?" "Yes." **Yamaguchi sets for Sho for the 1st time** (Friday's 10 minutes: "I've never set in a game." "Set it high... I'll come to it." 3rd set clean; "I don't know what I did." "You'll find out tomorrow."). **The plan:** "Kageyama will serve at you. Every time... You're the hole." Sho stands in the back right corner and doesn't receive; Tsukishima, blocking him in Thursday's drill: "You hit line. Every time." (stuffed twice, then a cross into the middle); Tsukishima and Yamaguchi split the court; **Yamaguchi sets, Tsukishima in the middle, Sho hits** ("You hit hard and you hit out... Hit it in"). **"That's shameless." "Yes. Please."** (Tsukishima's only "shameless" in Arc 1.) "10 minutes... That was 9."
@@ -2304,7 +2304,7 @@ Sho thought of a grumpy setter in Osaka who'd shouted it at him every day for a 
 
 "Somebody," he said.
 
-Tanaka pointed at him with the hand that stung. "Next time I'm putting it where you can't reach it."
+Tanaka flexed the hand that stung. "Next time I'm putting it where you can't reach it."
 
 Yamaguchi served again. Hinata passed it into the net. 13-11. Yamaguchi's next serve hit the tape and fell back at his own feet, and he apologized to the floor, and then to Tsukishima. 13-12.
 
@@ -2512,7 +2512,7 @@ It came back empty.
 - **Canon (reference):** Daichi knew about morning practice ("It's good that you all got so much morning practice in this week"); the 3v3; Tanaka's 1st point and the shirt; Tsukishima blocks Hinata ("Amazing jump"); "The King's toss confuses the other team and his own team too"; Kageyama: tossing with nobody behind him scares him; Hinata: "That's middle school. I'm here now."; "I'm here!" and the accidental quick; "Can you 2 even do quicks?" "No."; Hinata: always a wall, the Little Giant was small too; Kageyama: "Clearing the wall in front of the spiker is the setter's job"; the too-fast sets; Suga to Kageyama (doing what he did in middle school; Kageyama's "if he gets used to it, he can hit it"; fit the spiker; "I was nervous watching you... I'm jealous of you"); Kageyama: "I'm jealous of you... I'll bring the ball to you" [wiki: Middle_School_Story; Words_from_the_Have-Nots]. Kiyoko walks past; "She'll come for the 2nd set if her meeting finishes" (ch 6 or 7 shows her in set 2).
 - **Fic:** Sho, Tsukishima, Yamaguchi vs Hinata, Kageyama, Tanaka; Daichi keeps score, Suga refs. House rules: full court, 25-point sets, best of 3, rally scoring, fixed serving order per side, no positions or back row. Sho's side named 1st in scores. The stakes said once by Daichi; Sho still means his promise to Hinata and doesn't like it. Sho plays in the new 12,000 shoes.
 - **Serving orders (LOCK for ch 6):** Sho's side **Sho, Yamaguchi, Tsukishima** (Sho serves the 1st ball; Yamaguchi serves from 18-16 through 20-16 and the freak-quick rally; Tsukishima next, then Sho). Hinata's side **Kageyama, Tanaka, Hinata** (Kageyama served the 17-16 side-out rally).
-- **Score path:** 0-1 Sho's float, Tanaka line past Tsukishima (shirt); 0-2 Kageyama's serve off Sho's arms into the wall ("Nice serve," meant); 0-3 Sho early on Tsukishima's set, Tanaka cross; Sho's clock (68 cm at 19; "Count one. Then go."); Tsukishima: "That one you were supposed to leave." "My arms went." "Then don't take them."; 1-3 hands behind his back, Yamaguchi's 2-hand push; 2-3 Yamaguchi's float off Hinata's arm ("RECEIVE IT PROPERLY!"); 2-4 Tanaka covers Hinata and kills; 2-5 Sho into the net; 3-5 Tsukishima blocks Hinata (Rock Lee, in Sho's head); 4-5 Tsukishima puts down Hinata's overpass; 5-5 Tanaka long; 5-6 Tsukishima's serve into the net; 6-6 Tsukishima blocks Hinata again; the King exchange; Kageyama rolls the ball to Sho; 7-6 Hinata's pass into the net; **7-7 Kageyama's dump** (Sho watching the hands); 8-7 Kageyama's serve off the tape; 8-8 2nd dump; 8-9 Sho early, out; 9-9 Tsukishima's tip on 2; 9-10 Tsukishima's float wide; 10-10 Hinata early, off the wall ("Too early." "I KNOW."); 10-11 Tanaka into the corner behind Sho; Tsukishima shifts Yamaguchi; 11-11 Tsukishima's dump; **12-11 Sho tools Tanaka's right hand past the antenna, his 1st real kill** (Yamaguchi's rainbow; waited, counted one); "You USED it." "Yes, senpai." "Who taught you that?" "Somebody."; 13-11 Hinata's pass into the net; 13-12 Yamaguchi's serve off the tape; 13-13 Tanaka cross over Sho's early block, **"Please teach me that one too, senpai." "STOP ASKING NICELY."** (once in Arc 1); 13-14 "Cross", Tsukishima stays on line; 14-14 Sho off Hinata's hand; **15-14 "Line", Tsukishima moves half a step and stuffs Tanaka** ("You listened to him!" "I didn't." "You moved!" "I was going to move anyway."); 15-15 Tanaka; 16-15 Sho's cross; 17-15 Tsukishima on an overpass; 17-16 accidental quick ("I'M HERE!"); 18-16, 19-16 failed fast quicks; Suga's speech, Kageyama's; 20-16 Hinata's pass off his shoulder; Yamaguchi serves, Tanaka passes, Hinata runs before the pass.
+- **Score path:** 0-1 Sho's float, Tanaka line past Tsukishima (shirt); 0-2 Kageyama's serve off Sho's arms into the wall ("Nice serve," meant); 0-3 Sho early on Tsukishima's set, Tanaka cross; Sho's clock (68 cm at 19; "Count one. Then go."); Tsukishima: "That one you were supposed to leave." "My arms went." "Then don't take them."; 1-3 hands behind his back, Yamaguchi's 2-hand push; 2-3 Yamaguchi's float off Hinata's arm ("RECEIVE IT PROPERLY!"); 2-4 Tanaka covers Hinata and kills; 2-5 Sho into the net; 3-5 Tsukishima blocks Hinata (Rock Lee, in Sho's head); 4-5 Tsukishima puts down Hinata's overpass; 5-5 Tanaka long; 5-6 Tsukishima's serve into the net; 6-6 Tsukishima blocks Hinata again; the King exchange; Kageyama rolls the ball to Sho; 7-6 Hinata's pass into the net; **7-7 Kageyama's dump** (Sho watching the hands); 8-7 Kageyama's serve off the tape; 8-8 2nd dump; 8-9 Sho early, out; 9-9 Tsukishima's tip on 2; 9-10 Tsukishima's float wide; 10-10 Hinata early, off the wall ("Too early." "I KNOW."); 10-11 Tanaka into the corner behind Sho; Tsukishima shifts Yamaguchi; 11-11 Tsukishima's dump; **12-11 Sho tools Tanaka's right hand past the antenna, his 1st real kill** (Yamaguchi's rainbow; waited, counted one); "You USED it." "Yes, senpai. Sorry." "Who taught you that?" "Somebody." "Next time I'm putting it where you can't reach it."; 13-11 Hinata's pass into the net; 13-12 Yamaguchi's serve off the tape; 13-13 Tanaka cross over Sho's early block, **"Please teach me that one too, senpai." "STOP ASKING NICELY."** (once in Arc 1); 13-14 "Cross", Tsukishima stays on line; 14-14 Sho off Hinata's hand; **15-14 "Line", Tsukishima moves half a step and stuffs Tanaka** ("You listened to him!" "I didn't." "You moved!" "I was going to move anyway."); 15-15 Tanaka; 16-15 Sho's cross; 17-15 Tsukishima on an overpass; 17-16 accidental quick ("I'M HERE!"); 18-16, 19-16 failed fast quicks; Suga's speech, Kageyama's; 20-16 Hinata's pass off his shoulder; Yamaguchi serves, Tanaka passes, Hinata runs before the pass.
 - **Sho kept Kageyama's problem to himself** (saying it would help the side he'd promised to beat); Suga said it.
 - **Eye / Meta Vision:** eye dormant through 20-16. Film brain reads Tanaka's shoulders (cross, then line), and on the last run-up it "came back empty".
 - **Ace line:** the tool off Tanaka's hand; the timing fixed by counting 1; 1 cross with a quarter of Tanaka's snap.
