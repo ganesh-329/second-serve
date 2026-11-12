@@ -3233,7 +3233,7 @@ The jacket hung on the back of his chair, and the streetlight through the curtai
 - **Ace line:** the line under Hinata's elbow and the roll over Tanaka.
 - **Next:** ch 8 "The lineup" (from Old chapter 7's 1st third): Monday to Tuesday morning; Sakanoshita and Daichi's lineup (Sho in Ennoshita's canon spot); the "strongest decoy"; the locker room; the bus.
 
-## Old chapter 7: Blue castle
+## Chapter 8: Blue castle
 
 The meat buns at Sakanoshita cost 120 yen, and Sho had been trying to get them for 100 since Thursday.
 
@@ -3245,9 +3245,9 @@ He was maybe 26, blond, with a headband pushing his hair back and a cigarette he
 
 "So you've paid full price 4 times. You'll manage a 5th."
 
-"I'm a growing boy. I'm an investment in the future of this town."
+"I'm still growing."
 
-"You're 120 yen." The guy held out his hand.
+"It's 120 yen." The guy held out his hand.
 
 Sho paid. The guy dropped the bun into a paper sleeve and, Sho noticed, picked the biggest one in the warmer.
 
@@ -3261,37 +3261,41 @@ Hinata's head came up like a dog hearing its name.
 
 Hinata's head went back down. "Decoy? That's not cool. That's the opposite of cool."
 
-Kageyama, without looking up from his bun, told him that a decoy who drew 3 blockers was the most dangerous player on the court and that every point Tanaka scored would really be Hinata's point. Hinata's head came back up, slowly, like a sunrise.
+Kageyama kept his eyes on his bun. "You run in fast, and their blockers have to go with you. 3 of them, if they're scared enough. Then nobody's in front of Tanaka-san." He took a bite. "Every point he gets, you made. The strongest decoy is the most dangerous person on the court."
+
+Hinata's head came back up, slowly, like a sunrise.
+
+"...The STRONGEST decoy?"
+
+"That's what I said."
 
 "Wings," Daichi went on. "Tanaka. Me." He paused, very slightly. "And Kiyose."
 
 Sho stopped chewing.
 
-He was aware, without looking, of exactly where everyone was sitting. Sugawara at the end of the bench. Ennoshita beside him, holding a bun he hadn't started yet.
+He knew exactly where everyone was sitting. Sugawara at the end of the bench. Ennoshita beside him, holding a bun he hadn't started yet.
 
-"Kiyose plays opposite," Daichi said. "Tanaka and I take serve receive. You hide."
+"Kiyose plays the right side," Daichi said. "Tanaka and I take serve receive. You hide."
 
-"I'm excellent at hiding," Sho said automatically.
-
-Then he looked at Ennoshita.
+Sho looked at Ennoshita.
 
 Ennoshita was already looking at him. He had the kind of face that always seemed slightly sleepy, even now, and he was smiling a little.
 
-"Opposite, huh," Ennoshita said. "Warm up properly. Seijoh serves hard."
+"Right side, huh," Ennoshita said. "Warm up properly. Seijoh serves hard."
 
 "Ennoshita-san, about..."
 
 "Mm." Ennoshita finally took a bite of his bun. "Go."
 
-That was it. That was the whole conversation. He turned and said something to Narita about homework, and Sho was left sitting with his mouth half open and a sentence he wasn't allowed to finish.
+He turned and said something to Narita about homework, and Sho was left sitting with his mouth half open and a sentence he wasn't allowed to finish.
 
-Sugawara, at the end of the bench, caught his eye and said nothing. Later, walking to the corner, he fell in beside Sho for a few steps.
+Sugawara, at the end of the bench, caught his eye. Later, walking to the corner, he fell in beside Sho for a few steps.
 
-"Chikara's tougher than he looks," Sugawara said, quietly. Then he sped up and went to bother Daichi.
+"Ennoshita's tougher than he looks," Sugawara said. Then he sped up and went to bother Daichi.
 
 Sho walked the rest of the way home doing a calculation he didn't like.
 
-Ennoshita had played 1 year for this team. Sho had played 12 days. Daichi had looked at both of them and picked the 12 days. That was a decision with a price on it, and somebody other than Sho had paid it.
+Ennoshita had played a year for this team. Sho had played 6 days. Daichi had looked at both of them and picked the 6 days. That was a decision with a price on it, and somebody other than Sho had paid it.
 
 Fine. Then he'd make it worth the price.
 
@@ -3301,7 +3305,7 @@ Hinata didn't sleep Monday night. Sho knew this because Hinata told everyone at 
 
 "My sister said I was too loud," Hinata said. "I wasn't even talking. I was just... thinking loudly."
 
-The bus was a rented school bus that smelled of old seats and air freshener. Takeda-sensei sat at the front with a notebook open on his knees, writing in it every few minutes for reasons no one could guess. Daichi stood at the door and counted heads twice. The third years took the back. Sho ended up across the aisle from Hinata and Tanaka.
+The bus was a rented school bus that smelled of old seats and air freshener. Takeda-sensei sat at the front with a notebook open on his knees, writing in it every few minutes for reasons no one could guess. Daichi stood at the door and counted heads twice. The 3rd years took the back. Sho ended up across the aisle from Hinata and Tanaka.
 
 Hinata had an onigiri in his lap. He wasn't eating it. He was holding it with both hands like it was the only solid thing left in the world.
 
@@ -3309,19 +3313,15 @@ Sho leaned over and took it.
 
 "Hey!"
 
-"I'm confiscating this," Sho said, and put it in his jacket pocket. "Evidence."
-
-"Of what?!"
-
-"Of you trying to eat while you look like that."
+"Later," said Sho, and put it in his jacket pocket. "You'll want it later."
 
 Hinata opened his mouth to argue, and then the bus went over a bump, and his face went from white to a very specific shade of green, and Sho thought, ah.
 
-He couldn't stop it. So he didn't try.
+There was nothing he could do about that part.
 
 What happened next happened in Tanaka's lap.
 
-There was a long moment of total silence on the bus. Then Tanaka said, in a voice of enormous calm, "Hinata."
+The whole bus went silent. Then Tanaka said, in a voice of enormous calm, "Hinata."
 
 "I'm sorry I'm sorry I'm so sorry..."
 
@@ -3333,7 +3333,7 @@ Tanaka stared at them. "You carry a spare?"
 
 "2," said Sho. "Away game."
 
-Tanaka took them. He looked at Sho for a long second. Then he reached across the aisle and slapped him on the back, much too hard, and went to change behind the seat while Sugawara rubbed Hinata's back and Daichi opened every window on the bus.
+Tanaka took them. He looked at Sho. Then he reached across the aisle and slapped him on the back, much too hard, and went to change behind the seat while Sugawara rubbed Hinata's back and Daichi opened every window on the bus.
 
 At the front, Takeda-sensei wrote something in his notebook.
 
@@ -3343,9 +3343,9 @@ Aoba Johsai looked like money.
 
 The gym was bigger than Karasuno's and newer, with high windows and a floor that shone. The team lined up just inside the door and bowed together. "Onegaishimasu!"
 
-On the way to the changing room, 2 Seijoh first years passed them in the hall. One was tall, with dark hair that stuck straight up. The other one was saying something about Karasuno's manager in a tone Tanaka did not care for.
+On the way to the changing room, 2 Seijoh 1st years passed them in the hall. One was tall, with dark hair that stuck straight up. The other one was saying something about Karasuno's manager in a tone Tanaka did not care for.
 
-Tanaka turned around. His face did a thing. Then Kageyama turned around too, and Tsukishima drawled something polite and poisonous, and Yamaguchi stood behind Tsukishima looking brave, and for about 4 seconds the hallway was a nature documentary.
+Tanaka turned around with his intimidation face fully on. Then Kageyama turned around too, and Tsukishima said something polite and poisonous, and Yamaguchi stood behind Tsukishima looking brave.
 
 "Tanaka," said Daichi.
 
@@ -3359,45 +3359,39 @@ Kageyama said, "Yeah," and kept walking.
 
 Sho watched the tall boy's face as he turned away. He'd expected a smirk. What he got was a mouth pressed flat and a jaw that worked once, like the kid had swallowed something that tasted bad.
 
-He filed it.
-
 ---
 
 Hinata spent most of warm-up in the bathroom. He came back from his 3rd trip with a look of grim determination and the news that he'd met the tall boy, who was called Kindaichi and who had told him Kageyama only saw people as pieces. Tanaka had apparently walked in on the end of it and said something about how the match would show them.
 
-Sho listened to all this while stretching, and said nothing. It wasn't his story.
+Sho listened to all this while stretching. It wasn't his story.
 
-But when they lined up at the net to bow before the first set, he was standing across from Kindaichi.
+But when they lined up at the net to bow before the 1st set, he was standing across from Kindaichi.
 
 Kindaichi looked him up and down. Tall, new, no number on the jacket yet. Nobody.
 
-"Kiyose," Sho said pleasantly. "Remember it. It'll be on the scoresheet a lot."
-
-Kindaichi's eyebrows went up. Beside him, a pale boy with a bored face and half-closed eyes glanced over at Sho, then away, as if Sho had been mildly interesting for a full second and that was the limit.
+Sho bowed to him the same as to everybody else. Beside Kindaichi, a pale boy with a bored face and half-closed eyes glanced over at Sho, then away, as if Sho had been interesting for about a second and that was the limit.
 
 "Onegaishimasu!"
 
 They went to their positions. Sho looked back once at the bench.
 
-Sugawara and Ennoshita sat side by side, in their jackets, hands on their knees. 2 seniors pushed out by first years. Neither of them was looking at the other. Both of them were looking at the court.
+Sugawara and Ennoshita sat side by side, in their jackets, hands on their knees. 2 seniors pushed out by 1st years. Neither of them was looking at the other. Both of them were looking at the court.
 
-Sho turned around and didn't look back again.
-
-He'd pay that later. With interest.
+Sho turned around and faced the net.
 
 ---
 
 Set 1 was a disaster, and most of it was Hinata.
 
-On the very first rally, Hinata cut in front of Daichi's receive and the ball went sideways off both of them. Tanaka's spike got stuffed by Kindaichi. Hinata missed a block by a meter, then jumped for a ball that was Tsukishima's, then forgot which rotation they were in.
+On the very 1st rally, Hinata cut in front of Daichi's receive and the ball went sideways off both of them. Tanaka's spike got stuffed by Kindaichi. Hinata missed a block by a meter, then jumped for a ball that was Tsukishima's, then forgot which rotation they were in.
 
 Kageyama yelled. Kindaichi, across the net, watched the yelling with an expression of quiet, grim satisfaction, like a man watching a prediction come true.
 
 Sho's own problems were quieter.
 
-The first time Kageyama set him, he was late.
+The 1st time Kageyama set him, he was late.
 
-He'd spent a week learning to wait. Wait for the ball to peak, count 1, go. That worked beautifully on Yamaguchi's rainbows. Kageyama's set to the right side came fast and flat, already dropping by the time Sho's brain said go, and he reached the ball late and low and hit it straight into Kindaichi's hands.
+He'd spent a week learning to wait. Wait for the ball to peak, count one, go. That worked beautifully on Yamaguchi's rainbows. Kageyama's set to the right side came fast and flat, already dropping by the time Sho's brain said go, and he reached the ball late and low and hit it straight into Kindaichi's hands.
 
 "Mine. My bad," Sho said, before Kageyama could open his mouth.
 
@@ -3415,15 +3409,15 @@ Then he stopped, like he'd surprised himself.
 
 Kageyama looked at him. "Nobody knows who you are."
 
-"Excellent," said Sho. "Let's keep it that way."
+"Good."
 
-It didn't save the set. Seijoh's servers found the seam between Sho and Daichi twice, and Sho, hiding at opposite, still ended up passing 1 of them into the stands. His timing on Kageyama's sets got better, one swing at a time, and he hit 2 decent balls in the whole set, and it didn't matter.
+It didn't save the set. Seijoh's servers found the seam between Sho and Daichi twice, and Sho, hiding on the right, still ended up passing one of them into the stands. His timing on Kageyama's sets got better, one swing at a time, and he hit 2 decent balls in the whole set, and it didn't matter.
 
 13-24.
 
 Hinata went back to serve.
 
-Sho could see his hands shaking from the front row. He saw Hinata toss the ball before the whistle had even finished, and swing at it in a blind panic, and he knew, he absolutely knew, where it was going about a quarter-second before it got there.
+Sho could see his hands shaking from the front row. He saw Hinata toss the ball before the whistle had even finished, and swing at it in a blind panic, and he could see where it was going before it got there, the way you can see a glass going off a table.
 
 The ball hit Kageyama square in the back of the head.
 
@@ -3435,13 +3429,7 @@ The ball rolled gently off toward the sideline. Kageyama didn't move. Hinata's f
 
 Then Tanaka made a strangled noise and folded in half, and Tsukishima turned around and put his face in the crook of his elbow, and his shoulders started shaking.
 
-Kageyama turned around very, very slowly.
-
-"Great aim," Sho said into the silence. "Wrong target."
-
-Kageyama's eyes snapped to him and stayed there, black and flat, for 2 full seconds. Sho met them pleasantly. He was 44 years old, technically, and he'd been glared at by a general manager who'd once made a scout cry.
-
-Then Kageyama looked away from him and walked over to Hinata.
+Kageyama turned around very, very slowly, and walked over to Hinata.
 
 He reached up and slapped the back of his own head, hard, right where the ball had hit.
 
@@ -3459,7 +3447,13 @@ Hinata thought about it. Sho watched him actually think about it, the panic drai
 
 The break between sets was 3 minutes long. Tanaka used all of them.
 
-He sat down next to Hinata and talked, with his elbows on his knees, not too loud. Everyone already knew Hinata wasn't good yet, he said. He didn't need to prove anything to anybody. Nobody was going to take him off for messing up. If he messed up, someone would cover him, because that was what a team was.
+He sat down next to Hinata with his elbows on his knees and talked, not too loud.
+
+"Oi. Hinata. Listen. Everybody already knows you're not good yet. Me. Daichi-san. The other team. It's fine. You don't have to show anybody anything." He scratched his head. "Nobody's taking you off for messing up. You mess up, somebody covers it. Everybody on this side of the net is on your side. That's what it means."
+
+Hinata was staring at the floor.
+
+"So stop looking like you're going to throw up again," said Tanaka. "I don't have any more shorts. He does, but I'm not asking him twice."
 
 Sho stood a few steps away with a towel over his shoulder and kept his mouth shut. This was Tanaka's, all of it.
 
@@ -3467,21 +3461,21 @@ When Tanaka finished and stood up, and Hinata was sitting a little straighter, S
 
 Hinata looked at it. Then up at Sho.
 
-Sho didn't say anything. He went back to the bench.
+Sho went back to the bench.
 
 Someone pushed a water bottle into his hand. He took it, twisted the cap, and found it had already been loosened.
 
-Ennoshita didn't look at him. He was looking at the court, at the Seijoh side, where the tall middle blocker was drinking from a bottle of his own.
+Ennoshita was looking at the court, at the Seijoh side, where the tall middle blocker was drinking from a bottle of his own.
 
 "Kindaichi," Ennoshita said quietly. "Their tall middle. After long rallies, he drifts toward Kageyama. Every time. He wants to be the one who blocks him."
 
-Sho went very still.
+Sho's hand stopped on the bottle.
 
 He'd been on court for the whole set, watching that blocker with Satoshi's brain, and he hadn't caught it. You couldn't see everything from inside. Ennoshita had been sitting on the bench with nothing to do but watch, and he'd watched, and he'd seen it.
 
 "Thank you, Ennoshita-san," Sho said.
 
-"Mm." Ennoshita still didn't look at him. "Use it."
+"Mm." Ennoshita kept his eyes on the court. "Use it."
 
 ---
 
@@ -3519,13 +3513,13 @@ Sho hit it high off his fingertips, hard, and it went out of bounds over the Sei
 
 11-9.
 
-Sho landed. He didn't celebrate. He pointed back over his shoulder at the Karasuno bench without turning around.
+Sho landed and pointed back over his shoulder at the Karasuno bench.
 
 On the bench, Ennoshita's mouth twitched.
 
 Kunimi shook out his hand and looked at Sho with the same faint, bored interest as before.
 
-"You're coasting," Sho told him through the net, cheerfully.
+"You're coasting," Sho told him through the net.
 
 Kunimi considered this. "...And?"
 
@@ -3537,23 +3531,7 @@ The middle of the set got messy.
 
 Tsukishima and Kageyama started bickering about a block. Kageyama said Tsukishima had jumped late. Tsukishima said Kageyama's set had been to the wrong place, so he'd had to cover the wrong hitter. They were both a little right and both completely unwilling to say so.
 
-"Gentlemen," Sho said, stepping between them with his hands up. "Please. Let's settle this the way civilized people do."
-
-They both looked at him.
-
-"Rock paper scissors," Sho said.
-
-"No," said Tsukishima.
-
-"No," said Kageyama.
-
-"Finally," said Sho. "Something you agree on."
-
-Tsukishima looked at him for a long moment. "Hitting with that face?" he said. "Very cool."
-
-"Thank you. I practice it in the mirror."
-
-Tsukishima's mouth tightened. It had nothing to bite on.
+"Next point," said Daichi, in the voice that ended things, and it ended.
 
 On the next rally, Iwaizumi, Seijoh's acting captain, came in on the left with a ball set high and outside. Sho read him the old way. Approach from outside the sideline: cross-court. He watched the hitting hand pull back and vanish behind Iwaizumi's head: full swing.
 
@@ -3561,13 +3539,13 @@ Kageyama and Tsukishima went up together and put a wall in front of the line. Sh
 
 Iwaizumi hit it hard and cross. It smacked into Sho's forearms, right in the middle, and popped up high and clean toward the net.
 
-No silence. No light. No ghost. Just a read, and his feet getting there first.
+It was only a read, and his feet getting there first.
 
 He'd take it.
 
 "NICE RECEIVE!" Hinata screamed, and ran in, and Kageyama set Tanaka, and Tanaka hit it so hard the ball bounced into the balcony.
 
-Iwaizumi landed, looked at Sho for a second, and frowned. It was an honest frown, a player's frown: who is that.
+Iwaizumi landed, looked at Sho, and frowned. It was an honest frown, a player's frown: who is that.
 
 ---
 
@@ -3577,7 +3555,7 @@ Daichi called a timeout at 18-16. In the huddle, Hinata talked fast.
 
 Daichi smiled. "That's a real weapon, Hinata."
 
-Sho, at the back of the huddle, dabbed his forehead with a towel and didn't say anything. He was busy watching Kageyama's face while Hinata talked. Kageyama was looking at his own hands.
+Sho, at the back of the huddle, dabbed his forehead with a towel and watched Kageyama's face while Hinata talked. Kageyama was looking at his own hands.
 
 ---
 
@@ -3587,7 +3565,7 @@ Set point. Kageyama set Hinata, eyes shut, and the ball hit the floor behind Kin
 
 25-22.
 
-One set each.
+1 set each.
 
 Hinata did a lap of their half of the court with his arms out. Tanaka chased him. Daichi let them.
 
@@ -3613,7 +3591,7 @@ Nobody corrected him.
 
 Oikawa stretched by the Seijoh bench, chatting, smiling, waving at the balcony now and then. Then, while he was bent over his own knee, his eyes came up and went across the net.
 
-They went to Kageyama first. They stayed there for a long moment, and the smile on his face didn't change at all, and that was somehow worse.
+They went to Kageyama first. They stayed there, and the smile on his face didn't change at all, and that was somehow worse.
 
 Then they moved. Hinata. Tanaka. Daichi. Tsukishima.
 
@@ -3621,32 +3599,32 @@ They slid over Sho, and moved on.
 
 Then they came back.
 
-Only for a second. A small, polite, curious second, like a man who'd glanced at a menu and noticed a dish he didn't recognize.
+Briefly. A small, polite, curious look, like a man who'd glanced at a menu and noticed a dish he didn't recognize.
 
 Sho looked straight back at him.
 
-For exactly one beat, the back of his neck prickled.
+For exactly 1 beat, the back of his neck prickled.
 
 Then Satoshi's brain opened a fresh page, and wrote at the top: Oikawa. Setter. Watches people.
 
 And underneath that, in smaller letters: He watches like I do.
 
-**Continuity (ch 7)**
+**Continuity (ch 8)**
 
 - Canon covered: the lineup announced at Sakanoshita (Hinata as decoy, Kageyama selling it), Hinata's sleepless night and the bus vomit on Tanaka, arriving at Seijoh and the hallway clash (Tanaka's forced apology), Kindaichi's "King", Hinata's bathroom meeting with Kindaichi (summarized), set 1 lost 13-25 with Hinata's serve into the back of Kageyama's head, Tanaka and Tsukishima laughing, Kageyama slapping his own head, Tanaka's pep talk, Kageyama apologizing for a high set (Kindaichi and Kunimi stunned), Hinata as decoy freeing Tanaka, Hinata's "I can trust you guys" timeout, Kageyama and Tsukishima blocking together, set 2 won 25-22 (set 2 score is inferred), Oikawa's arrival with the balcony fans and the coach's "don't overdo it", Kageyama explaining Oikawa, Hinata naming him the Great King.
-- Changes: Sho starts in Ennoshita's spot, playing opposite and hiding from serve receive. Ennoshita and Suga sit on the bench together.
+- Changes: Sho starts in Ennoshita's spot, on the right side, hiding from serve receive. Ennoshita and Suga sit on the bench together.
 - Ukai Keishin seeded (unnamed): the blond guy at the Sakanoshita register. Sho haggled for 100-yen meat buns and lost; Ukai picked him the biggest bun.
 - Sho and Ennoshita: cut-off apology ("Mm. Go."), loosened bottle cap, and the read on Kindaichi drifting toward Kageyama after long rallies. Sho used it to score off Kunimi and pointed back at the bench. Sho owes Ennoshita (and Suga).
 - Sho and Tanaka: Sho gave him spare shorts and shirt ("2. Away game."). Back slap.
-- Sho and Hinata: confiscated his onigiri on the bus and returned it silently after Tanaka's talk.
-- Sho and Kageyama: "Mine. My bad." before Kageyama could yell; asked about Kindaichi's blocking and got a 9-second answer. "Great aim. Wrong target" drew Kageyama's glare off Hinata.
-- Sho and Tsukishima: "Very cool." "Thank you. I practice it in the mirror." Rock-paper-scissors peacemaking failed.
-- Rivals: Sho told Kindaichi to remember his name. Kunimi: "You're coasting." "...And?" Iwaizumi frowned at Sho after a clean cross-court dig.
+- Sho and Hinata: took his onigiri on the bus ("Later. You'll want it later.") and returned it silently after Tanaka's talk.
+- Sho and Kageyama: "Mine. My bad." before Kageyama could yell; asked about Kindaichi's blocking and got a 9-second answer. Kageyama's "strongest decoy" pitch to Hinata at Sakanoshita is on the page (canon). Tanaka's set-break talk to Hinata is direct speech ("Everybody on this side of the net is on your side.").
+- Tsukishima and Kageyama bicker over a block; Daichi: "Next point."
+- Rivals: Sho bowed to Kindaichi like anyone else. Kunimi: "You're coasting." "...And?" Iwaizumi frowned at Sho after a clean cross-court dig.
 - Sho's timing: his "wait for the peak" fix broke on Kageyama's fast, flat sets; by mid set 2 he was counting Kageyama's tempo and starting a half beat early.
 - No eye events this chapter. The Iwaizumi dig was pure reading (hand vanishes = full swing; approach from outside = cross).
-- Oikawa clocked Sho for a second. Sho's note: "He watches like I do."
+- Oikawa clocked Sho briefly ("like a man who'd glanced at a menu and noticed a dish he didn't recognize"). Sho's note: "He watches like I do."
 - No status card.
-- Next: ch 8, set 3. Oikawa pinch serves at 24-21 targeting Tsukishima; Karasuno wins 25-23.
+- Next: ch 9 (from Old chapter 8), set 3. Oikawa pinch serves at 24-21 targeting Tsukishima; Karasuno wins 25-23.
 
 ## Old chapter 8: Grand King
 
