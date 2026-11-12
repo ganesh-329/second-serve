@@ -58,3 +58,7 @@ The full Haikyuu fandom wiki (Feb 2020) is extracted as plain wikitext, 1 file p
 - **Most of the conversations in both arcs are not correct**: not true to the canon voices, not meaningful.
 - **The plot is too fast-paced.** Slow it down; add chapters where the material needs them.
 - Take the time and the agents needed to plan it properly. Arc 1 is planned and revised first; Arc 2 gets its own round after.
+
+## Author direction (Nov 12, third message)
+- **Canon is reference only.** This is a fanfic: things change because of Sho. Use canon to get people, voices, rules and the big results right, then let matches, rallies, scores and scenes near Sho bend. Don't flag a divergence as an error just because canon went differently; flag it only if it breaks logic, a voice, a protected moment, or a later chapter.
+- **Arc 3 (ch 30 to 45) is the author's preferred style.** That's why ch 1 to 29 are being revised: bring them up to Arc 3's soul, voice, pace and length.
