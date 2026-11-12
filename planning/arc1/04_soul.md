@@ -243,7 +243,7 @@ Format: want and wound in April to early May; body; the thread with Sho chapter 
 - **Thread:** ch 6 the announcement; ch 7 writing on the bus; ch 8 the chemical speech and "coach" underlined, then block-out and 4 diagrams in the back of his notebook (keep; it's the 1st time Sho's analysis is useful to an adult, and he gives it away); ch 10 "You all deserve someone who does." (keep; it's Takeda's soul in 1 line); ch 13 goodnight to each by name; ch 14 the touch sheet ("In case the notebook wants company." keep). Good POV candidate (see section 7).
 
 ### Shimizu Kiyoko
-- **Want [memory, unsure]:** for the team to fly again; she ran hurdles in middle school [memory]. Very few words.
+- **Want [memory, unsure]:** for the team to fly again [unsure]; she ran hurdles in middle school and hid the bruised legs under black tights [web: wikipages/Kiyoko_Shimizu.txt]. Very few words.
 - **Thread:** ch 6 "It's a jacket. You can wear it." (keep exactly); ch 9 tape, "You write a lot." (keep; cut Sho's "I'll treasure this tape." "...Kidding. Mostly."); ch 13 jerseys. Tanaka and Noya's guard test: keep it short, cut "the guard is full".
 
 ### Oikawa Toru
@@ -847,7 +847,7 @@ Bible rules: 1 character, close third, past tense, their vocabulary; their soul 
 
 ### POV 1 (recommended): Takeda, between ch 9 and ch 10 (or as ch 10's 1st half)
 
-- **Moment:** the week Takeda gets a coach. The 5 bows at Sakanoshita, the phone call to Nekoma's old coach (canon: Takeda arranges the Nekoma match as a lure [memory]), the library book he can't follow, the notebook with *coach* underlined twice and *block-out* under it, and the 6th visit, which ends with Ukai's irritated "fine, but only until the Nekoma match".
+- **Moment:** the week Takeda gets a coach. The 5 bows at Sakanoshita, the phone call to Nekoma's old coach (canon: Takeda phones and visits Ukai repeatedly and admits he wants the Ukai name to open doors to practice matches; Ukai agrees only to beat Nekoma [web: wikipages/Ittetsu_Takeda.txt, Keishin_Ukai.txt]), the library book he can't follow, the notebook with *coach* underlined twice and *block-out* under it, and the 6th visit, which ends with Ukai's irritated "fine, but only until the Nekoma match".
 - **Why only his eyes work:** Ukai agreeing is protected canon and the persuasion is Takeda's. In Sho's POV it happens off-page or Sho has to stand at the register being clever (the current ch 10 problem). From Takeda's side it's the story of a man who isn't a volleyball person deciding that isn't an excuse. It also covers new time (the days between ch 9 and ch 10) instead of replaying a scene.
 - **What he wants:** to deserve this club. To hand them someone who knows. Never says: that he's embarrassed every time he bows.
 - **Sho from outside:** the tall 1st year who drew 4 diagrams in the back of his notebook on the bus and explained block-out "as if he'd explained it to grown men before", and who, at Sakanoshita, crouches to square Takeda's dropped papers, sees his own name at the bottom of the list, and hands them back without a word. Takeda notices the boy never looks at Ukai the whole time, only at the papers, and decides that was kind. (Takeda reads kindness where Sho was keeping out of it; both are true.)
