@@ -15,6 +15,18 @@ My first revisions of ch 1 to 7 stretched the chapters, rewrote them from scratc
 - **Always evaluate** the revised chapter against the old one before it goes in: more readable? more soul? anything lost? If anything got worse, fix that first.
 - Keep Sho's inner voice alive (shameless, funny, 1 or 2 anime references a chapter in his head); his spoken lines stay plain and polite.
 
+## Conversation checklist (every chapter; from `planning/arc1/11_convo_diagnosis.md`)
+1. Write down what each speaker wants right now; every line, Sho's included, comes from that.
+2. Sho brings something: a fact, a flat failure report, a plain ask, a confession. At most 2 bare "I know / Yes / Okay" per scene unless deliberate.
+3. Each other speaker gets 1 line from their Soul sheet that isn't about Sho.
+4. At least 1 conversation per chapter gets a second turn (it keeps going past the first answer).
+5. No unbroken speech over about 50 words; a listener breaks it with a question, an unanswered line or a movement.
+6. Mouth plain; head holds the real reason and 1 or 2 jokes or anime refs. At most 1 "seen it on tape" credential line per chapter, plus 1 Satoshi memory that hurts or warms.
+7. Humor from the situation or someone's sincere logic; Sho's plain asks often get flatly refused.
+8. Before an important reply, let the room make a sound.
+9. If a line repeats 3 times, the 3rd one changes.
+10. Scenes end on the other person's move or an object, never on the narrator explaining Sho's feeling or Sho winning the last word.
+
 ## The golden rule
 Chapters are slow and stretched out where it matters, but they must never lag. Every scene earns its length: no idling, no re-explaining, no summary where a scene belongs. Nothing can feel artificial. Every chapter needs soul: characters act from what they want (bible "Soul sheet"). The hook at the end comes out of that soul.
 
