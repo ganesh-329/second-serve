@@ -3166,7 +3166,7 @@ He walked to the bench, where Takeda was sitting with the clipboard.
 
 "Sensei. Is there a weight room at Karasuno?"
 
-Takeda blinked. "There's a room with some weights in it. Behind the 1st gym. The baseball club used it, I think, before they moved. I don't know who has the key."
+Takeda blinked. "There's a room with some weights in it. Under the old gym. The baseball club used it, I think, before they moved. I don't know who has the key."
 
 "Find out," said Ukai. "When we get home."
 
@@ -3412,7 +3412,7 @@ He could go over there. Tell the old cat to leave his 1st year alone. Tell him h
 
 He stayed where he was.
 
-He'd tell the kid himself, when they got home, at Karasuno, in a room behind the 1st gym with a squat rack in it and the baseball club's rusty plates, with the key in his hand. *You're a wing spiker. Act like it.* He'd say it properly, the way you said things that mattered.
+He'd tell the kid himself, when they got home, at Karasuno, in a room under the old gym with a squat rack in it and the baseball club's rusty plates, with the key in his hand. *You're a wing spiker. Act like it.* He'd say it properly, the way you said things that mattered.
 
 "Sensei," he said.
 
@@ -3868,7 +3868,7 @@ Tonight Tsukishima was on the other side of the net from Hinata again, and Sho w
 
 Akaashi set Hinata.
 
-It was a high set, the kind that hangs at the top and waits for you, and Hinata ran in under it from the left and went up, and up, his eyes wide open. Sho could see them from the stage. He could see Hinata looking: at the net, at the 3 pairs of hands coming up across it, Kuroo's long careful ones, Lev's enormous wild ones, Tsukishima's, quieter than both. He could see Hinata seeing them. It was the thing Hinata had shouted at Kageyama in the dark outside the gym 2 weeks ago, *I want to see what's in front of me*, and here it was, in front of him, 3 people high, and he could see all of it.
+It was a high set, the kind that hangs at the top and waits for you, and Hinata ran in under it from the left and went up, and up, his eyes wide open. Sho could see them from the stage. He could see Hinata looking: at the net, at the 3 pairs of hands coming up across it, Kuroo's long careful ones, Lev's enormous wild ones, Tsukishima's, quieter than both. He could see Hinata seeing them. It was the thing Hinata had shouted at Kageyama in the dark outside the gym 3 weeks ago, *I want to see what's in front of me*, and here it was, in front of him, 3 people high, and he could see all of it.
 
 He hit it as hard as he could, into the middle of them.
 
@@ -4099,7 +4099,7 @@ Sho lay with his aching fingers folded on his chest and listened to the cicadas 
 - **Daichi at 10:15: "Lights out was at 10."** Hinata: "I did a feint! A real 1! Over Tsukishima!" "Tell me tomorrow. Bed... You too, Kiyose." Walk back: Hinata's invisible feint; Tsukishima: "We saw." Tomorrow (day 8): **Shinzen, Nekoma, Ubugawa, Fukurodani last. Karasuno winless all week.**
 - **Futons:** "Tomorrow. We're going to win 1." "Shinzen's 1st." "We've never beaten Shinzen." "I know." Tanaka sleep-talking: "That's my spot... rice."
 - Ace path: "The bad ball... Somebody has to hit it." / "That's the ace's ball." Hinata wants it too (healthy rivalry). Sho's roll shot vs Bokuto.
-- Next: ch 41 "Four into one" (Sho): day 8, game 1 vs Shinzen: **Karasuno's 1st win of the camp, 25-23 (user approved flip)**; Sho as the all-rounder (the dig, the call, the serve at the right man); eye and map agree on Shinzen's setter; **Tanaka finishes it.** 1 line of the ace.
+- Next: ch 41 "4 into 1" (Sho): day 8, game 1 vs Shinzen: **Karasuno's 1st win of the camp, 25-23 (user approved flip)**; Sho as the all-rounder (the dig, the call, the serve at the right man); eye and map agree on Shinzen's setter; **Tanaka finishes it.** 1 line of the ace.
 
 ## Chapter 41: 4 into 1
 
@@ -4351,12 +4351,12 @@ Then he got up, and put the console in his pocket, and went in to warm up.
 
 - Sho POV, day 8 (last day) of the Shinzen camp, game 1. **Karasuno's 1st win of the camp: 25-23 over Shinzen (user approved; flips canon).** The eye fired once, on its own, in agreement with the map (bible: "Eye and map agree on Shinzen's setter"). No status card.
 - **Morning:** Yaku's 10 again at 6:05; Yaku served the 11th at Lev's face (approval). Hinata said "Shinzen" between bowls.
-- **Lineup (8:15):** Kageyama, Hinata, Tsukishima, Daichi, Tanaka, Noya (L); **Kiyose in Asahi's spot, whole set (his 3rd whole set on the wing).** Asahi's back stiff from 3 days of jump serves; he told Ukai at dinner (Suga: a year ago he'd never have). Asahi: "Um. Borrow it." (callback). Tanaka: "We've never beaten them... Not in the whole history of the whole camp. Ennoshita looked it up." Ennoshita: "I asked their coach. He laughed... Kindly." "There's no kind way to laugh at somebody."
+- **Lineup (8:15):** Kageyama, Hinata, Tsukishima, Daichi, Tanaka, Noya (L); **Kiyose in Asahi's spot, whole set (his 3rd whole set on the wing).** Asahi's back stiff from 3 days of jump serves; he told Ukai at dinner (Suga: a year ago he'd never have). Asahi: "Um. Borrow it." (callback). Tanaka: "We've never beaten them... Not in the whole history of the whole camp. Ennoshita asked their coach." Ennoshita: "He laughed. Kindly." "There's no kind way to laugh at somebody."
 - **Shinzen (plain; invented players by role):** setter (3rd year, tidy hands, calm, sets the ace on the left when in trouble); ace (tall, flat hard hitter; hits earlier than his approach says); right-side hitter (smaller, smarter); libero (quick, cheats a step toward the ace when the ace is front row). Shinzen beat Karasuno twice earlier in the week (incl. day 6).
 - **Rallies:** 0-3 (ace's early cross; Sho half a step late; "Mine"/"Yours" with Daichi; Noya laughing). 1-3: Sho's pass, Tanaka kill ("NICE PASS!"). **3-4: Sho serves the right-side hitter about to rotate front; setter goes to the ace; Tsukishima's late soft block up; Noya digs ("NICE, TSUKISHIMA!"; Yamaguchi's face).** Hinata's normal quick, eyes shut, in (5-5). Back-row calls ("Short!", "Tip!"); never calls Tsukishima's blocks. Front row: waited; 2 soft blocks up; **1 stuff (his 1st straight-down block at camp); Tanaka slapped his head.** **Hitting: 6 sets, 4 in (high hands, full swing), 1 tooled, 1 into the net (ran under it); Shinzen started double-blocking him; Kageyama went middle to Hinata.**
 - **13-13:** Shinzen's libero stopped cheating toward the ace (stood square). Ukai lifted 2 fingers.
 - **21-21:** Shinzen's middle touched Tsukishima's quick; Daichi dug; Tanaka blocked; Noya dug the block; **the bad ball went to the left antenna with Sho at the net on the far right; Tanaka took it and hit through 2 blockers (22-21). "That was Tanaka's ball... Sho had wanted it, and Tanaka had wanted it more, and had taken it."** (The out-of-system kill for Sho is still saved for ch 43-44.)
-- 22-22; 22-23 (tip between Sho and Daichi, the same seam, near collision); 23-23 (Kageyama dump, side-out; ears red); **rotation brings Sho to serve; 1st serve at the square libero, good pass, Tanaka cross: 24-23; Sho serves again.**
+- 22-22; 22-23 (tip between Sho and Daichi, the same seam, near collision); 23-23 (Tsukishima quick, side-out); **rotation brings Sho to serve; 1st serve at the square libero, good pass, Tanaka cross: 24-23; Sho serves again.**
 - **Shinzen timeout:** Sho alone on the end line, thinking: the libero square now, the right-side hitter beside him; the seam ("*mine*... *yours*, for 1 beat"). **Tanaka walked to the end line: "If it comes to me, I'm finishing it." "Okay."**
 - **The last rally ("4 into 1"):** Sho's plain float at the seam; both passers hesitated 1 beat; the libero got it up, off the net, high and outside; the setter ran. **Map: quick gone, back set gone (shoulders, 1 foot), dump gone (too far): high outside to the ace.** Tsukishima slid out with Kageyama and blocked late and soft. Sho at the edge of Tsukishima's shadow (Kuroo). **The eye came on its own ("the way you feel somebody sit down beside you on a bench") and agreed: the setter's ghost went to the ace; the ace's ghost turned up off the outside edge of Tsukishima's hands.** Sho there before contact; dug it soft (Yaku's give) toward Kageyama, who was landing off balance from the block (Kageyama and Tsukishima blocked; Tanaka front left); **"MINE!": Sho set Tanaka with Akaashi's hands (window, pads, legs 1st), "Ordinary. A ball a hitter could hit." Tanaka killed it straight down between 2 blockers. 25-23.**
 - **After:** Hinata screamed; the bench emptied (Yamaguchi, Ennoshita, Narita, Kinoshita, Asahi, Suga); Takeda's hands over his face; Tanaka's silent then enormous roar. **Sho's hands still in the window: Yaku's feet, Kuroo's shadow, Ikkei's crossing-out, Akaashi's hands, and the eye "agreed". "4 people's lessons. 1 point."** His right hand never moved; he told it anyway: "It's fine." (Mio, ch 39.) Tanaka: "YOU SET ME! YOU SET ME THE BALL! I FINISHED IT! I SAID I'D FINISH IT!" Pile on the floor; Sho at the bottom, laughing. Ukai: still, then the corner of his mouth; looked at his knees.
@@ -4588,7 +4588,7 @@ Kenma was in the front row. Nekoma's ball was coming back over after Karasuno's 
 
 Sho stood in the middle of the back row.
 
-He'd never asked for it with this much riding on it. In the 3rd gym it had been 2 nights ago and nothing at stake. Against Shinzen this morning it had come by itself. Now Karasuno was 1 point from losing to Nekoma again, and Mio's voice was in his head, small and fierce and certain: *Then ask it nicely.*
+He'd never asked for it with this much riding on it. In the 3rd gym it had been 3 nights ago and nothing at stake. Against Shinzen this morning it had come by itself. Now Karasuno was 1 point from losing to Nekoma again, and Mio's voice was in his head, small and fierce and certain: *Then ask it nicely.*
 
 He looked at the middle. The net, the tape, the space over Kenma's hands. He let the edges come. He crossed out what he could: Kenma's hips square to the left, his feet a step and a half back from the net; too far off for the dump, Kenma had never dumped from that far. Kuroo already in the air in the middle, early, a decoy. Fukunaga out of position from covering. That left Yamamoto, coming in loud from the left, and Kai behind him.
 
@@ -4676,13 +4676,13 @@ Down by the gym door Ukai was standing with his arms folded. He looked up the hi
 - **"Tell Coach 1st" (Den Den Mushi, 3 lines):** "Their setter reads my stop... I'm going to show him a wrong 1. A stop where I'm not." "And when he works that out?" "Then he has to look at something else. My feet, probably... Then I'll probably lose that. But he'll have had to change." Ukai: "Your old stop. The dot... You can still do that?" "I'll know after the 1st 1." **"Do it. Asahi's spot. Whole set... I'd rather lose to Nekoma trying something than lose to Nekoma the way we always lose to Nekoma." "You told me before you did it. Good."**
 - **Stakes:** the Little Giant's team never beat Nekoma (May, club room); Karasuno lost every set in May and Tokyo; the Battle at the Garbage Dump. Kenma back row in the 1st rotation.
 - **Honest for the 1st 8 points:** Kenma reads the wide stop too: "the shape of the room... which way the circle leaned"; Kai's back-row middle into the least likely corner (4th rally); again at 5-7. 5-8.
-- **Lie 1 at 9-12:** Yamamoto's loud approach (every Nekoma hitter swings for real); **Sho shows the old dot deep (heels down, knees, hands still, "3 frames of nothing") with his weight on the inside of the left foot; Kenma sets Kuroo's quick into the space; Sho goes off the left foot and digs it**; Daichi sets Tanaka; off Lev's wrist: 10-12. **Tanaka: "THAT WAS A LIE! YOUR FACE LIED! FACE LIES!" "It was my feet, senpai." "FEET, FACE, SAME THING!... I KNEW YOU HAD IT IN YOU!"** Kenma looked at Sho's face for the 1st time for longer than a glance ("the boss do something the boss had never done").
+- **Lie 1 at 9-12:** Yamamoto's loud approach (every Nekoma hitter swings for real); **Sho shows the old dot deep (heels down, knees, hands still, "3 frames of nothing") with his weight on the inside of the left foot; Kenma sets Kuroo's quick into the space; Sho goes off the left foot and digs it**; Daichi sets Tanaka; off Yamamoto's wrist: 10-12. **Tanaka: "THAT WAS A LIE! YOUR FACE LIED! FACE LIES!" "It was my feet, senpai." "FEET, FACE, SAME THING!... I KNEW YOU HAD IT IN YOU!"** Kenma looked at Sho's face for the 1st time for longer than a glance ("the boss do something the boss had never done").
 - **Lie 2 at 14-15 (Kenma front row: the dump is back):** dot deep, weight forward; **ears: Kenma's set = soft double "*tk*", dump = 1 hand, 2 fingers, "a single tap on a door"; *Tap*; Sho 3 steps in, flat, 1 arm under it in front of Tsukishima's feet;** Tsukishima's 1 look, then a straight-down block on Yamamoto: 15-15. Tanaka: "FACE LIES!"
 - **Nekomata's timeout at 16-15, looking at Sho.** Daichi: "That 1's for you." Ukai: "He's going to change... Watch what he changes to." Kenma under a towel (as in May); **his eyes went to Sho's toes.**
 - **Lie 3 at 17-16 fails: Kenma reads the weight, sets Yamamoto into the corner Sho pretended to stand in and was leaving; finger, into the bench, 17-17.** "Ah." Ukai's 1-shoulder shrug (*You said.*). **Sho stopped lying;** honest circle; point for point.
 - **Ace: 4th whole set on the wing, 7 swings, 3 in** (1 off Kuroo's outside hand, 1 past Lev, 1 roll into a real empty chair). **19-19: Blind Spot roll into Fukunaga's empty chair; Yaku dug it: "Nekoma doesn't leave holes."** Kuroo laughed too. "Against Nekoma 3 of 7 was not bad at all."
 - **23-23:** Kuroo touched Tsukishima's quick; Daichi dug; Tanaka past Yamamoto: **24-23, Karasuno's 1st ever set point vs Nekoma.** Karasuno served; Kenma set Kuroo's quick past Tsukishima: 24-24. Yaku dug Tanaka; Yamamoto through Tsukishima, Noya fingertips: 24-25.
-- **The last rally:** Kai's dig high to Kenma (front row). Sho invited the eye ("*Then ask it nicely.*"; "*If you'd like to come...*"); ruled out: dump (Kenma a step and a half off the net, hips square left; never dumped from there), Kuroo decoy early, Lev late, Fukunaga out of position; left: Yamamoto and Kai. **The eye came and sat on the loudest thing on the court: Yamamoto (Kenma's bait); ghost: full real cross swing.** Sho went 2 steps back-left. ***Tap.* Kenma's left-hand dump from a step and a half off the net into the 1 piece every line in Sho's head had gone dark over, a meter in front of Tsukishima. 24-26.** "The eye hadn't lied. Yamamoto had swung. The map hadn't been stupid... Nobody except a setter who'd been watching you cross things out all morning." Ikkei's line. Sho smiling (not laughing).
+- **The last rally:** Kai's dig high to Kenma (front row). Sho invited the eye ("*Then ask it nicely.*"; "*If you'd like to come...*"); ruled out: dump (Kenma a step and a half off the net, hips square left; never dumped from there), Kuroo decoy early, Fukunaga out of position from covering; left: Yamamoto and Kai. **The eye came and sat on the loudest thing on the court: Yamamoto (Kenma's bait); ghost: full real cross swing.** Sho went 2 steps back-left. ***Tap.* Kenma's left-hand dump from a step and a half off the net into the 1 piece every line in Sho's head had gone dark over, a meter in front of Tsukishima. 24-26.** "The eye hadn't lied. Yamamoto had swung. The map hadn't been stupid... Nobody except a setter who'd been watching you cross things out all morning." Ikkei's line. Sho smiling (not laughing).
 - **Handshakes:** Kuroo: "Notebook." Yaku: "Your feet were good." Lev: "You lied with your FEET!" **Kenma (1 step too long, as in May): feet, then face. "You patched it." "Mostly."** The corner of Kenma's mouth.
 - **Hill:** Tanaka "FACE LIES!" every 10 meters; Hinata: "We'll beat them. At the Spring High. On the real court." "Yes." "You'll lie to him again." "He'll be ready for it." "Then lie better." Kenma on the step looking up the hill; Ukai at the gym door looking up, no wave.
 - **2 games left: Ubugawa, then Fukurodani last.**
@@ -4928,7 +4928,7 @@ Kageyama took it back and drank from it again, his eyes on Fukurodani's bench, a
 - **Lunch:** Ukai: "Last game. Fukurodani. Best of 3 sets... We haven't taken a single set off them all week... So that's the goal. 1 set." Hinata: "We'll take 2!" "Take 1 to start with." **"Last night. The new quick. How many?" Kageyama: "7. Out of 10." "Then you can use it."** (Ukai's ban, ch 38: 7 out of 10 in practice.) Hinata made a noise like a kettle.
 - **Set 1:** Asahi starts ("How's the back?" "Stiff. I can play." "You tell me." "I'll tell you."). Sho back-row sub for Asahi. **Sho passed Bokuto's 1st jump serve, no eye (feet 1st; "It hit his arms like a door"); Bokuto: "HEY! 13! YOU GOT MY SERVE!"** Asahi 2 jump serves in (Tanaka screamed; a Shinzen player dropped a ball). **Tsukishima stuffed Bokuto (his; Kuroo laughed from the side).** **The new quick (Hinata and Kageyama's, canon): 1st into the net, 2nd missed by a hair, 3rd at 18-22 LANDED: the ball "on a shelf" at the top, Hinata eyes open choosing, past Washio's fingertips.** Kageyama's face, then ears red. Sho saw how and didn't write it, even in 3 lines. Takeda crying; Ukai stopped blinking. Missed twice more; Washio blocked it once. 21-25.
 - **Set break: Asahi to Ukai, low: "Coach. My back... It went on the last jump serve. Small. I can feel it when I land... I'm telling you now. Before."** Bench quiet (Suga's towel; Noya quiet). Ukai: "Good. Sit down. Ice it. You're done for today." Kiyoko's ice pack. **"Kiyose. Asahi's spot. The whole spot, front row and back. Both sets. You hit."**
-- **Set 2 ("the best volleyball Sho had ever played in either life"; he knew it while it was happening):** front row right vs Bokuto: waited; soft block up; Noya, Tanaka scored. Hits: 1 at Komi (dug), 1 into the seam between Komi and the setter's spot (in). Serve at Konoha (Fukurodani's other wing, about to rotate front) to make him pass; Akaashi went to Bokuto; Tsukishima waited. 2 digs off Tsukishima's fingertips. Short calls; never Tsukishima's blocks. **New quick landed at 9-9, 14-13, 17-16 (theirs).** Bokuto sulk at 15-17: **"*Here!*" instead of "*Akaashi!*"; Akaashi heard it too and looked at Sho, then set the high slow ball; Bokuto came back.**
+- **Set 2 ("the best volleyball Sho had ever played in either life"; he knew it while it was happening):** front row right vs Bokuto: waited; soft block up; Noya, Tanaka scored. Hits: 1 at Komi (dug), 1 into the seam between Komi and the setter's spot (in). Serve at Konoha (Fukurodani's other wing, about to rotate front) to make him pass; Akaashi went to Bokuto; Tsukishima waited. 2 digs off Tsukishima's fingertips. Short calls; never Tsukishima's blocks. **New quick landed at 9-9, 14-13, 19-19 (theirs).** Bokuto sulk at 15-17: **"*Here!*" instead of "*Akaashi!*"; Akaashi heard it too and looked at Sho, then set the high slow ball; Bokuto came back.**
 - **24-23 → 25-23, the bad ball (the ace path payoff):** Tanaka off Konoha's fingers for 24-23; Karasuno served; Komi passed; Akaashi set Bokuto; Sho and Hinata blocked; Bokuto off Sho's fingertips deep; **Noya full-length 1 arm off the court; Daichi ran it down nearly into the wall and threw it back blind and high to the right antenna (Sho front right in Asahi's spot, facing Bokuto's left-side block); Kageyama on the floor from covering.** Sho already out wide (3 m off the net). **Hinata running for it too; "MINE!"; Hinata's flash of fury, then he went PAST it and up as a decoy 2 m inside the antenna ("a decoy, the best decoy in the country... made himself into 1 for somebody else"); Fukurodani's hands followed their eyes.** **The map had the line shut (Bokuto's outside hand, Komi shading) and the seam a ball's width between Bokuto's inside hand and Washio's** Full swing through the seam. **25-23.** (Previously Sho had only tooled; this is a power kill through a gap.) Landing: left knee over the toe without being told.
 - **After:** Hinata: "I GAVE IT TO YOU!... THE NEXT BAD 1 IS *MINE*!" "The next bad 1 is yours." Pile (Tanaka, Noya); Daichi laughing out loud. Bench: Asahi on his feet with the ice, fists up; Suga's towel; Takeda crying; Yachi filming the pile. **Ukai standing, arms at his sides, looking at Sho.** Bokuto: "AKAASHI! 13 GOT THE BAD 1! THROUGH ME! THROUGH MY HANDS!" "I saw, Bokuto-san." Akaashi's small nod.
 - **1 set all; the goal done.** Sho's hands shaking very slightly. **Kageyama held his bottle out sideways to Sho; Sho drank from it and gave it back. "Again," said Kageyama, to the court.**
@@ -5060,7 +5060,7 @@ He said it to the court. His hand stayed where it was.
 
 The whistle went.
 
-Sho walked back on with the cold of the bottle still in his fingers. At home, on the fridge, Mio's magnet was sitting on August. He'd seen it there the morning they left, the round red 1 from the bank, sitting on August.
+Sho walked back on with the cold of the bottle still in his fingers. At home, on the fridge, Mio's magnet was sitting on August. He'd seen it there the night they left, the round red 1 from the bank, sitting on August.
 
 ---
 
@@ -5595,11 +5595,11 @@ Mio put the 4 puddings in a row on the kitchen table and counted them with her f
 
 "I told you all of it. Every night."
 
-"The last game you didn't. You called on the bus and said *we lost, I'll tell you at home.*" She pointed the pudding spoon at him. "You're home."
+"The last day you didn't. You called on the bus and said *we lost, I'll tell you at home.*" She pointed the pudding spoon at him. "You're home."
 
 So he told her.
 
-He told her about set 2 1st. The bad ball. Hinata running past it and giving it to him. Then he told her about set 3. Bokuto blocking him and shouting about it. The ball he'd wiped off Bokuto's little finger into the chairs. Daichi-san's hand on his back. Tsukishima at 23-23. He told her about the last ball in order, the way he'd tell it to Coach: where everybody was, why it had to be Bokuto, why it had to be the line, where he'd stood. He told her the ball had come exactly where he'd been standing, and that his arms had been exactly where they had to be, and that it had gone into the bench anyway.
+He told her about Shinzen 1st, and Tanaka-senpai finishing it, and Nekoma, and the dump he'd crossed out, and Ubugawa. Then the final. He told her about set 2. The bad ball. Hinata running past it and giving it to him. Then he told her about set 3. Bokuto blocking him and shouting about it. The ball he'd wiped off Bokuto's little finger into the chairs. Daichi-san's hand on his back. Tsukishima at 23-23. He told her about the last ball in order, the way he'd tell it to Coach: where everybody was, why it had to be Bokuto, why it had to be the line, where he'd stood. He told her the ball had come exactly where he'd been standing, and that his arms had been exactly where they had to be, and that it had gone into the bench anyway.
 
 Mio listened with the spoon in her mouth. When he got to the bench, she took it out.
 
@@ -5615,19 +5615,19 @@ Scratch. She wrote it down. He could read it upside down: *ARMS. Monday. Room. 1
 
 "Eyes," said Mio.
 
-"Once. In the 3rd set. I asked it, and it came. It didn't hurt."
+"3 times. Once on its own, against Shinzen. I asked it twice. It didn't hurt."
 
 "Who on?"
 
-"Akaashi-san. Their setter."
+"Shinzen's setter. Nekoma's loud 1. And Akaashi-san, their setter, in the 3rd set."
 
-Scratch. *Eyes: 1. Asked. Didn't hurt. Setter.*
+Scratch. *Eyes: 3. 1 by itself. 2 asked. Didn't hurt.*
 
 "What does it look like?" said Mio.
 
 He looked up.
 
-She'd never asked that. All summer she'd asked *did it come* and *how long* and *where did it hurt*, and kept the score in a column in her notebook..
+She'd never asked that. All summer she'd asked *did it come* and *how long* and *where did it hurt*, and kept the score in a column in her notebook.
 
 She was looking at him across the table, with the pudding in 1 hand and the pencil in the other, waiting, the way Hinata had waited on the step.
 
@@ -5768,7 +5768,7 @@ Meta Vision: Half map (from Scanning)
 - **The Little Giant (user approved, used once):** on the step, yakisoba. "Tonight. You said." "I know." **"Matsumoto. Number 5." "Matsumoto who?" "Nobody's heard of him." "Was he good?" "He was good at 19... He wanted the bad ball... put his hand up and shout for it." "Like you did." "Where does he play now?" "He doesn't." "Why?" "His knee." "Where did you see him?" "In a gym in Sendai. A long time ago." "I'll remember him."** Sho had never said the name aloud in this life. **His left hand on his left knee (Mio's #3); he left it there.** Never explained.
 - **Home (next day):** bus 9 a.m., Karasuno a little after 3. **Sakanoshita: 4 custard puddings; "I owe them to my sister... I told her everything. Except once." Ukai: "Monday. 7 in the morning. The room under the old gym. Bring shoes you don't care about."** Meat bun still 120 ("I've lost a lot of weight. For the team." "It's 120, Kiyose."); bought 1.
 - **Mio at the genkan:** checked knees, forearms (bruise purple, dark edges: "Who did that?" "Bokuto-san."), then his eyes, his face in both hands (sticky, popsicle). "Okay." Mom: "Dinner before the bath." "You're thinner."
-- **Pudding bet paid: 4** (3 in the fridge behind the miso, *MIO* on each lid). "All of it": set 2's bad ball, then set 3 and the last ball in order; "So you were right." "And it went in the bench anyway." "Coach says my arms are too weak." Notebook: *ARMS. Monday. Room. 1990.* *Eyes: 1. Asked. Didn't hurt. Setter.* **1st time she asks what it looks like; Sho: quiet, "a bit of them goes on ahead... like a ghost"; Mio: "So you see it before... Like fast-forward."** (Never explained: the camcorder buttons in ch 34, Satoshi's rewind at 3 a.m.) **Mio's page: *FAST-FORWARD* in a box with 2 triangles; "That's its name now." "It doesn't need a name." "It does for my notebook... *Eyes* is a column already. This gets its own page."**
+- **Pudding bet paid: 4** (3 in the fridge behind the miso, *MIO* on each lid). "All of it" (the whole last day; "The last day you didn't."): Shinzen, Nekoma, Ubugawa, set 2's bad ball, then set 3 and the last ball in order; "So you were right." "And it went in the bench anyway." "Coach says my arms are too weak." Notebook: *ARMS. Monday. Room. 1990.* *Eyes: 3. 1 by itself. 2 asked. Didn't hurt.* **1st time she asks what it looks like; Sho: quiet, "a bit of them goes on ahead... like a ghost"; Mio: "So you see it before... Like fast-forward."** (Never explained: the camcorder buttons in ch 34, Satoshi's rewind at 3 a.m.) **Mio's page: *FAST-FORWARD* in a box with 2 triangles; "That's its name now." "It doesn't need a name." "It does for my notebook... *Eyes* is a column already. This gets its own page."**
 - **The magnet:** Spring High prelims in the autumn in Sendai; nationals in Tokyo in January (Daichi). **The fridge calendar is 1 year on 1 sheet (June, July crossed out in red, August half done); Mio's round red bank magnet moved from August to the bare fridge door below December: "January."** Dad: "Mm."
 - **Dad's pencil:** kitchen door frame, *183. Aug.* (April mark 1 cm lower; *Sho 4* at hip height). "Your sister wants to know how high you can reach. She wants to mark it on the garage wall." "I'll find some chalk." (Reach page seed.)
 - **The old notebook is full** (last line on the bus: *Bokuto: line at match point. Correct. Platform: no.*; Hinata asleep on his shoulder). The June page reread. **Mio's gift: a new pale blue notebook, *SHO 2* on the cover ("I had 3. That's the good 1." "Don't put sad things on the 1st page.").**
