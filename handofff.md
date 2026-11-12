@@ -53,6 +53,10 @@ Read this first, then the story bible's "Canon and divergence", "Soul sheet", "P
 - **Arc 4 planned (Nov 12):** 10 reports in `planning/arc4/` and the bible's new "Arc 4 outline" section (ch 46 to 67, 22 chapters; author's calls: "1 more" at Seijoh set 3; final role 1 set and pieces; the eye never reads blockers in Arc 4; Washijo's camp invitation is the last hook). Read the outline section and `planning/arc4/10_structure.md` section 5 (per-chapter specs) before each chapter.
 - **On hold (Nov 12, author):** Arc 4 waits. First, revise ch 1 to 22 (soul, meaningful conversations, errors, AI tells, pacing too fast; extend toward Arc 3 length). The prompt for the new chat is `NEW_CHAT_PROMPT.md`. After the revision, Arc 4 starts with: Next: start a new `arc4.md` with ch 46 "Shoes you don't care about" (Sho), Mon Aug 19: the weight room under the old gym at 7 a.m. (Ukai, Takeda's clipboard, goblet squat with a 10 kg plate; Sho crosses out 3 drills, Ukai crosses out 1 of Sho's; Ukai: "You're a wing spiker. Act like it."), then the garage wall with Mio and Dad's chalk: 318. Spec in `planning/arc4/10_structure.md` "Ch 46".
 
+- **Revision of ch 1 to 29 (Nov 12, author):** scope is Arc 1 and Arc 2 (ch 1 to 29), Arc 1 first. Plan: `planning/arc1/10_structure.md` (author said yes to every recommended decision in its section 7): Arc 1 grows from 15 to 22 chapters; old ch 16 onward renumber by +7 in 1 mechanical pass after the Arc 2 round (mapping in section 1). Research reports: `planning/arc1/01a` to `07`; shared brief and author directions: `planning/arc1/BRIEF.md`. Canon source: the wiki dump `haikyuufandomcom-20200223-history.xml.7z` (tools in `planning/tools/`). Author rules for the revision: canon is reference only; Arc 3 is the target style; no conversation the plot, POV or moment doesn't need, and no important one skipped; the golden rule.
+- **Revised:** ch 1 "Ball to the face" (Nov 12): Mon Apr 8; Sho stays at the gym door till the lights go off at 6, 1st toss for Hinata; dinner rebuilt (bet, "Red.", "Thank you" to Mom); porch light; *Ace*.
+- **Next (revision):** ch 2 "The wig" (Tue Apr 9), per `planning/arc1/10_structure.md` section 4 "Ch 2".
+
 ## User's rules (hard)
 
 - **He is an ace (User, Oct 30): "Do not forget that he is for ace position."** Receive/defense/eye work is the all-rounder layer of an ace. Strength training and every ace skill (approach, jump, arm swing, high bad ball, back-row attack, jump float, knee and shoulder armor) are planned in the bible's "The ace path" section. Keep at least 1 line of the ace in every chapter; the real program starts after camp (Arc 4).
@@ -69,7 +73,7 @@ Read this first, then the story bible's "Canon and divergence", "Soul sheet", "P
 - No em dashes. No negative parallelisms ("Not X. Y.", "didn't X, did Y", concession plus pivot), dialogue included. No banned AI words. Numbers as digits. Narration never names feelings.
 - Sho is never scared of his power. Rattled for 1 beat at most, then he analyzes and trains twice as hard.
 - Rivalries are healthy, and Tanaka's arc stays his. Ukai stays the coach: Sho tells him what he sees, Ukai decides.
-- Status card only when a rank changes, for readers only. Don't edit ch 1 and 2.
+- Status card only when a rank changes, for readers only. (The old "Don't edit ch 1 and 2" rule is lifted for the ch 1 to 29 revision.)
 - Keep usage reasonable, never trade away quality.
 
 ## Per-chapter workflow (mandatory)
