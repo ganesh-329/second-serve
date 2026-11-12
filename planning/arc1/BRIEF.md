@@ -72,3 +72,6 @@ The author found revised ch 1 lower in quality than the old one. Don't rewrite c
 
 ## Author rule (Nov 12, hard): "one" as a word
 Digits are for counts and measures ("1 year", "3 steps", "1 ball"). The word "one" stays a word whenever it isn't a count: pronouns and idioms like "the one", "this one", "the next one", "no one", "one of them", "the one thing", "one by one", "Can I hit one?". Never write "you're the 1 I'm going to beat".
+
+## Author direction (Nov 12, after reading revised ch 1 and 2): light touch
+Stretching made chapters worse and created errors. If a chapter doesn't need revision, leave it. Keep the old text, flow, humor and narration; change the conversations and fix real errors. Stretch only where a scene truly needs it.
