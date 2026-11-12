@@ -69,3 +69,6 @@ The author found revised ch 1 lower in quality than the old one. Don't rewrite c
 - **Keep Sho's inner voice alive.** The quips said OUT LOUD go; the wit, shamelessness and anime-brain INSIDE his head stay (Lloyd Frontera energy, 1 or 2 anime references a chapter). Plain dialogue, lively narration.
 - **No stretching for length.** Length comes only from scenes that matter. Don't stretch out or stretch in unnecessary things.
 - **Always evaluate.** Before a chapter goes in, judge it honestly against the old version: is it more readable, does it have more soul, is anything lost (humor, warmth, momentum)? If it's worse anywhere, fix that first.
+
+## Author rule (Nov 12, hard): "one" as a word
+Digits are for counts and measures ("1 year", "3 steps", "1 ball"). The word "one" stays a word whenever it isn't a count: pronouns and idioms like "the one", "this one", "the next one", "no one", "one of them", "the one thing", "one by one", "Can I hit one?". Never write "you're the 1 I'm going to beat".

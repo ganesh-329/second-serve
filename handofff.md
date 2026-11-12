@@ -64,6 +64,8 @@ Read this first, then the story bible's "Canon and divergence", "Soul sheet", "P
 
 ## User's rules (hard)
 
+- **"One" as a word (Nov 12, hard):** digits only for counts and measures ("1 year", "3 steps"). Pronoun and idiom "one" stays a word: "the one", "this one", "no one", "one of them", "one by one". Applied to revised ch 1 to 6.
+
 - **Readability (Nov 12, after the author read revised ch 1):** the revised ch 1 read worse than the old one. Rules from now: human-readable prose (no long and-chains, no micro-business), keep Sho's inner wit and shamelessness in narration (plain dialogue, lively head), no stretching for length, and evaluate every chapter against its old version before it goes in. Don't rewrite ch 1 to 4.
 
 - **He is an ace (User, Oct 30): "Do not forget that he is for ace position."** Receive/defense/eye work is the all-rounder layer of an ace. Strength training and every ace skill (approach, jump, arm swing, high bad ball, back-row attack, jump float, knee and shoulder armor) are planned in the bible's "The ace path" section. Keep at least 1 line of the ace in every chapter; the real program starts after camp (Arc 4).
