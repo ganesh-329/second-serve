@@ -55,7 +55,8 @@ Read this first, then the story bible's "Canon and divergence", "Soul sheet", "P
 
 - **Revision of ch 1 to 29 (Nov 12, author):** scope is Arc 1 and Arc 2 (ch 1 to 29), Arc 1 first. Plan: `planning/arc1/10_structure.md` (author said yes to every recommended decision in its section 7): Arc 1 grows from 15 to 22 chapters; old ch 16 onward renumber by +7 in 1 mechanical pass after the Arc 2 round (mapping in section 1). Research reports: `planning/arc1/01a` to `07`; shared brief and author directions: `planning/arc1/BRIEF.md`. Canon source: the wiki dump `haikyuufandomcom-20200223-history.xml.7z` (tools in `planning/tools/`). Author rules for the revision: canon is reference only; Arc 3 is the target style; no conversation the plot, POV or moment doesn't need, and no important one skipped; the golden rule.
 - **Revised:** ch 1 "Ball to the face" (Nov 12): Mon Apr 8; Sho stays at the gym door till the lights go off at 6, 1st toss for Hinata; dinner rebuilt (bet, "Red.", "Thank you" to Mom); porch light; *Ace*.
-- **Next (revision):** ch 2 "The wig" (Tue Apr 9), per `planning/arc1/10_structure.md` section 4 "Ch 2".
+- **Revised:** ch 2 "The wig" (Nov 12): Tue Apr 9; "I'd like to be. The ace."; the wig and Daichi's full speech; Kageyama's answer at the door; school day; drills ball by ball; "Teach me" (2 meat buns); the 3 on 3 set with Sho in neither team; "Saturday. Can I play?" "Ask me again when the other 2 are here."; Tanaka gets the key from Daichi in front of Suga; Suga's 20 minutes ("So why this?" "I don't know how to say it yet."); Tanaka's 5 a.m. tip; Hinata's jump.
+- **Next (revision):** ch 3 "Dawn reps" (Wed Apr 10), per `planning/arc1/10_structure.md` section 4 "Ch 3", plus the notes at the end of ch 2's Continuity block (Sho heard the 5 a.m. tip; Daichi gives him the spot when Tsukishima and Yamaguchi are there).
 
 ## User's rules (hard)
 
