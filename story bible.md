@@ -875,7 +875,7 @@ The doctor's limits from ch 28 lift as the eyes adapt: Brock string with Dad hol
 | **Jump** | The 4-step approach and its penultimate step; arm drive; low-volume plyometrics (box jumps; depth jumps only once the landing is perfect); approach jumps measured against a tape mark on the gym wall | **Spike reach**: about 318 cm now, 325 by the Spring High prelims, 335 in his 2nd year (Satoshi peaked at 340 in college). Mio's notebook gets a *REACH* page |
 | **Arm swing and hitting** | Bow and arrow, high elbow, contact at full reach in front of the hitting shoulder, wrist snap. **The same approach for line and cross** (he knows tells, so he builds an approach nobody can read: the mirror of Kenma and Akaashi reading him). Tool the block (wipe off the outside hand: he did it to Kuroo in arc 1). Roll shot and off-speed (Blind Spot). **The high ball out of system**, the ace's real job: kill the bad set when everything's gone wrong (Asahi's soul). **Back-row attack** (pipe and D), because he lives in the back row: pass, then attack from behind the 3 m line. Transition footwork after a dig | Kills off bad sets out of 10; hitting error rate; tooled blocks |
 | **Serve** | Float targeting now (Sogeking; Serve D to C at the end of Arc 3). **Jump float** in Arc 4, his own (Asahi owns Karasuno's jump spin serve; Yamaguchi owns the float). A jump spin serve in his 2nd year | Serve C to B in Arc 4 |
-| **The eye and the map, for attack** | Reading the block instead of the hitter: the blockers' hands a blink early (Arc 4 seed; the eye stays rare and uninvited there). At Inarizaki (Full awakening Lv1, on command, 1 player) the player can be a blocker. The map shows the hole; the arm finds it. "The ace who sees" | (story beats, not numbers) |
+| **The eye and the map, for attack** | Reading the block instead of the hitter (Arc 4 rule, Nov 12: the eye never reads blockers in Arc 4; the map reads the block; blocker reads wait for Inarizaki). Original seed: the blockers' hands a blink early (Arc 4 seed; the eye stays rare and uninvited there). At Inarizaki (Full awakening Lv1, on command, 1 player) the player can be a blocker. The map shows the hole; the arm finds it. "The ace who sees" | (story beats, not numbers) |
 | **Body and recovery** | Food (Mom's rice and onigiri, protein, "eat, that's training" from Ukai); sleep; growth (182 cm, still growing; about 185 to 187 by 3rd year); the knee rule above; eye rest stays as before | Height on the kitchen door frame (Dad's pencil) |
 
 **Who helps (each from their own want; protected moments stay with their owners).**
@@ -937,6 +937,117 @@ Canon venues (03_canon): trip 1 is a weekend of away games at **Fukurodani Acade
 - **Ch 36:** Reception D to C (written; Yaku's 10). The eye's "Adapting" stage stays prose-only; the card reads Partial awakening until ch 45.
 - **Ch 39:** Set E to D.
 - **Ch 45 (end of Arc 3):** Block E to D, Serve D to C, Mentality B to A. (Power stays C at the end of Arc 3; the ace path moves it to B by the end of Arc 4: see "The ace path".) Emperor's Eye: Conditioned (trait: Elite Observational Genius). Meta Vision: Half map (trait: Long-Term Strategic Scrutiny).
+
+## Arc 4 outline: Spring High Miyagi prelims (ch 46 to 67, planned Nov 12)
+
+Built from 10 planning reports in `planning/arc4/` (01 canon, 02 ace science, 03 tactics, 04 opponents, 05 power system, 06 soul, 07 training, 08 continuity audit, 09 divergence, 10 structure). Each chapter's full spec (wants, costs, conversations, protected moments, hook) is in `planning/arc4/10_structure.md` section 5. Where a report disagrees with this section, this section wins.
+
+### The author's calls (Nov 12)
+
+- **The 1st real "1 more" is at Seijoh, set 3, about 21-22** ("KAGEYAMA! 1 MORE!"), after Iwaizumi stuffs him twice, with Tanaka calling for the ball too. The final only echoes it ("Again?" "Yes.").
+- **Sho's role in the final: 1 set and pieces.** Bench in sets 1 and 2; all of set 3 in Tanaka's spot (still lost, 21-25); 2 back-row rotations for Asahi in set 4; a jump-float pinch serve and 1 rotation in set 5, where his platform finally holds on Ushijima. Off court for every canon ending.
+- **The eye never reads a blocker in Arc 4.** Hitters and setters only (servers count as hitters). Tendou is beaten once by the map's pattern break (the same approach for line and cross), then he beats Sho. Blocker reads wait for Inarizaki (Arc 5). This replaces the ace path's "the blockers' hands a blink early" seed.
+- **The arc's last hook:** Washijo asks about Sho for the Miyagi 1st-year camp; Takeda reports it; Hinata: "...And me?" "No." Arc 5 decides the rest.
+
+### Other decisions (structure report's picks; change them here if needed)
+
+- **Calendar:** weight room opens Mon Aug 19; 1st stage Sat Aug 31 (Ougiminami, Kakugawa); representative round Fri Oct 25 (Johzenji, Wakutani South), Sat Oct 26 (Seijoh), Sun Oct 27 (final). Sourced only by an official-timeline snippet (07); weekdays are the fic's.
+- **The jump float is Shimada's serve coming back** (Arc 1 cues, 3 jump floats in ch 17). Back in training Sep 3 with Yamaguchi there; match debut at Johzenji; proven at Wakutani set 3 (Serve C to B); absent from the Seijoh chapters (Yamaguchi's floaters are his); once in the final.
+- **Johzenji:** Suga in for Kageyama after the nosebleed, Narita in for Hinata; Sho on the bench beside Hinata.
+- **The knee:** Thu Sep 26 (week 6), early patellar tendon pain under the left kneecap (2/10 on stairs, no swelling, no giving way), 3 days after a practice match vs Date Tech (invented) on the Sep 23 holiday that pushes his jump count to 152. Told to Ukai at the gym door before practice. Ukai: "Show me." No praise, no clinic. No jumping for a few days, Spanish squat holds, Takeda logs morning pain numbers to 0/0 in about 8 days. It never comes back.
+- **Satoshi's home is Osaka** (his college gym, arc 1 ch 1); Sendai was an away tournament.
+- **Sub rules (FIVB):** a sub enters once per set, for 1 starter, and only that starter brings him back; starting a set is a lineup choice and costs no sub. Rotation order when Sho takes Asahi's spot stays Arc 3's.
+- **Canon still unconfirmed** (the wiki is blocked in this environment; see 01 and 10 section 11): final set 3 (18-25 or 20-25; the fic plays 21-25 anyway), when Tsukishima is hurt, Suga's double switch in the final, whether Daichi returns at Wakutani, Kakugawa/Johzenji set 2 scores.
+
+### Calendar
+
+| Week | Dates | Weight | What happens | Chapter |
+| --- | --- | --- | --- | --- |
+| 1 | Mon Aug 19 to Sun Aug 25 | CW | Weight room opens; garage wall 318; Tanaka finds the room; Asahi's back; Dad's 40 box; Tanaka's pointing drill 6/10 | 46, 47 |
+| 2 | Mon Aug 26 to Sun Sep 1 | 1L, then CW | 2nd term starts Mon 26 (1L); light taper; **Sat Aug 31: Ougiminami, Kakugawa**; Sun: 318 "same" | 48, 49 |
+| 3 | Mon Sep 2 to Sun Sep 8 | CW | Jump float back (Tanaka's chalk 4/10); 10 bad balls 3/10; Sunday behind Shimada Mart | 50 |
+| 4 | Mon Sep 9 to Sun Sep 15 | **1L** | Culture festival Sat-Sun 14-15 [design, optional]; Sun: 320 | opening of 51 |
+| 5 | Mon Sep 16 (holiday) to Sun Sep 22 | CW | Landings on tape earn depth jumps; Kageyama's high ball; Asahi's feet; 321 | 51 |
+| 6 | **Mon Sep 23 (Equinox)** to Sun Sep 29 | CW x3 | Practice match vs Date Tech [invented]; jump ledger 152; **Thu Sep 26: the knee**; Fri on: Takeda's clipboard | 52, 53, 54 |
+| 7 | Mon Sep 30 to Sun Oct 6 | inside 54 | Stairs 0; approach jumps back; Dad's pencil *184. Oct.* (Tue Oct 1); clubs stop Fri Oct 4 | 54 |
+| 8 | Mon Oct 7 to Sun Oct 13 | **1L**, then CW | Midterms Tue 8 to Fri 11 (1L); Fri night Nordics on the tatami; **Sat Oct 12: Ikkei** | 55 |
+| 9 | Mon Oct 14 (Sports Day) to Sun Oct 20 | CW | High bad ball 6/10 on the whiteboard; Asahi; "That's 10. Go home."; 323 | 56 |
+| 10 | Mon Oct 21 to Thu Oct 24 | 1L, then short CW | Taper (1L); **Thu: porch light 325**; the night before | 57 |
+| Prelims | Fri Oct 25 to Sun Oct 27 | CW x9 | Johzenji, Wakutani South; Seijoh; Shiratorizawa | 58 to 66 |
+| After | Sun Oct 27 night to Mon Oct 28 | CW | Home; the magnet; Sakanoshita | 67 |
+
+### Sho's minutes (all under the sub rules)
+
+| Match | Set | How Sho is on court | For | Enters / leaves (about) | Rallies | Ukai's reason (said on the page) |
+| --- | --- | --- | --- | --- | --- | --- |
+| Ougiminami | 1 | Bench | | | 0 | |
+| | 2 | **Starts the set** | Tanaka | Whole set | about 40 | "You're playing Kakugawa at 2. I want your legs." (to Tanaka, on the bus) |
+| Kakugawa | 1 | Sub, front row, 2 rotations | Tanaka | 9-10 to 15-14 | about 12 | Kakugawa's block has started jumping with Tanaka's approach |
+| | 2 | Bench | | | 0 | |
+| Johzenji | 1 | **Pinch serve, then stays** 2 back-row rotations | Tanaka (at position 1) | 14-12 to 19-16 | about 12 | "Your serve. 3 of them if you can." Tanaka back at the front row |
+| | 2 | Bench (Suga and Narita's stint) | | | 0 | The setter unit is Suga and Narita's |
+| Wakutani South | 1, 2 | Bench | | | 0 | Ukai sends Ennoshita for Daichi. Changing 2 things would tell the team he's panicked |
+| | 3 | Sub at position 1 (serves), then back row | Asahi | 10-11 to 20-20 | about 18 | Wakutani have found the hole in receive without Daichi; Sho takes passing off Ennoshita so Ennoshita can talk |
+| Seijoh | 1 | Sub, back row | Asahi | 11-12 (Oikawa to serve) to 18-17 | about 10 | Oikawa's serve; his best reader of servers |
+| | 2 | Sub, front row, 2 rotations | Tanaka | 15-16 to 21-22 | about 10 | Matsukawa and Iwaizumi have Tanaka's timing |
+| | 3 | Sub, back row | Asahi | 14-15 to 23-23 | about 16 | Asahi's back-row rotations; Seijoh serving Noya's side |
+| Shiratorizawa | 1, 2 | Bench | | | 0 | 3rd match day in 3 days; a 5-setter possible; Ukai holds his 13th player "like a timeout" (09) |
+| | 3 | **Starts the set** | Tanaka | Whole set | about 45 | Tendou has had Tanaka since set 1; Tanaka watches him from the bench for a set |
+| | 4 | Sub, back row, 2 rotations | Asahi | 13-14 to 19-19 | about 12 | Ushijima's serve rotations; a 3rd passer |
+| | 5 | **Pinch serve, then 1 rotation** | Asahi (at position 1) | 4-3 to 7-6 | about 6 | The jump float at Goshiki's seam; then Asahi back for the front row |
+
+Tanaka starts every match. Sho starts only 2 sets, both for a reason a reader can repeat. Every canon ending has him off court or in the back row with nothing to do.
+
+### Chapter spine
+
+| Ch | Title | POV | Date | Canon | Eye / map | Ace beat | Card |
+| --- | --- | --- | --- | --- | --- | --- | --- |
+| 46 | Shoes you don't care about | Sho | Mon Aug 19 | gap after ch 97 to 98 | None | The room; goblet 10 kg; 318 | |
+| 47 | The light was on | Sho | Wed Aug 21 to Sat Aug 24 | gap | Map: Tanaka's pointing drill 6/10 | Tanaka's numbers; Asahi's bad balls; the 40 box | |
+| 48 | Group 4 | Sho | Sat Aug 31 a.m. | 99 to 101, Ougiminami | 1 invited, thin; **Field map forms (Kagura Shingan)** | His 1st official full set; 1 OOS kill | **1** |
+| 49 | Nobody measured it | Sho | Sat Aug 31 p.m. to Sun Sep 1 | 102 to 104, Kakugawa | 0 to 1 noisy ghost; map on the block's shape; Shunpo | Stuffed by 2 m; high hands; **the tipped bad ball** | |
+| 50 | Behind Shimada Mart | Sho | Tue Sep 3 to Sun Sep 8 | gap | None | Jump float back, 4/10; bad balls 3/10 | |
+| 51 | Land it | Sho | Mon Sep 16 to Sun Sep 22 | gap | None (Yachi's tape: the head tilt) | Landings 10/10; the high back-row ball; 321 | |
+| 52 | Tanaka starts | Sho | Mon Sep 23 | gap (fic practice match) | Map vs a read block | High hands vs Aone; ledger 152 | |
+| 53 | Before practice | Sho | Thu Sep 26 | gap | None | **The knee**, told before practice | |
+| 54 | Clipboard | **Takeda** | Fri Sep 27 to Fri Oct 4 | gap | None | The log; numbers to 0; squat held at 40 | |
+| 55 | Ikkei | Sho | Fri Oct 11 to Sat Oct 12 | gap | Map vs 15 children | Nordic to the floor; Ikkei says "ace" | |
+| 56 | 10 bad balls | Sho | Mon Oct 14 to Sun Oct 20 | gap | Field map snapshot on the penultimate step | **6/10 on the whiteboard**; "That's 10. Go home."; 323 | |
+| 57 | Porch light | Sho | Thu Oct 24 | gap | None (20 min of tape, shut at 9) | 325 | |
+| 58 | Playground | Sho | Fri Oct 25 a.m. | ~108 to 115, Johzenji | 1 doubled ghost, wrong; the freeze costs a point | **Jump float debut (Mirage Tempo)**; pipe late, then in; he laughs | |
+| 59 | Ennoshita's set | Sho | Fri Oct 25 p.m. | ~116 to 125, Wakutani South | 0; map on where tools go | 4-serve run; **swings at the bad ball (Getsuga)** | **2** |
+| 60 | Tall-kun | Sho | Sat Oct 26 a.m., set 1 | ~126 to 148, Seijoh | 1 on Oikawa, late | Passes Oikawa; aced by his own tell | |
+| 61 | The hand stays there | Sho | Seijoh set 2 | | Map vs Iwaizumi's promise | Chin bait once; stuffed at 21-21 | |
+| 62 | 1 more | Sho | Seijoh set 3, evening | | 1 on Kyoutani, noisy | **"KAGEYAMA! 1 MORE!"** | |
+| 63 | The magnet | **Mio** | Sun Oct 27, sets 1 and 2 | ~149 to 190, final | Seen only as behavior, from the stands | REACH page: *USHIJIMA?* at the arrow | |
+| 64 | Guess | Sho | Final set 3 | | Invited on Shirabu, 3 good ones; "Not him!"; Kage Bunshin | His full set vs Tendou; stuffed by Ushijima | |
+| 65 | Arms | Sho | Final set 4 | | Mid-rally ask, late | "Again?" "Yes." Through Ohira's hands | |
+| 66 | 21-19 | Sho | Final set 5 | | 1, on its own, no lead; Tekkai | Jump float; the dig holds | |
+| 67 | January | Sho | Sun Oct 27 night to Mon Oct 28 | (Arc 5 opens) | Mio's columns 3, 1, 1 | *Arms* half ticked; *5.* | **3** |
+
+### Power rules for Arc 4 (from 05)
+
+- The Conditioned eye: about 1 blink ahead, 1 player, hitters and setters only, never where the ball goes after contact. Comes on its own mostly on defense and receive when he's settled and the player is studied; invited only in dead time between rallies, except once in the final (mid-rally, and it comes too late).
+- It never hurts. In a long match its cost is time: the ghost arrives later and thinner (final: a full blink in set 3, thin by set 4, almost no lead in set 5). No lead numbers in prose.
+- **Field map Lv1 forms at Ougiminami** (ch 48): both sides of the net from above, updated every touch, the present only (predicting is Lv2). It freezes while the eye fires; it shrinks back to Half map when he's tired (his own side goes first).
+- The eye loses on the page in every match after Ougiminami. If a draft has the eye winning a big point, rewrite it so the arms win.
+- Weapons (private names, each used once in prose): Kagura Shingan (Field map, ch 48), Shunpo (dig into a full approach, ch 49), Mirage Tempo (his jump float, ch 58), Getsuga (back-row attack, ch 59), Kage Bunshin (same approach for line and cross, ch 64), Tekkai (the platform that holds, ch 66). The "1 more", the knee and the bad ball never get names.
+
+### Status cards
+
+- **Ch 48:** Meta Vision Half map to Field map (Lv1).
+- **Ch 59:** Serve C to B; height 183 to 184 (Dad's pencil, Oct 1).
+- **Ch 67 (end of Arc 4):** Power C to B. Everything else stays (the eye stays Conditioned for Inarizaki; Jump B; Reception C; Block D; Set D; Mentality A). No card for the knee.
+
+### POV chapters
+
+- **Ch 54 Takeda** (the knee week as numbers on a clipboard, while he hunts for Shiratorizawa tape) and **ch 63 Mio** (final sets 1 and 2 from the stands, Sho on the bench, the magnet in her pocket). 9 chapters apart, never adjacent.
+
+### Guardrails for Arc 4
+
+- Protected moments stay with their owners: Hinata's block-out on Hyakuzawa; Kageyama's nosebleed and the Suga/Narita stint; Ennoshita's leadership at Wakutani; Kyoutani's debut; Yamaguchi's floaters vs Seijoh; Kageyama and Oikawa's setter story and Oikawa's last match; Tsukishima's Ushijima blocks and his injury; Hinata vs Ushijima; Asahi vs Ushijima; the last ball of every match.
+- Sho's attack efficiency never beats Asahi's. Every point Sho helps win costs something in the same match. Tanaka gets his own answer every time Sho comes off.
+- Never say aloud: Satoshi, Matsumoto (used once, in ch 45), the ACL, any link between "1 more" and Asahi's line, "fast-forward" against rewind, why Dad builds the boxes, anything about hands.
 
 ## Dialogue playbook (rewritten Oct 30)
  
