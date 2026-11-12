@@ -3128,7 +3128,7 @@ Tsukishima moved. He got 1 hand on it and the ball went up behind him, and Sho r
 
 18-21.
 
-He came back to his spot with his palm stinging and his own mistake in his mouth. Tsukishima had done everything right on that 1. Sho had hit it out.
+He came back to his spot with his palm stinging and his own mistake in his mouth. Tsukishima had done everything right on that one. Sho had hit it out.
 
 Hinata served into the net. 19-21. Then Tanaka came in on the left once more, and Sho looked at the shoulders, and they were square.
 
