@@ -62,3 +62,10 @@ The full Haikyuu fandom wiki (Feb 2020) is extracted as plain wikitext, 1 file p
 ## Author direction (Nov 12, third message)
 - **Canon is reference only.** This is a fanfic: things change because of Sho. Use canon to get people, voices, rules and the big results right, then let matches, rallies, scores and scenes near Sho bend. Don't flag a divergence as an error just because canon went differently; flag it only if it breaks logic, a voice, a protected moment, or a later chapter.
 - **Arc 3 (ch 30 to 45) is the author's preferred style.** That's why ch 1 to 29 are being revised: bring them up to Arc 3's soul, voice, pace and length.
+
+## Author direction (Nov 12, after reading revised ch 1): readability and soul
+The author found revised ch 1 lower in quality than the old one. Don't rewrite ch 1 to 4, but don't repeat the mistakes:
+- **Human-readable prose.** No long "and... and... and" chains; vary sentences; let paragraphs flow. Cut micro-business (every hand, foot, object, step) unless it carries meaning.
+- **Keep Sho's inner voice alive.** The quips said OUT LOUD go; the wit, shamelessness and anime-brain INSIDE his head stay (Lloyd Frontera energy, 1 or 2 anime references a chapter). Plain dialogue, lively narration.
+- **No stretching for length.** Length comes only from scenes that matter. Don't stretch out or stretch in unnecessary things.
+- **Always evaluate.** Before a chapter goes in, judge it honestly against the old version: is it more readable, does it have more soul, is anything lost (humor, warmth, momentum)? If it's worse anywhere, fix that first.
