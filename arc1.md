@@ -2204,7 +2204,501 @@ The page turned.
 - **Eye / Meta Vision:** eye dormant. Film brain: Kageyama's 2-step feed.
 - **Next:** ch 5 "The King", Sat Apr 13, 8 a.m.: Daichi knew about morning practice; Kiyoko; the 3v3 set 1 to 20-16.
 
-## Chapter 5: Eyes closed
+## Chapter 5: The King
+
+At 7:40 on Saturday the car was outside with the engine running.
+
+Dad was in the driver's seat with the paper folded on the passenger seat. He moved it to the back when Sho opened the door.
+
+It was a 6-minute walk. It was a 2-minute drive, with the lights. Dad drove it with the radio off and both hands on the wheel, and pulled up at the school gate behind a delivery van.
+
+"Thanks, Dad."
+
+"Mm."
+
+When Sho looked back from the corner of the main building, the car was still there. Then it pulled away, a little under the limit.
+
+---
+
+Saturday was gray and cold, and the whole club was in the Second Gymnasium by 8.
+
+Sho changed into the new shoes on the step. They squeaked on the boards, high and clean, and he stood in the doorway for a few steps just to hear them.
+
+Daichi clapped once. He was smiling his normal, pleasant smile.
+
+"It's good that you all got so much morning practice in this week," he said.
+
+The gym went dead quiet.
+
+Tanaka went the color of paper. Hinata made a small squeak. Sugawara studied the ceiling.
+
+Daichi let it sit for 3 full seconds. Then he picked up a ball. "Warm-ups. 10 minutes."
+
+"He knew," Tanaka whispered. "He knew the WHOLE TIME."
+
+"He's Daichi," said Sugawara.
+
+A girl walked past the open doorway with a clipboard against her chest. Dark hair, glasses, a beauty mark by her mouth. She didn't come in. Tanaka turned to follow her with his whole body, from the feet up, and went on looking at the empty doorway after she'd gone.
+
+"Kiyoko-san," he said, to nobody. "Our manager. She'll come for the 2nd set if her meeting finishes." He put a hand on his chest. "She has to come for the 2nd set."
+
+At 8:10 Daichi called them in and said the rules once. 3 on 3 on the full court. Sets to 25, best of 3, rally scoring. Each side serves in a fixed order. No positions, no back row: anybody blocks, anybody hits.
+
+"And you know what's riding on it," he said, to Kageyama.
+
+Kageyama nodded once.
+
+If Hinata's side lost, Kageyama didn't set while the 3rd years were here. Sho had promised, 2 days ago at 6:20 in the morning, to try as hard as he could to make that happen. He'd meant it then. He looked at Kageyama's face now and found he still meant it, which wasn't comfortable.
+
+They went to their sides.
+
+Tsukishima took the middle at the net. Yamaguchi stood a step behind him, to the right, where a setter would. Sho went to the back right corner, the spot Tsukishima had shown him with his chin, and stood in it like a man waiting to be told he'd parked in the wrong place.
+
+Across the net, Hinata was bouncing on his toes on the left. Tanaka was on the right, rolling his shoulders, already grinning. Kageyama had his hands at his sides.
+
+Tsukishima looked at him through the net.
+
+"Good luck, King," he said. "Try not to toss to nobody."
+
+Kageyama's shoulders went tight.
+
+Sho looked at the side of Tsukishima's face: calm, bored, polite, and very good at this. He wondered who had taught this kid that caring about anything was the most embarrassing thing a person could do. Somebody had. You didn't get that good at it on your own.
+
+---
+
+Sho served 1st.
+
+He stood behind the end line and bounced the ball twice. The serve was the 1 thing nobody could hide him from. He threw it up and hit a standing float, flat, no spin, which was what this body could do so far. It went over high and wobbling, deep, at Hinata.
+
+Hinata got his arms on it. It went up toward the net, and Kageyama was already under it. He looked at Hinata for a blink, then turned his shoulders and set high and outside, to Tanaka.
+
+Tanaka came in like a truck with no brakes. Tsukishima slid across and went up in front of him, and Tanaka hit it straight down the line, past Tsukishima's right hand, a hand's width inside the sideline.
+
+0-1.
+
+Tanaka pulled his shirt over his head and swung it round in circles. "HOW'S THAT, TSUKISHIMA?!"
+
+"Put your shirt on," said Daichi.
+
+Tanaka put his shirt on.
+
+Sho had watched the arm. High and late, and at the end the wrist went over the top: the snap he'd been flicking at the wall for 3 mornings. Tanaka had used it on the line, the opposite of how he'd taught it. It had gone in anyway. Teachers.
+
+Then Kageyama went back to serve, and Sho found out what it was to be a target.
+
+The serve came over flat and hard and dropping, straight at the back right corner. Straight at the cone.
+
+Sho had been told to get out of the way. His feet tried. His arms came up on their own, because 12 years of passing didn't care what a middle blocker had told him on Friday, and the ball hit his forearms on the way past and went off them into the wall.
+
+0-2.
+
+"Nice serve," said Sho.
+
+He meant it. It had been a lovely serve. Kageyama frowned at him as if he'd been insulted in a language he didn't speak.
+
+The next 1 came at the same corner. Sho kept his arms down this time and stepped out of its way, and Yamaguchi came across from the middle and passed it, high and a meter off the net. Tsukishima set it out to the left, a soft, high ball, not much of a set.
+
+Sho came in, and he was early. He knew it as he left the floor, the way you know a stair isn't there. At the top the ball was still above him. He had to hit it on the way down, short-armed, and it went over off the heel of his hand like a tired bird.
+
+Hinata dove and dug it. Kageyama set Tanaka. Tanaka hit cross off Tsukishima's fingertips and out.
+
+0-3.
+
+Sho stood where he'd landed while Tanaka shouted at the ceiling.
+
+He'd been early all week, and he'd known why, and he'd been fixing the wrong thing. At 19, in Osaka, he'd jumped 68 centimeters on a good day with a knee that was getting ready to go. Every approach he'd ever run was timed for those legs. This body went higher and got up faster, and his head was still starting the clock for the old 1.
+
+So: wait longer. Watch the ball go up. Watch it stop. Count 1. Then go.
+
+He'd said those exact words, in his head, to 100 kids on tape. It turned out that doing it felt like holding your breath while somebody counted very slowly.
+
+Tsukishima came past him on the way back to the net.
+
+"That 1 you were supposed to leave," he said.
+
+"My arms went."
+
+"Then don't take them," said Tsukishima.
+
+---
+
+Kageyama served at the corner again.
+
+Sho clasped his hands behind his back. It was a ridiculous way to stand on a volleyball court, like a man looking at a painting in a museum while somebody fired a cannon at him. He stepped left. The ball went past his hip, and Yamaguchi, who'd started across the moment Kageyama tossed, got there and passed it up.
+
+Tsukishima set a high ball over the middle. Yamaguchi came in under it and pushed it over with both hands into the empty space behind Tanaka. Kageyama got a hand to it on the floor, and it went into the net.
+
+1-3.
+
+Yamaguchi stared at the ball in the net. "Did that count?"
+
+"It counted," said Sugawara.
+
+Yamaguchi's serve. A careful float, deep, at Hinata, because by now everyone on Sho's side had worked out where the hole on the other side was. Hinata's elbows bent. The ball went off his left forearm and into the bleachers, exactly the way it had gone off it into Sho's face on Monday.
+
+2-3.
+
+"RECEIVE IT PROPERLY!" said Kageyama.
+
+"I'm TRYING!"
+
+Yamaguchi served at him again. This time Tanaka slid across in front of Hinata and took it himself, and Kageyama set him, and Tanaka hit cross into the floor.
+
+2-4.
+
+Sho watched Tanaka walk back to his spot. Nobody had told Tanaka to cover Hinata. He'd just stepped in front of a 1st year who was about to get hit, the same way Yamaguchi kept stepping in front of Sho. It was the only plan either side had, and only 1 side had planned it.
+
+---
+
+Tanaka served, a hard topspin ball at Yamaguchi. Yamaguchi passed, and Sho hit Tsukishima's set into the net.
+
+2-5.
+
+Tanaka served again. This time Kageyama got a free ball and set Hinata at last, a fast ball out to the left, and Hinata came in and went up. Up, and up, so high that Daichi's eyebrows went up with him on the sideline. Sho thought, without dignity, of Rock Lee taking the weights off his legs.
+
+Tsukishima didn't jump early. He waited, went up late, and stood in the air in front of Hinata with his hands over the net, tall and patient. The ball hit his palms and came straight down on Hinata's side.
+
+3-5.
+
+"Amazing jump," said Tsukishima, landing. "Shame about the rest."
+
+Hinata glared up at him with his mouth shut, which for Hinata was a kind of scream.
+
+Tsukishima's serve. He floated it at Hinata, lazy, and Hinata passed it straight back over the net on the 1st touch. Tsukishima, at the net, reached up and put it down. 4-5. He floated another, and Tanaka took it, and Kageyama set Tanaka, and Tanaka hit it 2 meters long. 5-5.
+
+Tsukishima's next float went into the net.
+
+5-6.
+
+Hinata served. It barely cleared the tape and went straight to Yamaguchi, who passed it, and Tsukishima set Sho, and Sho, counting, was a little less early and hit it into Tanaka's hands. Hinata got under the ball when it came back over, and Kageyama set him the fast ball to the left again.
+
+The same set, the same jump, the same hands. Tsukishima blocked it straight down.
+
+6-6.
+
+"Tsukki!" said Yamaguchi. "Nice block!"
+
+"It wasn't hard," said Tsukishima.
+
+He pushed his glasses up and said, loud enough to carry, "The King's toss. Confuses the other team and his own team too. Very efficient."
+
+Hinata turned round to Kageyama. "Is that what it was like? In middle school? What he said last night?"
+
+Kageyama looked at the ball in his hands.
+
+"It's true," he said.
+
+His voice came out low and flat.
+
+"The semifinal. I set, and I turned round, and there was nobody there. The ball just hit the floor behind me." He turned the ball over once. "A toss nobody's there for. That's what scares me."
+
+Sho saw Kageyama's face before Kageyama could fix it.
+
+Hinata looked at him for 2 seconds. Then he shrugged. He actually shrugged, as if Kageyama had told him it might rain later.
+
+"That's middle school," said Hinata. "I'm here now."
+
+He went back to his spot on the left and crouched.
+
+Kageyama stood holding the ball. Then he rolled it under the net to Sho, whose serve it was.
+
+---
+
+Sho's float went at Hinata, and Hinata's pass went into the net. 7-6.
+
+He served at Hinata again. Hinata passed it off his chest, short, and Kageyama ran under it near the net. Sho, who'd come forward after his serve, watched Kageyama's hands come up to set.
+
+At the last moment, Kageyama's right hand pushed the ball over the net, soft, into the floor right in front of Sho's feet.
+
+7-7.
+
+A dump. The setter's 2nd-ball attack. Sho had seen 1,000 of them and here he was, a meter from this 1, watching the hands for a set that was never coming. Kageyama had known he'd watch the hands. Kageyama had probably known it before Sho had.
+
+"Tch," said Tsukishima.
+
+Kageyama's serve clipped the tape and fell back on his own side. 8-7.
+
+Yamaguchi served, and Kageyama dumped again, the other way, to the left. This time Sho moved, and was late. 8-8.
+
+Tanaka's serve came at the corner, hard. Tsukishima got to it at full stretch with his glasses going crooked, and Yamaguchi set Sho, and Sho counted 1, and went, and was early anyway. His legs had heard *go* on the 1st sound. He hit it too straight and it went out past the end line into the wall.
+
+8-9.
+
+Tanaka served again, and Tsukishima passed, and Yamaguchi set Sho again, and this time Tanaka was so busy watching Sho that Tsukishima tipped the set over the net himself into the space Tanaka had left. 9-9.
+
+Tsukishima's float drifted wide. 9-10.
+
+Hinata served, and the rally went on and on, and finally Kageyama gave Hinata a high, slow set. Hinata went up for it so hard and so early that he hit it on the way up, and it sailed over Sho's side and the back line and banged off the wall.
+
+10-10.
+
+"Too early," said Kageyama.
+
+"I KNOW."
+
+Sho, at the back of his own court, nearly laughed. The kid was early for the same reason he was. A body that went faster than the plan for it.
+
+His serve. Tanaka passed it, and Kageyama set him high on the right, and Tanaka hit it hard and deep into the back right corner of Sho's court. Behind Sho. Where Sho was standing with his hands behind his back because he'd been told to.
+
+The ball hit the line.
+
+10-11.
+
+"In," said Sugawara.
+
+Tsukishima looked at the mark on the floor, then at Sho, then at Tanaka. "Fine," he said to Yamaguchi. "You take more of the corner. I'll take more of the middle."
+
+Kageyama served at Yamaguchi this time, and Yamaguchi passed it beautifully by accident, and Tsukishima dumped it on 2, the same trick Kageyama had used, into the floor in front of Hinata. Kageyama looked at him through the net. Tsukishima looked back, bored.
+
+11-11.
+
+---
+
+Yamaguchi's serve. Hinata passed it off his chest, short. Kageyama set Tanaka on the left. Tanaka hit cross, and Tsukishima got 1 hand on it, and it went up off his fingers, high, into the middle of Sho's court.
+
+Yamaguchi got under it. His set came off his fingers in a nervous, high rainbow, out toward the left antenna. The kind of set Friday's 10 minutes had been for.
+
+Sho waited.
+
+He watched it go up. He watched it slow. His whole body said *go*, loud, and he let it say it, and he counted 1.
+
+Then he went.
+
+Left. Right, left. The long step went under him and the shoe gripped. Plant. Up.
+
+The ball was right there.
+
+Tanaka was up in front of him, alone, both hands up, big and a little late. His right hand was nearer the antenna than it should have been. Sho had seen that hand on tape on 50 different blockers, and his arm knew the answer before he did: hit flat and hard into the outside of it, toward the antenna, and let the hand do the rest.
+
+He swung.
+
+The ball cracked off the tips of Tanaka's fingers, spun away sideways, and flew out past the antenna into the bleachers.
+
+12-11.
+
+It was the 1st ball he'd hit right in this life that counted for anything. His palm stung. His heart was going like it wanted out. Somebody should have filmed that. He'd have watched it at quarter speed 3 times and then shown it to his mother.
+
+"Nice kill!" yelled Yamaguchi, and looked startled, as if somebody else had yelled it.
+
+Tanaka shook out his hand and stared at it. Then he looked at Sho through the net, and his face went from shock to outrage to something huge and delighted.
+
+"You used my hand," said Tanaka. "You USED it."
+
+"Yes, senpai."
+
+"Who taught you that?"
+
+Sho thought of a grumpy setter in Osaka who'd shouted it at him every day for a month when he was 18.
+
+"Somebody," he said, and bowed.
+
+Yamaguchi served again. Hinata passed it into the net. 13-11. Yamaguchi's next serve hit the tape and fell back at his own feet, and he apologized to the floor, and then to Tsukishima. 13-12.
+
+Tanaka served. Tsukishima passed, Yamaguchi set Sho, and Sho hit it at the middle of Hinata's side. Hinata dug it. It went up perfectly, the best pass he'd made all morning, and Kageyama set Tanaka on the left.
+
+Sho went up to block him. He was early, the same mistake on the other side of the net, and Tanaka knew it. Tanaka had been waiting all week for it. He hung in the air, let Sho start to come down, and hit cross over Sho's sinking hands into the empty floor.
+
+13-13.
+
+Tanaka landed and pointed at him with both index fingers. "THAT'S how it's done, rookie!"
+
+"Please teach me that 1 too, senpai."
+
+"STOP ASKING NICELY," said Tanaka, and went back to serve.
+
+---
+
+He served at the corner. Sho got out of the way. Yamaguchi passed short, and it went over the net on the 1st touch as a free ball. Hinata dug it, and Kageyama set Tanaka on the left again.
+
+Sho watched Tanaka come in. Shoulders open. The left shoulder already turning toward the middle as he planted. He'd seen that shoulder on 10,000 hitters.
+
+"Cross," said Sho to Tsukishima, beside him at the net. "He's going cross."
+
+Tsukishima set up on the line.
+
+Tanaka hit cross. Exactly where Sho had said, into the empty floor.
+
+13-14.
+
+Tsukishima walked back to his spot. Sho walked back to his. It would have been very easy to say *I told you.* He found he could live without it.
+
+Tanaka's next serve came at Tsukishima, who passed it, and Yamaguchi set Sho, and Sho counted and went and was only a little early. He hit it hard at Hinata's outside hand. It went off the hand and out.
+
+14-14.
+
+Tsukishima served, a float at Tanaka. Tanaka passed it. Kageyama set him again on the left, high.
+
+Sho watched him come in. Shoulders square to the net this time. Hips square. Nothing turning.
+
+"Line," said Sho, low.
+
+Tsukishima kept his eyes on Tanaka. When he went up, though, he was half a step to the outside.
+
+Tanaka hit line, hard, straight into Tsukishima's hands, and the ball came down on Tanaka's side like something dropped off a roof.
+
+15-14.
+
+Tsukishima landed, pushed his glasses up with 1 finger, and walked back to his spot.
+
+"Tsukki!" Yamaguchi's whisper carried to the bleachers. "You listened to him!"
+
+"I didn't."
+
+"You moved!"
+
+"I was going to move anyway."
+
+"Sorry, Tsukki!"
+
+Tsukishima served again, and Tanaka took it and killed it off Yamaguchi's arms. 15-15. Hinata served, and Yamaguchi set Sho a ball that was almost good, and Sho turned his shoulders to the line and hit cross instead, late, with a quarter of Tanaka's snap, and it landed inside the far sideline. 16-15.
+
+His serve. Hinata passed it straight to Sho's side on the 1st touch, and Tsukishima put it down. 17-15.
+
+---
+
+He served at Hinata again, and Tanaka slid across and took it instead. The pass went to Kageyama high and easy.
+
+Kageyama got under it, and Sho, coming forward, saw his hands hitch: a tiny thing, half a beat, and his shoulders start to turn toward Tanaka on the left.
+
+Then Hinata came in behind him from nowhere, shouting.
+
+"I'M HERE! I'M HERE!"
+
+He was already in the air, right in front of Kageyama at the net, where no hitter should be. Kageyama's hands changed their mind in the middle of the set. The ball went up off his fingers low and fast and wrong, half a meter straight up in front of him.
+
+Hinata hit it.
+
+It barely cleared the tape and dribbled off the top of the net onto Sho's side. Sho dove for it with all the grace of a futon falling off a balcony, and missed by a meter.
+
+17-16.
+
+Sho lay on his back and looked at the lights.
+
+That should never have worked. It had been a reflex wearing a set's clothes: Kageyama's hands going to the loudest thing in the gym, and Hinata hitting it because Hinata hit everything.
+
+"Toss to me like that again!" Hinata was right up in Kageyama's face. "I don't care about middle school! I'll hit anything! I'll jump anywhere! Toss it to me!"
+
+Tanaka came over, shaking out his hand. "Oi. Can you 2 even do quicks?"
+
+"No," said Kageyama.
+
+"No!" said Hinata, at the same time, as if it was good news.
+
+"Then I'll keep blocking you," said Tsukishima from Sho's side of the net. "It's easy. You're small."
+
+Hinata turned round. This time he came to the net and looked up at him, a long way up. When he spoke, it was quieter than Sho had heard him speak all week.
+
+"I know," said Hinata. "However high I jump, there's always somebody there. A wall. Always." He looked at his own hands. "The Little Giant was small too. He was small and he beat everyone. I saw him on TV. So I'm going to keep jumping. And I'm going to keep winning."
+
+He went back to his spot.
+
+Kageyama stood behind him with the ball. Then he went and stood next to him.
+
+"Clearing the wall in front of the spiker," said Kageyama, "is the setter's job." He said it as if he was reading it out of a rule book. "So use everything. Your speed. Your jump. All of it. And hit my toss."
+
+"...Okay!"
+
+---
+
+Then they tried, and it fell apart.
+
+Kageyama served. Tsukishima passed, and Yamaguchi, flustered, pushed the ball straight back over on 2. Tanaka dug it up to Kageyama, and Kageyama set Hinata, fast.
+
+It was fast and perfect, a flat line to the exact spot where a hitter should be at the exact moment a hitter should be there. Hinata was a step behind it, jumping at the air the ball had already left.
+
+18-16.
+
+"FASTER!" said Kageyama.
+
+The serve came round to Yamaguchi. Tanaka passed, and Kageyama set Hinata again, and the next 1 was faster, and Hinata missed it by more.
+
+19-16.
+
+"You're too slow!"
+
+"YOU'RE TOO FAST!"
+
+They were face to face in the middle of the court now, Hinata up on his toes, Kageyama looming, both of them red. The match had more or less stopped around them.
+
+Sho stood at the back with the ball for Yamaguchi's next serve in his hands, and held it.
+
+He could see exactly what was wrong. He'd watched it on tape in setters with 10 years in the league: the setter sets for the hitter in his head, the 1 on the perfect spot at the perfect moment, and gets angry at the real 1 for not being him. Hinata was faster than anybody Kageyama had ever set. Kageyama was setting for somebody slower and taller and further back, and then shouting because Hinata wasn't that person.
+
+1 sentence across the net would do it.
+
+If he said it, they'd fix it. If they fixed it, they'd win, and Kageyama would keep setting. Sho wanted that. He'd also promised to beat them.
+
+He held the ball.
+
+"Kageyama."
+
+Sugawara had stepped up to the sideline with the whistle in his hand.
+
+The shouting stopped.
+
+"You're doing it again," said Sugawara. "What you did in middle school."
+
+"He can do it." Kageyama's voice was tight. "He's got the speed. If he gets used to it, he can hit it."
+
+"He's not slow," said Sugawara. "Your tosses are making him slow." He said it gently. "In middle school he had a team he barely put together and nobody to set him, and he still got here. Everything he's got, he got on his own. Speed. That jump. And you're throwing it away by making him fit you. You're the setter. You're good enough to fit him."
+
+Kageyama stood and listened, the way he'd listened through the gym door on Tuesday.
+
+"I was nervous, watching you last year," said Sugawara. He smiled. "You've got the touch. The control. You see the whole court and you decide in a second. I don't have that. I've been trying." The smile stayed exactly where it was. "I'm jealous of you, you know."
+
+Sho had seen that smile once before. A teammate at university, the day the coach told him he'd be backing up a 1st year in his last season. The teammate had smiled exactly like that and said, *That makes sense.*
+
+Kageyama stood very straight.
+
+Then he walked over to Hinata.
+
+"I'm jealous of you," said Kageyama.
+
+Hinata stared up at him.
+
+"You're fast. You can jump. You've got a body that does things mine can't." His voice was low and stiff, like something he'd had to put together before he could say it. "And your technique's terrible. So it's being wasted. So it's my job to show what I can do with it."
+
+"...Huh?"
+
+"Go at your fastest. Jump your highest. Go where there's no block." Kageyama looked down at him. "I'll bring the ball to you."
+
+Hinata's face went very quiet, the way a face does right before somebody jumps off something high.
+
+"Okay," said Hinata.
+
+---
+
+Sho gave Yamaguchi the ball.
+
+Yamaguchi served at Hinata, and Hinata, with whatever Kageyama had said still on his face, forgot to move his feet at all. The ball went off his shoulder into the wall.
+
+20-16.
+
+Tsukishima put his hands up at the net. Yamaguchi bounced the ball at the end line, too many times. Sho went back to his corner and sank into his ready position.
+
+Yamaguchi served. A float, at Tanaka. Tanaka took it on his forearms, a clean, ugly bump that went up toward the net, and Kageyama slid under it.
+
+Hinata was already running.
+
+Before Kageyama had touched the ball. Before Sho had even seen where the pass would come down. A small orange blur came in from the left at full speed, toward a spot by the net where there was no ball yet, no set, nothing at all.
+
+Sho's head did what it had done for 9 years, every rally of every match. It took the run-up apart: the speed, the angle, the last step, the place in the air where the kid would be.
+
+It came back empty.
+
+**Continuity (ch 5)**
+
+- **Date:** Sat Apr 13. 7:40 a.m.: Dad drives Sho the 2 minutes to the gate and leaves ("Thanks, Dad." "Mm."), paying off ch 4's "What time?"; Dad does not watch. The match runs from about 8:15 to 8:45, set 1 from 0-0 to 20-16, ending mid-rally.
+- **Canon (reference):** Daichi knew about morning practice ("It's good that you all got so much morning practice in this week"); the 3v3; Tanaka's 1st point and the shirt; Tsukishima blocks Hinata ("Amazing jump"); "The King's toss confuses the other team and his own team too"; Kageyama: tossing with nobody behind him scares him; Hinata: "That's middle school. I'm here now."; "I'm here!" and the accidental quick; "Can you 2 even do quicks?" "No."; Hinata: always a wall, the Little Giant was small too; Kageyama: "Clearing the wall in front of the spiker is the setter's job"; the too-fast sets; Suga to Kageyama (doing what he did in middle school; Kageyama's "if he gets used to it, he can hit it"; fit the spiker; "I was nervous watching you... I'm jealous of you"); Kageyama: "I'm jealous of you... I'll bring the ball to you" [wiki: Middle_School_Story; Words_from_the_Have-Nots]. Kiyoko walks past; "She'll come for the 2nd set if her meeting finishes" (ch 6 or 7 shows her in set 2).
+- **Fic:** Sho, Tsukishima, Yamaguchi vs Hinata, Kageyama, Tanaka; Daichi keeps score, Suga refs. House rules: full court, 25-point sets, best of 3, rally scoring, fixed serving order per side, no positions or back row. Sho's side named 1st in scores. The stakes said once by Daichi; Sho still means his promise to Hinata and doesn't like it. Sho plays in the new 12,000 shoes.
+- **Serving orders (LOCK for ch 6):** Sho's side **Sho, Yamaguchi, Tsukishima** (Sho serves the 1st ball; Yamaguchi serves from 18-16 through 20-16 and the freak-quick rally; Tsukishima next, then Sho). Hinata's side **Kageyama, Tanaka, Hinata** (Kageyama served the 17-16 side-out rally).
+- **Score path:** 0-1 Sho's float, Tanaka line past Tsukishima (shirt); 0-2 Kageyama's serve off Sho's arms into the wall ("Nice serve," meant); 0-3 Sho early on Tsukishima's set, Tanaka cross; Sho's clock (68 cm at 19; "Count 1. Then go."); Tsukishima: "That 1 you were supposed to leave." "My arms went." "Then don't take them."; 1-3 hands behind his back, Yamaguchi's 2-hand push; 2-3 Yamaguchi's float off Hinata's arm ("RECEIVE IT PROPERLY!"); 2-4 Tanaka covers Hinata and kills; 2-5 Sho into the net; 3-5 Tsukishima blocks Hinata (Rock Lee, in Sho's head); 4-5 Tsukishima puts down Hinata's overpass; 5-5 Tanaka long; 5-6 Tsukishima's serve into the net; 6-6 Tsukishima blocks Hinata again; the King exchange; Kageyama rolls the ball to Sho; 7-6 Hinata's pass into the net; **7-7 Kageyama's dump** (Sho watching the hands); 8-7 Kageyama's serve off the tape; 8-8 2nd dump; 8-9 Sho early, out; 9-9 Tsukishima's tip on 2; 9-10 Tsukishima's float wide; 10-10 Hinata early, off the wall ("Too early." "I KNOW."); 10-11 Tanaka into the corner behind Sho; Tsukishima shifts Yamaguchi; 11-11 Tsukishima's dump; **12-11 Sho tools Tanaka's right hand past the antenna, his 1st real kill** (Yamaguchi's rainbow; waited, counted 1); "You USED it." "Yes, senpai." "Who taught you that?" "Somebody."; 13-11 Hinata's pass into the net; 13-12 Yamaguchi's serve off the tape; 13-13 Tanaka cross over Sho's early block, **"Please teach me that 1 too, senpai." "STOP ASKING NICELY."** (once in Arc 1); 13-14 "Cross", Tsukishima stays on line; 14-14 Sho off Hinata's hand; **15-14 "Line", Tsukishima moves half a step and stuffs Tanaka** ("You listened to him!" "I didn't." "You moved!" "I was going to move anyway."); 15-15 Tanaka; 16-15 Sho's cross; 17-15 Tsukishima on an overpass; 17-16 accidental quick ("I'M HERE!"); 18-16, 19-16 failed fast quicks; Suga's speech, Kageyama's; 20-16 Hinata's pass off his shoulder; Yamaguchi serves, Tanaka passes, Hinata runs before the pass.
+- **Sho kept Kageyama's problem to himself** (saying it would help the side he'd promised to beat); Suga said it.
+- **Eye / Meta Vision:** eye dormant through 20-16. Film brain reads Tanaka's shoulders (cross, then line), and on the last run-up it "came back empty".
+- **Ace line:** the tool off Tanaka's hand; the timing fixed by counting 1; 1 cross with a quarter of Tanaka's snap.
+- **Next:** ch 6 "Eyes closed" (old ch 5, revised): the 1st freak quick, the eye's partial awakening (firing 1), the rest of set 1 (firing 2 and its cost), 23-25, card 2. Tsukishima serves at 21-17 and Sho at 23-20 under the order above.
+
+## Old chapter 5: Eyes closed
 
 Kageyama's hands touched the ball.
 
@@ -2516,7 +3010,7 @@ Meta Vision: Film brain
 - Status card: Emperor's Eye changed from Dormant to Partial awakening.
 - Next: ch 6, set 2 (canon 25-21 to Hinata's side), the handshake, jackets, Seijoh match announced.
 
-## Chapter 6: One touch
+## Old chapter 6: One touch
 
 Set 2 went the way the end of set 1 had promised.
 
@@ -2833,7 +3327,7 @@ The jacket hung on the back of his chair, and the streetlight through the curtai
 - No status card (no rank changed).
 - Next: ch 7, the Seijoh practice match, sets 1 and 2 (Hinata's nerves, the bus). Sho starts in Ennoshita's spot.
 
-## Chapter 7: Blue castle
+## Old chapter 7: Blue castle
 
 The meat buns at Sakanoshita cost 120 yen, and Sho had been trying to get them for 100 since Thursday.
 
@@ -3248,7 +3742,7 @@ And underneath that, in smaller letters: He watches like I do.
 - No status card.
 - Next: ch 8, set 3. Oikawa pinch serves at 24-21 targeting Tsukishima; Karasuno wins 25-23.
 
-## Chapter 8: Grand King
+## Old chapter 8: Grand King
 
 Oikawa warmed up for a long time.
 
@@ -3650,7 +4144,7 @@ Tomorrow, apparently, a god was coming back to Karasuno.
 - No status card (no rank changed).
 - Next: ch 9, Nishinoya returns and receives everything.
 
-## Chapter 9: Guardian deity
+## Old chapter 9: Guardian deity
 
 The blond guy at Sakanoshita threw the popsicles.
 
@@ -4139,7 +4633,7 @@ Then he underlined both.
 - No status card.
 - Next: ch 10, Asahi's backstory and Ukai Keishin agreeing to coach.
 
-## Chapter 10: The ace who left
+## Old chapter 10: The ace who left
 
 Takeda-sensei announced it at the end of Thursday practice, holding a sheet of paper in both hands like a diploma.
 
@@ -4556,7 +5050,7 @@ Because that was the only honest thing to do.
 - No status card.
 - Next: ch 11, the Neighborhood Association match. Asahi gets blocked, Noya saves it, Suga sets him again (Asahi's moment).
 
-## Chapter 11: Neighborhood
+## Old chapter 11: Neighborhood
 
 The Neighborhood Association changed in the club room, and they came out looking exactly like what they were: guys who'd worked all day.
 
@@ -4818,7 +5312,7 @@ And across the net, Asahi lifted his head and opened his mouth.
 - No status card.
 - Next: ch 12, Asahi calls for the ball and breaks through; the rest of the match (Neighborhood wins 2-0, set 1 25-19); Asahi and Noya rejoin.
 
-## Chapter 12: Call for the ball
+## Old chapter 12: Call for the ball
 
 Sugawara's hands paused at the top.
 
@@ -5222,7 +5716,7 @@ He fell asleep before he could think about why that mattered.
 - No status card.
 - Next: ch 13, Golden Week training camp, Hinata gets #10, stories of Ikkei's old training; first status card rank-up.
 
-## Chapter 13: Golden Week
+## Old chapter 13: Golden Week
 
 The camp building smelled like old tatami and somebody else's laundry detergent, and Hinata ran through every room of it in under 2 minutes.
 
@@ -5824,7 +6318,7 @@ Meta Vision: Scanning (new)
 - Status card: Reception E to D. Meta Vision Film brain to Scanning.
 - Next: ch 14, the Nekoma practice match. Sho subs in; Kenma reads him; scanning overload freezes him mid-rally.
 
-## Chapter 14: Garbage Dump
+## Old chapter 14: Garbage Dump
 
 Before the first whistle, a tall Nekoma first year with short spiky hair and a very honest face looked down at Hinata across the net.
 
@@ -6155,7 +6649,7 @@ He wrote 1 word in it.
 - No status card this chapter (no rank change).
 - Next: ch 15, sets 2 and rematches. Sho goes back in with 2 checks; Kuroo targets him; Nekoma wins 25-23 and every rematch; Ukai's "not a team yet"; promise of Nationals.
 
-## Chapter 15: Not a Team Yet
+## Old chapter 15: Not a Team Yet
 
 Inuoka blocked Hinata 3 times in the first 5 points of set 2.
 
