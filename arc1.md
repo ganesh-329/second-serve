@@ -1252,9 +1252,7 @@ At the end Tanaka took the ball off him and looked at it, and then at Sho, and t
 
 "It was out."
 
-"I know it was out." Tanaka tossed the ball from 1 hand to the other. "Don't hit it out on Saturday."
-
-He went back to the stage.
+"I know it was out." Tanaka tossed the ball from 1 hand to the other.
 
 ---
 
@@ -1603,7 +1601,7 @@ He lay there and counted Hinata's run-up steps until he fell asleep.
 - Divergence (ours): canon sets the challenge on the 1st day; here Kageyama asks on Wednesday afternoon at the door, with Tsukishima and Yamaguchi arriving on the path. Daichi gives his 3v3 spot to Sho and watches from outside. Sho is at all 3 canon talks. Tsukishima's words are invented (canon content only). The toss nobody went for in Kageyama's last junior high match is saved for the 3v3 (ch 4, canon). Daichi doesn't catch them at dawn; Sugawara clears them out at 6:50 ("you were never here"), so ch 4's "It's good that you all got so much morning practice in this week" still lands.
 - Invented: Wednesday (2 days after ch 1). Alarm 4:30; Mom at 4:40, salmon onigiri, 3 of them; Sho reads her hands before she speaks (the salmon pot open, the umeboshi jar shut; ch 23); Sho hates umeboshi since 4, the older life ate it from the jar. "Wear the jacket. It's cold." 6 degrees. Konbini by the shrine (ch 29 notebook), the last 2 nikuman; Tanaka eats 1 and zips the 2nd inside his jacket (Soul sheet). Cherry trees still in bud. The key on its red string.
 - Kageyama tosses to Sho once, a set built to fit an outside hitter; Sho is early. "...Your timing is garbage." "Yes." "I've never had 1 like that." "...Don't say weird things." Hinata: "We're both bad!"
-- Tanaka's lesson, 5:15 to 5:40, off a chair: he can't explain it ("You just do that." "At the END." "You think about it way too much, Kiyose."); Sho's 3rd lands cross inside the far sideline ("Huh." "That was kind of it."); 50 more; "Don't hit it out on Saturday." (ch 4: "You USED my hand.")
+- Tanaka's lesson, 5:15 to 5:40, off a chair: he can't explain it ("You just do that." "At the END." "You think about it way too much, Kiyose."); Sho's 3rd lands cross inside the far sideline ("Huh." "That was kind of it."); 50 more; "Yesterday. The 1 off the wall." "It was out." "I know it was out." (ch 4: "You USED my hand.")
 - Receive with Sugawara: about 1 clean pass in 3 by 6:30.
 - Vending machine: Sho buys Kageyama milk. "...What." "Milk. You were going to buy milk." "I have money." "I know you have money." "Why do you keep saying weird things." "Get up. We've got 10 minutes."
 - Sho asks Sugawara for tosses in practice (never in a match; P4/06): "You want my tosses." "Kageyama's tosses are better." "I like yours. They come down where I can find them." "Okay. After school, at the end. 10 minutes, if Daichi says." "Your timing's still garbage, though." Daichi sees 1 hit.
