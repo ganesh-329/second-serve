@@ -537,273 +537,503 @@ Meta Vision: Film brain
 
 ## Chapter 2: The wig
 
-Sho got to the Second Gymnasium at 6:50 a.m. with his form, a red nose, and a plan.
+Sho got to the 2nd gym at 6:50 a.m. with his form, a red nose, and a plan.
 
-The plan was simple. Be polite to everyone older than him. Agree with everything. Get on the court.
+The plan was to be polite to everyone older than him and get on the court.
 
-The door was already open. Inside, 3 people in practice clothes stood near the net, and 2 more stood in front of them, having yesterday's argument again.
+It was cold. The cherry trees along the fence were still buds, and the concrete step where he'd sat yesterday was wet with dew. The big door was already open. Inside, the lights were on, and 3 people in practice clothes stood near the net, and 2 more stood in front of them, having yesterday's argument again.
 
-"I'm the one who's going to beat you!"
+"I'm the 1 who's going to beat you!"
 
 "You can't even receive!"
 
-Hinata and Kageyama. Apparently they just did this, like birds at dawn.
+Hinata and Kageyama. Hinata had his school bag still on 1 shoulder. Kageyama had a carton of milk in his hand with the straw already in.
 
-Sugawara spotted him and waved. "Kiyose! You came!" He turned to the broad-shouldered third year beside him. "Daichi, this is the one I told you about. The face."
+Sugawara saw Sho in the doorway and lifted a hand. "Kiyose! You came." He turned to the boy beside him, who was broad across the shoulders and had very short hair and the calm face of somebody who'd already heard this argument several times since 6:30. "Daichi. This is the 1 from yesterday. The face."
 
-"The face," Sho agreed.
+"Good morning," said Sho, and bowed. "Kiyose Sho. 1-5. Thank you for yesterday, Sugawara-san."
 
-Sawamura Daichi, captain, looked like someone had built a person out of a load-bearing wall. He had a calm, friendly smile that was somehow scarier than yelling. He took the form, read it, and stopped at the bottom.
+"How's the nose?"
 
-"'Position: Ace,'" he read aloud.
+"Purple."
 
-"Aim high," Sho said.
+The broad 1 held out his hand, and Sho gave him the form. Sawamura Daichi, captain, 3rd year. He read it from the top, all the way down. At the bottom he stopped.
 
-The third person, a second year with a shaved head and the posture of a stray dog guarding a sandwich, leaned in to read over Daichi's shoulder. Then he leaned toward Sho until their faces were very close.
+"'Position,'" he read out. "'Ace.'"
 
-"Oi. First year. You think you can walk in here and be the ace?"
+Hinata spun round. "ACE?"
 
-Sho looked at him. 29 years of life had taught him a lot of things, and one of them was this: some people are easy.
+The 3rd person by the net, a 2nd year with a shaved head and his practice shirt sleeves rolled to the shoulder, came over and read the form across Daichi's arm. Then he looked up at Sho, and came closer, and closer, until his face was about a hand's width from Sho's and tilted to 1 side, with his eyebrows pulled down and his mouth pulled up.
 
-"Sorry," Sho said, with great sincerity. "I didn't know you'd already taken it. You've got the aura, senpai."
+"Oi," he said. "1st year. You think you can walk in here and be the ace?"
 
-The second year froze.
+Sho had seen that face before, in a lot of university locker rooms, on 2nd years who'd been waiting their turn.
 
-"The... aura?"
+"I'd like to be," Sho said.
 
-"Ace aura. You can't fake it. I saw you and thought, ah. That's the guy who scores when it matters."
+"You'd LIKE to be?"
 
-"I'm Tanaka," he said, ears going pink. "Tanaka Ryunosuke. Second year. Wing spiker." He coughed. "...I'm not technically the ace."
+"Yes. Sorry. I wrote it." He looked at the shaved head, and the arms, which were a hitter's arms, ropy at the forearm and thick at the shoulder. "Are you the ace, senpai?"
 
-"Yet," Sho said.
+The face held. Then something went out of it.
 
-Tanaka turned to face the wall, folded his arms, and whispered "yet" to himself like a prayer.
+"...I'm not technically the ace."
 
-Sugawara put a hand over his mouth. Daichi looked at Sho for a long second, the way a man looks at a dog that has just opened the fridge.
+"Oh." Sho bowed. "Sorry. You looked like him."
 
-"Any experience?" Daichi asked.
+The 2nd year stared at him. His ears went red at the tops. He opened his mouth and nothing came out of it, and he turned round and walked 3 steps away and stood facing the wall with his arms folded.
 
-"In a past life," Sho said.
+"Technically," he said, to the wall.
 
-Daichi laughed. Sho let him.
+"That's Tanaka," said Sugawara, into his hand. "2nd year. Wing spiker."
+
+"I CAN HEAR YOU, SUGA-SAN."
+
+Hinata had come all the way across the court. He stood in front of Sho, very close, and looked up at him with his chin out.
+
+"I'm going to be the ace," he said. "I told you."
+
+"I know," said Sho. "You said."
+
+"So you can't."
+
+"I'd still like to."
+
+Hinata opened his mouth, and shut it, and looked at Daichi as if Daichi might rule on it. Daichi was folding Sho's form in half along its old crease.
+
+"Any experience, Kiyose?"
+
+"In a past life," said Sho.
+
+Daichi laughed. It was a short, real laugh. He put the form in his jacket pocket.
+
+"Morning practice is 7 to 8," he said. "Get changed. You 2." He turned. Hinata and Kageyama had drifted back toward each other and were standing side by side now, both of them looking at Daichi. "I'm going to say this once. This club is a team. If you 2 can't play on the same side of the net, you can't play here."
+
+"He's the 1 who..." Hinata started.
+
+"Once," said Daichi, and smiled, and Hinata closed his mouth.
+
+Kageyama drank his milk until the carton made the noise.
 
 ---
 
-What happened next, Sho would later describe to Mio as a Gintama episode with no laugh track.
+Morning practice was stretching, then passing in pairs, then the bell.
 
-Daichi had turned back to Hinata and Kageyama, who were still at it. Kageyama wanted proof that Hinata could receive his serve. Hinata wanted to give it. Daichi wanted them both to stop, and for a moment it looked like he might get his wish.
+The 2nd years who lived far out came only after school, so there were 6 of them, and Daichi paired Sho with Sugawara. Sugawara threw. Sho passed. His arms sent the ball off to the right, and off to the left, and once straight up into the lights, and Sugawara laughed and threw him another 1.
 
-Then the side door opened, and a balding man in a suit walked in. The vice principal, according to Tanaka's sudden whisper, who had opinions about the volleyball club.
+At 8 they rolled the balls back into the cart, and Hinata and Kageyama ran for the shoe lockers arguing about who was faster, and the bell went for homeroom while Sho was still tying his indoor shoes.
+
+---
+
+School was strange.
+
+It was the same school as yesterday: the same 3rd-floor classroom, 1-5, the window row, at the back, with the radiator that knocked and a view of the hill behind the gyms. The same teacher, a woman in her 50s who said "Well then" before everything. The same boy in front of him, Okada, who slept through homeroom with his head on his arms. Sho knew all of it. He'd known it for a week.
+
+But the 29-year-old in him hadn't sat in a high school classroom for 11 years, and he kept noticing things. How small the desks were. The smell of chalk. How every 1 of the 30 people in the room was so young that it was almost hard to look at, their faces round and soft and worried about the math quiz, and how he was 1 of them, and his own hands on the desk were the same.
+
+In math, the teacher wrote a quadratic on the board, and Sho looked at it with both lives' worth of school behind him and had no idea. He wrote it down anyway.
+
+At lunch he opened his bento. His mother had made it at 6 with the edamame bag still on the counter: rice, a whole row of tamagoyaki, karaage, a lot more rice under that, and a note on a strip of paper under the lid that said *eat all of it*. He ate all of it. He was hungry the way he hadn't been hungry in years, in either life.
+
+Then he went down to the vending machines by the stairs, because he wanted a drink, and Kageyama was there.
+
+He was standing in front of the machine with a 100-yen coin, looking at the milk. There were 3 kinds of milk. He was looking at them as if 1 of them had insulted him.
+
+Sho waited behind him. Kageyama pushed a button. A carton of milk dropped. He took it out and turned round and saw Sho and stopped.
+
+"...Kiyose," he said. He said it carefully, like a word in a test.
+
+"Kageyama-kun."
+
+Kageyama stood there with the milk. He didn't move out of the way of the machine, and he didn't go.
+
+"You wrote ace," he said.
+
+"Yes."
+
+"You can't receive either."
+
+"No," Sho agreed. "Not yet."
+
+Kageyama frowned at that, as if *not yet* were a move he hadn't expected. He put the straw in the milk.
+
+"How long did your serve take?" Sho said. "The 1 you hit at Hinata."
+
+"Take?"
+
+"To learn."
+
+Kageyama thought about it. He thought about it seriously, which Sho hadn't expected, with his eyes on the floor and the straw in his mouth.
+
+"I started the jump serve in 1st year," he said. "Junior high. It was bad for a year. Then it was okay." He drank. "The 1 yesterday was a normal 1. Standing."
+
+"It was good."
+
+Kageyama's ears went red. He looked at the vending machine. "It hit your face."
+
+"His elbows bent," said Sho.
+
+"I know that," said Kageyama. Then he looked at Sho properly, for the 1st time, as if he were checking something.
+
+Sho bought a bottle of water. When he turned round Kageyama had gone, and the stairs were empty, and somewhere above him on the 2nd floor he could hear Hinata shouting "KAGEYAMA! WAIT!" and feet running.
+
+---
+
+After school there were more of them. Daichi, Sugawara, Tanaka. 3 more 2nd years: a quiet 1 with sleepy eyes called Ennoshita, and 2 others, Narita and Kinoshita. And a 3rd-year girl with dark hair and glasses who sat at the side of the court with a clipboard and didn't speak to anybody. Tanaka bowed to her so low, every time he passed her, that his head nearly touched his knees.
+
+Hinata and Kageyama were there too, on the far side of the net, still arguing. They'd been arguing since 4. Kageyama wanted Hinata to prove he could receive. Hinata wanted to prove it. Daichi, warming up his shoulders at the net, kept saying "You 2," in a voice that was getting quieter every time, which Sho had already learned was the wrong direction.
+
+"1 serve," said Kageyama. "If you can receive 1 serve..."
+
+"I can receive 100 serves!"
+
+"1."
+
+"FINE."
+
+Daichi turned his head. "You 2..."
+
+The side door opened. A short, balding man in a gray suit came in with his hands behind his back. Tanaka's whole body went straight. "Vice principal," he breathed. "He's been looking for a reason."
 
 Kageyama served anyway.
 
-Sho watched it go. A good serve, the same flat topspin as yesterday. Hinata's elbows were bent again. Satoshi's brain had time to file a complaint.
+Sho watched it go. The same hard topspin serve as yesterday. The same orange kid under it, and the same elbows bending, and Sho's own arms twitched at his sides as if they could fix it from there.
 
-The ball came off Hinata's forearms, flew in a perfect arc across the gym, and struck the vice principal on the top of his head.
+The ball came off Hinata's forearms in a perfect high arc across the gym and came down on top of the vice principal's head.
 
-The top of his head lifted off.
+The top of the vice principal's head came off.
 
-It rotated once in the air, slowly, like a small, sad UFO.
-
-It landed on Daichi's head.
+It went up, turning over once, a small brown shape against the ceiling lights, and came down, and landed on Daichi's head, and stayed there.
 
 Nobody breathed.
 
-Hinata had gone the color of the ceiling. Kageyama looked like a statue of a boy regretting something. Tanaka was shaking with the effort of staying silent, and a single tear ran down his cheek. Sugawara stared at a spot on the floor with his whole soul.
+Hinata had gone white. Kageyama stood behind the end line with his serving hand still up. Tanaka had both hands over his mouth and his shoulders were shaking, and his eyes were full of water. Sugawara was looking at a spot on the floor with his whole face. The girl with the clipboard had stopped writing.
 
-Sho kept his face perfectly blank.
+Sho kept his face still.
 
-He had sat through 9 years of team meetings where a general manager said something unbelievable and everyone had to nod. He could have kept a straight face at his own funeral. He had, technically, missed it.
+Satoshi had sat through 9 years of team meetings where a general manager said something unbelievable and everybody nodded. He could have kept a straight face through anything. He looked at the clock over the door and thought about the quadratic.
 
-Daichi lifted the hairpiece from his head with both hands, like a cake, and returned it to its owner with a deep bow. Whatever the vice principal said next, Sho chose not to hear. It included the word "Sawamura" several times. Then the side door shut, and the gym went quiet.
+Daichi lifted the hairpiece off his head with both hands, carefully, the way you'd lift a cake out of a tin, and turned, and held it out to the vice principal with a deep bow. The vice principal snatched it. He said several things. *Sawamura* was in most of them. Then the side door shut behind him, hard, and the gym was quiet.
 
-Daichi turned around.
+Daichi turned round.
 
 He was smiling.
 
-"You two," he said to Hinata and Kageyama, in the kindest voice Sho had ever heard. "Out."
+"You 2," he said to Hinata and Kageyama, in the kindest voice Sho had ever heard.
 
-"But..."
+He went over to the bench, to his jacket, and took 2 forms out of the inside pocket. He held 1 out to each of them.
 
-"Captain, we..."
+"Until you can act like teammates," he said, "you're not in this club. Out."
 
-"Until you two can act like teammates, you're not joining this club." The smile didn't move. "Out."
+"But, Daichi-san..." said Hinata.
 
-They went. Hinata looked back twice. Kageyama didn't look back at all, but his shoulders said plenty.
+"Daichi-san, we..." said Kageyama.
 
-The door slid shut. Daichi breathed out through his nose, turned to the rest of them, and clapped once.
+"Out."
 
-"Right. Warm-up."
+They took the forms. They went. Hinata looked back twice, at the court, at the net, at all of them. Kageyama went straight out, holding his form so tight it crumpled.
 
-Sho decided he liked this captain a lot.
+The door slid shut. Straight away somebody hit it from outside with both fists.
+
+"WE'LL GET ALONG!" That was Hinata. "WE'LL GET ALONG, DAICHI-SAN, WE PROMISE!"
+
+Then Kageyama's voice, flat through the door: "I'll get along with him. I'll do it." A pause. "I'd still rather spike and toss and receive all by myself."
+
+"KAGEYAMA!"
+
+Daichi slid the door open 10 centimeters, looked out, and slid it shut again. The hammering stopped. Daichi breathed out through his nose, and turned to the rest of them, and clapped once.
+
+"Right," he said. "Warm-up."
 
 ---
 
-The warm-up was fine. Sho could run. Sho could stretch. His body did both without complaint.
+The receiving drill was the simplest drill in the sport. Daichi stood on a box at the net and hit easy balls at whoever was in line, and you passed them up to Sugawara at the setter's spot.
 
-Then Daichi started the receiving drill, and things went downhill fast.
+Satoshi had done this drill maybe 50,000 times.
 
-It was the simplest drill in the sport. Daichi stood at the net and hit easy balls at whoever was in line, and you sent them up to Sugawara at the setter's spot. Satoshi had done this drill maybe 50,000 times. He could have done it asleep. On crutches. Dead, even.
-
-The first ball Daichi sent him went into the ceiling, clanged off a light fixture, and dropped on Tanaka.
+Daichi's 1st ball to Sho went into the ceiling, rang off a light, and dropped on Tanaka.
 
 "Oi!"
 
 "Sorry, senpai."
 
-Sho knew exactly what had happened. He'd swung his arms at it. You never swing at a ball; you give it a platform and let your legs do the work. Satoshi's brain sent the correction instantly. Sho's arms received the memo, read it, and fed it to a shredder.
+He'd swung at it. His legs had been late, so his arms had gone and done the work for them, the way they would until his legs learned to get there 1st.
 
-The second ball went off his thumb.
+The 2nd ball went off his thumb into the net.
 
-The third went straight back at Daichi, who caught it without looking impressed.
+The 3rd went straight back at Daichi, who caught it.
 
 "Your feet are late," Daichi said.
 
-"I know," Sho said. "And my platform tilts left because I'm reaching instead of moving. And my elbows bend at contact."
+"Yes, Captain."
 
-Daichi paused. "...You know all that?"
+"Again."
 
-"Theoretical experience."
+He went again. The next 1 was late too. He went to the back of the line, and Narita went, and Kinoshita, and Ennoshita, who passed every 1 to Sugawara so neatly that Sho wanted to ask him how, and then it was Sho again. Late. Back of the line. Tanaka laughed every time, loud, with his head back, the way you'd laugh at a friend who'd fallen off a bike and was fine.
 
-He knew everything. That was the problem. Knowing was the easy part, and it was worth exactly nothing until his body agreed. Every shank felt like watching tape of himself at 12, except the tape was live and everyone in the gym had a seat.
+On the 11th ball, Sho's feet got there 1st.
 
-Tanaka laughed every time, delighted, like Sho was a dog trying to climb stairs.
-
-On the 11th ball, Sho's feet got there first. Arms locked. Platform flat. The ball went up in a soft arc and dropped into Sugawara's hands.
+Arms locked. Platform flat. The ball went up in a soft arc and came down into Sugawara's hands as if it had been aimed there.
 
 "Nice receive!" Sugawara called.
 
-Sho stood very still. It was a boring, normal, beginner's pass.
+Sho stood very still with his arms out.
 
-He wanted to run a lap of the gym screaming.
+It was a beginner's pass. A normal, boring, beginner's pass, the kind Satoshi used to do 1,000 of before breakfast. He wanted to run round the gym shouting.
 
-"That one," he told Tanaka, "was a set. For a very tall spiker."
+"Next," said Daichi.
 
-"That's not how sets work!"
+He went to the back of the line.
 
 ---
 
-Then came spiking, and for about 3 seconds Sho thought it was going to be his day.
+Then spiking, and for about 3 seconds Sho thought it was going to be his day.
 
-Sugawara tossed. Sho ran the approach the way Satoshi had run it 10,000 times: left, right-left, arms swinging back, plant, go.
+Sugawara set. Sho ran in the way Satoshi had run in 10,000 times: left, right, left, arms swinging back, plant, up.
 
-The floor dropped away.
+The floor went away.
 
-He went up so fast and so high that his stomach stayed on the boards. This body could jump. He hadn't known. Kiyose Sho had spent 3 years avoiding stairs, and his legs had been sitting on this the whole time.
+He went up so fast and so high that his stomach stayed on the boards. This body could jump. Nobody had told him. Kiyose Sho had spent 3 years taking the stairs 1 at a time, and his legs had been sitting on this the whole time.
 
-He was up there early. Way too early. He hung at the top, swung at empty air, and came down in time for the ball to land on his head.
+He was early. He was much too early. He hung at the top with nothing to hit, swung at empty air, and came down in time for the ball to land on his head.
 
-Bonk.
+Tanaka sat down on the floor.
 
-Tanaka fell over.
+The 2nd time he waited too long, and the ball dropped past his hand while he was still on his way up.
 
-"Testing the ball's density," Sho said.
-
-On the second one he waited too long, and the ball dropped past his hand while he was still rising.
-
-The third one, he caught right. His palm met the ball at the top of his reach, and it left his hand like a gunshot. It smashed into the floor near the end line, kicked up, and hit the back wall so hard the sound echoed.
+The 3rd time, he caught it right. His palm met the ball at the top of his reach, all of it, the whole hand, and it left his hand with a sound like a door slamming. It hit the floor near the end line and kicked up and hit the back wall so hard the sound came back off it.
 
 It was about a meter out.
 
 The gym had gone quiet anyway.
 
-Tanaka had stopped laughing. He was looking at the back wall, then at Sho, with an expression Sho knew from a hundred locker rooms. Every hitter had it. It meant: I want to hit one harder than that.
+Tanaka had stopped laughing. He was looking at the back wall, then at Sho, and his jaw had gone tight.
 
-"Again," Tanaka told Sugawara, already walking to the line.
+"Again," Tanaka said to Sugawara, already walking to the line. "Me."
 
-Sugawara tossed. Tanaka took 3 hard steps and went up, and his arm came through like a whip. Clean cross-court, inside the line, into the floor with a crack.
+Sugawara set. Tanaka took 3 hard steps and went up, and his arm came through like a whip, and at the very top his wrist turned over and the ball went cross-court, sharp, inside the line, into the floor with a crack.
 
 He landed, turned, and grinned at Sho with every tooth.
 
 "That's how it's done, rookie."
 
-Sho's first reaction was envy. His second was Satoshi's, older and more practical: that arm swing was beautiful. Late snap, high contact, wrist turning over at the last instant. You couldn't learn that from a video.
-
-You could steal it, though.
+Sho had already stopped hearing him. He was watching the place in the air where the wrist had turned. Late snap, high contact, the wrist rolling over the top at the last instant so the ball went across the body. That snap was worth stealing.
 
 "Teach me," Sho said.
 
 Tanaka blinked. "Huh?"
 
-"That cross. The wrist thing at the end. Teach me." There wasn't an ounce of pride in it. "I'll buy you a meat bun."
+"That. The cross. The thing your wrist does at the end." He bowed, properly, from the waist. "Please teach me, Tanaka-senpai."
 
-"...2 meat buns."
+Tanaka looked at him. He looked at Daichi, at Sugawara, at the girl with the clipboard, who was writing, and back at Sho. His mouth moved.
 
-"Done."
+"...2 meat buns," he said.
 
-Tanaka looked at Daichi like he'd just been handed a puppy. "Captain! He wants ME to teach him!"
+"Okay."
 
-"I heard," said Daichi. He was giving Sho the fridge look again.
+"Big ones."
+
+"Okay."
+
+Tanaka turned to the net with his fists clenched at his sides. "DAICHI-SAN. He wants ME to teach him."
+
+"I heard," said Daichi.
 
 ---
 
 The last part of practice was running.
 
-By lap 15, Tanaka was swearing at the floor. By lap 20, a quiet second year named Ennoshita was lying flat on his back. By lap 25, even Daichi was breathing through his mouth.
+By lap 15, Tanaka was swearing at the floor. By lap 20, Ennoshita was lying flat on his back on the stage steps with his arm over his eyes. By lap 25, even Daichi was breathing through his mouth.
 
-Sho finished, looked around, and said, "Are we doing more?"
+Sho finished and stood at the line and waited for the next thing.
 
-Everyone stared at him.
+There wasn't a next thing. Everybody else was bent over with their hands on their knees. Ennoshita lifted his arm off his face and looked at Sho upside down.
 
-He wasn't trying to be a jerk. He just wasn't tired. His legs felt warm and loose and his lungs felt fine, which was honestly a little creepy. Satoshi's old body would have been in the nurse's office.
+"Is he a 1st year?" he said, to nobody.
 
-"You said you quit every sport," Sugawara said slowly.
+"He's a 1st year," said Narita.
 
-"Yeah."
+"Huh," said Ennoshita, and put his arm back.
 
-"So how are you in this kind of shape?"
+Tanaka had gone to the back window, the high 1 over the fire door, and was standing on the bench under it with his hands on the sill, looking out at the dirt behind the gym. Sho could hear the ball from out there: a toss, a run, a slap, somebody falling.
 
-Sho had no idea. His body was a sports car somebody had left in a garage for 15 years, and the keys had turned up yesterday.
+"MORNING PRACTICE IS AT 7," Tanaka said to the window, very loudly, to nobody. "NOBODY'S ALLOWED IN THIS GYM BEFORE 7. NOBODY."
 
-"Spite," he said.
+He got down off the bench.
+
+"What?" he said, to Narita, who was looking at him.
+
+Sho's legs felt warm and loose. His lungs felt fine. He'd run 25 laps of a gym in a body that had quit swimming at 10, and he felt like he'd walked to the konbini. He didn't understand it. He decided to find out later.
+
+Sugawara came over, still breathing hard, and handed him a bottle of water from the crate.
+
+"Have you played before?" Sugawara said. "Properly? On a team?"
+
+"No."
+
+"So how are you not tired?"
+
+"I don't know, Sugawara-san."
+
+Sugawara looked at him a bit longer. Then he laughed, and patted him on the shoulder, and went to put the balls away.
 
 ---
 
-After practice, he begged.
+At 6, while everyone was pulling down the net, Sho went to Daichi and bowed.
 
-Shamelessly. Sincerely. With a full bow.
+"Please give me 20 more minutes," he said. "Passing. I'll mop."
 
-"20 more minutes. I'll mop the whole floor. I'll put the net away. I'll wash the ball cart. I'll carry your bag to the station, Captain."
+"You'll mop anyway. You're a 1st year."
 
-"I don't take the train," Daichi said.
+"I'll mop twice."
 
-"I'll carry it anyway. As a gesture."
+Daichi looked at him. Behind Daichi, Tanaka was at the bench with his bag over his shoulder, waiting for Daichi to be free, shifting from foot to foot. He came over.
 
-In the end, Daichi gave him 20 minutes if he mopped, and Sugawara stayed to feed him balls, because Sugawara was apparently a saint. Sho got 1 good pass in 6. Then 1 in 4. On the last one, his feet moved before he told them to, and the ball floated up like it had been there all along.
+"Daichi-san," said Tanaka. "I'll lock up tonight. If you give me the key. And tomorrow morning, I'll open. I'll come early."
 
-He mopped the floor with a big, stupid grin.
+Daichi turned his head. "You? Early?"
+
+"I'm turning over a new leaf."
+
+Daichi looked at him. Tanaka looked at the ceiling. Then Daichi took the key off the hook by the door, a single brass key on a red string with a plastic tag that said 第二体育館, and dropped it into Tanaka's hand, and didn't ask why, and Tanaka didn't offer. He went and sat on the stage steps with his bag to wait for them to finish.
+
+Sho saw Sugawara see it. Sugawara was at the cart with a ball in each hand, and he watched Tanaka sit down on the steps with the key in his fist, and smiled, and put the balls in the cart.
+
+"20 minutes," Daichi said to Sho. "Suga, can you..."
+
+"I'll feed him," said Sugawara. "Go home, Daichi. You look tired."
+
+"I'm not tired."
+
+"Go home."
+
+Daichi went home.
 
 ---
 
-Behind the gym, in the last of the light, he found Hinata and Kageyama.
+Sugawara threw. Sho passed.
 
-They hadn't gone home. Kageyama was tossing, high and clean, and Hinata was chasing every ball across the gravel, scraping his knees and bouncing back up. They were still arguing. They were also still playing. Sho wasn't sure they knew the difference.
+The gym was nearly empty. The lights over the far court were off, so only their half was lit, and the dark half beyond the net was full of stacked chairs and the folded-up stage curtain, and their voices came back off it.
 
-Hinata saw him first. "Ball-to-the-face guy! You made the team?!"
+Sho got 1 good pass in 6. Then 1 in 4. He didn't talk. Sugawara didn't push him to. He threw easy, high, the same height every time, and said "Feet" when it was feet and "Good" when it was good and nothing at all when it went into the dark.
 
-"Provisionally," Sho said.
+"Sugawara-san," said Sho, when the 1 in 4 had become 1 in 3. "Are you a setter?"
 
-"We'll be on it too!" Hinata pointed at the gym like it owed him money. "We're going to make the captain let us play a match. And then we're going to win!"
+The next ball didn't come right away. Sugawara was holding it.
 
-Kageyama tossed again. Hinata ran under it and jumped.
+"I am," he said. He threw it. Sho passed it, late, off to the left. Sugawara went and got it and came back. "So is he," he said. He tipped his head at the door Kageyama had gone out of. "So is Kageyama."
 
-There it was again, that absurd jump. Sho watched the kid's hand go higher than it had any right to, and Satoshi's brain did something it hadn't done in years. It stopped taking things apart and just watched, because the thing in front of it was too strange to sort.
+He threw the ball. Sho passed it, and it was good, and Sugawara caught it and threw again.
 
-If someone ever gave that kid a set that matched that jump...
+Sho had a lot to say about it, from the older life. None of it was anything a 1st year could say to a 3rd year on his 2nd day.
 
-Sho walked home with his hands in his pockets and his heart going too fast.
+"Your tosses are easy to pass," he said in the end. "They come down the same every time."
 
-Whatever match those 2 were planning, he wanted to be on the other side of the net.
+Sugawara laughed. "That's throwing, Kiyose. Setting's harder."
+
+Sugawara threw him another 1. He threw for the full 20 minutes and then 5 more, and on the last 1 Sho's feet went before he told them to, and the ball went up and hung, and came down into Sugawara's hands without him having to move.
+
+"There," said Sugawara. "Mop."
+
+Sho mopped the whole floor twice while Tanaka sat on the steps and complained about it, and then Tanaka locked the big door behind the 3 of them, and turned the key twice to be sure, and put it in his pocket with his hand over it.
+---
+
+Behind the gym, under the 1 light that worked, he found Hinata and Kageyama.
+
+They hadn't gone home. There was a strip of bare dirt between the back of the gym and the fence, and the light on the wall above the fire door made a circle on it, and they were in the circle. Kageyama was tossing, high and clean, and Hinata was chasing every ball across the dirt, falling, scraping his knees and getting up again. Their school bags were in a heap against the wall. Hinata's form was sticking out of the top of his.
+
+They were still arguing. They were still playing.
+
+Hinata saw him 1st. "Ball-to-the-face guy! You made the team?"
+
+"Provisionally."
+
+"You got in 1st." Hinata stood there with his scraped knees and the ball under his arm. "On your 2nd day. With your face."
+
+"What's provisionally?"
+
+"I don't know yet," said Sho.
+
+"We'll be on it too!" Hinata pointed at the gym. "Soon. Really soon. Right, Kageyama?"
+
+Kageyama caught the ball and held it with both hands, close to his chest.
+
+"We're going to ask for a match," Kageyama said. "Tomorrow. Us against the 2nd years. If we win, he has to let us in."
+
+"And then we're going to WIN," said Hinata.
+
+"I just said that."
+
+"I'm SAYING it!"
+
+"Can I watch?" Sho said. "Now. For a bit."
+
+Kageyama looked at him. Then at the spot where Sho was standing, which was right in the middle of the circle of light, on the edge of where Hinata had been landing.
+
+"...Don't stand there," he said.
+
+Sho moved to the wall, by the bags. Kageyama tossed. Hinata ran under it from the fence, 3 steps, so fast the dirt sprayed, and jumped.
+
+There it was again. The jump. Higher than any 163 centimeters had a right to go, his whole head over the height where a net would be, his arm up and back like a drawn bow. He hit the ball into the fence, and the fence rang, and he came down and fell over and got up laughing.
+
+Sho stood by the wall and watched them for 20 minutes.
+
+He was supposed to be taking it apart. That was what his head did. It went to Hinata's feet, which were too fast and in the wrong place, and to Kageyama's hands, which were perfect, and to the set, which was a good set for a normal hitter and wasted on this 1. It found all of that, and kept coming back to the jump, which it couldn't sort at all.
+
+If somebody ever put a set exactly where that kid's hand was going to be...
+
+"Oi," said Kageyama, at 7, catching the ball. "Kiyose."
+
+"Yes?"
+
+"If we get a match." Kageyama turned the ball in his hands. "You're on their side. You know that."
+
+Hinata stopped on the far edge of the light, panting, and looked at Sho too.
+
+Sho thought about it. He thought about standing on a court with that jump coming at him from the other side of the net, and a set that perfect behind it, and what it would be like to be the 1 who had to stop it.
+
+"I know," he said.
+
+---
+
+His mother had left a plate on the table under cling film, and a note on top that said *miso in the pot*, and gone up to run Mio's bath. His father was at the table with the newspaper. When Sho came in, he folded it small and put it down and got up and went to the drawer.
+
+He came back with a pencil and a tape measure and the hardback dictionary from the shelf.
+
+"Shoes off," said his father.
+
+"They're off."
+
+"Stand there."
+
+Sho stood against the door frame between the kitchen and the hall, in his socks. His father put the dictionary flat on top of his head and pushed it down, gently, until it sat, and held it there, and drew a line on the wood under it with the pencil. Then he took the dictionary away and hooked the end of the tape measure on the floor and ran it up to the line and read it, close, with his face near the tape.
+
+He wrote it next to the line, small. *182. Apr.*
+
+There were other lines under it. Sho had forgotten they were there. They went down the frame in steps, lower and lower and closer together, some of them labeled in his father's handwriting and some in his mother's, and beside his were Mio's, on the other side of the frame, in pink felt-tip at 1st and then in pencil. The lowest of his was at about the height of his hip. *Sho 4.*
+
+"Mm," said his father. He put the tape measure and the pencil in the drawer, and the dictionary on the shelf, and sat down, and unfolded the newspaper.
+
+"Saturday," he said, turning a page.
+
+Sho stood in the doorway in his socks and looked at the line, the new 1 at the top, a long way up from the rest.
+
+Tomorrow, Kageyama was going to ask for his match.
 
 **Continuity (ch 2)**
 
-- Met: Daichi and Tanaka. Ennoshita named.
-- Wig incident: Hinata and Kageyama are out until they act like teammates. They plan to force a match.
-- Tanaka will teach Sho his cross-court wrist snap; Sho owes him 2 meat buns. Rivalry seed planted.
-- Sho's receiving: about 1 clean pass in 4 by the end. Spiking: big jump, bad timing, one heavy hit about 1m out.
-- His stamina stunned the team (25 laps, not tired). Daichi has given him the "fridge look" twice.
-- No status card: no rank changed.
-- Next: Ch 3, dawn practice, Tsukishima and Yamaguchi, the 3v3 set up with Sho on Tsukishima's side.
+- Revised Nov 13 (revision pass of ch 1 to 29). No status card.
+- Canon: Hinata and Kageyama argue at the gym; Kageyama serves at Hinata while the vice principal is in the gym; the ball comes off Hinata and knocks off the vice principal's wig, which lands on Daichi's head; Daichi returns it with a bow, then hands Hinata and Kageyama back their forms and throws them out until they act like teammates; they pound on the door, promise to get along, and Kageyama says he'd still rather spike, toss and receive by himself. Kageyama comes up with challenging the 2nd years to a match (theirs, not Sho's). Tanaka asks Daichi for the gym key, and Sugawara notices. Tanaka announces at the window that nobody uses the gym before 7 (canon: so the 2 hear it).
+- Divergence (ours): the wig happens at after-school practice, the day after the ball hits Sho (canon: club day 1); the ball comes off Hinata's forearms (ch 1 used the face). Hinata and Kageyama were at morning practice before the wig. Daichi warns them at 6:50 a.m. ("This club is a team"); in canon he says it when he throws them out. Ennoshita, Narita and Kinoshita appear at this practice (canon introduces Ennoshita at the 3v3). Kiyoko sits at the side with a clipboard, unnamed to Sho (her introduction is ch 4).
+- Invented: Tuesday, the day after ch 1. Morning practice 7 to 8; 6 people (the 2nd years who live far out come only after school). Class 1-5: window row at the back (arc3 ch 31), knocking radiator, the teacher's "Well then", Okada asleep in front of him. Bento with *eat all of it*. Lunch at the vending machines with Kageyama: "You wrote ace." "You can't receive either." "No. Not yet."; Kageyama learned the jump serve in junior high 1st year, bad for a year; "The 1 yesterday was a normal 1. Standing."; "It hit your face." "His elbows bent." "I know that."
+- The form: Daichi reads "'Position,' 'Ace.'" aloud. Tanaka: "Oi. 1st year. You think you can walk in here and be the ace?" "I'd like to be." "Are you the ace, senpai?" "...I'm not technically the ace." "Sorry. You looked like him." Tanaka, to the wall: "Technically." Hinata: "I'm going to be the ace. I told you." "I'd still like to." Daichi: "Any experience?" "In a past life." (said aloud; never the name).
+- 1st practice: receive drill, the 11th ball is his 1st clean pass ("Nice receive!"). Spikes: too early (ball on his head), too late, then 1 heavy hit about 1 m out off the back wall. Tanaka's cross with the late wrist snap; "Teach me." "...2 meat buns." "Big ones." (paid ch 3). 25 laps, not tired; Ennoshita on the stage steps: "Is he a 1st year?" Sugawara: "Have you played before?... So how are you not tired?" "I don't know, Sugawara-san."
+- Tanaka takes the gym key (brass, red string, tag 第二体育館; ch 27: "lived on a red string") to lock up and "open early"; he waits on the stage steps and locks up after Sho and Sugawara (ch 3: he lets Hinata and Kageyama in at dawn).
+- Extra 20 (+5) minutes with Sugawara feeding (throwing, never setting him in a match; P4/06 relies on this): 1 in 6, 1 in 4, 1 in 3, last 1 clean. "Are you a setter?" "I am... So is he. So is Kageyama." "Your tosses are easy to pass." "That's throwing, Kiyose. Setting's harder." Sho mops twice.
+- Behind the gym: bare dirt, the 1 working light above the fire door (ch 3, ch 27). "Provisionally." Hinata: "You got in 1st. On your 2nd day. With your face." Kageyama: "We're going to ask for a match. Tomorrow. Us against the 2nd years. If we win, he has to let us in." Hinata: "And then we're going to WIN." "Don't stand there." Sho watches 20 minutes. Kageyama, at 7: "You're on their side. You know that." "I know."
+- Home: Mom's covered plate, *miso in the pot*. Dad measures him at the kitchen door frame (dictionary flat on his head, pencil line, tape measure): *182. Apr.* Older lines step down the frame, Sho's and Mio's (pink felt-tip, then pencil); the lowest of Sho's, *Sho 4*, at hip height (ch 45). "Saturday."
+- Ace line: the 1 heavy hit off the back wall, and Tanaka's "Again. Me."
+- Next: Ch 3, dawn practice (Tanaka's key), Tsukishima and Yamaguchi, Kageyama asks for the match and Daichi makes it a 3v3.
 
 ## Chapter 3: Dawn reps
 
