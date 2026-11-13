@@ -1,55 +1,84 @@
 You're co-writing "Second Serve", my Haikyuu!! reincarnation webnovel, with me. The repo is ganesh-329/second-serve and you work on branch claude/ecstatic-sagan-930qnw. Commit and push after every chapter, and never open a PR unless I ask.
 
-## The job: revise Arc 1 and Arc 2 (ch 1 to 29) before Arc 4
-Arc 3 (ch 30 to 45, `arc3.md`) is finished and is my preferred style. Arc 4 is planned but on hold.
-- Done (in `arc1.md`): ch 1 to 8. Unrevised chapters are headed "## Old chapter N: title".
-- **Next: ch 9 "Grand King" (from "Old chapter 8").** Then the rest of Arc 1, then Arc 2 (`arc2.md`, ch 16 to 29), which gets its own short planning round first.
-- Read `handofff.md` (status, threads, my rules) and `planning/arc1/BRIEF.md` (every "Author direction" at the bottom). The research is in `planning/arc1/` (01a/01b audits, 02 canon, 03 continuity lock list, 04 soul, 05 matches, 06 shameless, 07 voices, 10 structure). The structure plan's chapter splits and +7 renumber NO LONGER apply (see light touch below); renumber once at the end from the real list.
-- Canon source: the full wiki dump `haikyuufandomcom-20200223-history.xml.7z` in the repo. Rebuild it with `planning/tools/README.md` (needs `pip install py7zr`). Canon is reference only: things change because of Sho.
+Read these files before you write anything:
+- `handofff.md`: the hard rules, the current status, chapter threads and what's next.
+- `story bible.md`. Read these sections first:
+  - Soul sheet
+  - POV chapters
+  - Emperor's Eye power ladder
+  - Eyes as a weapon: the Arc 3 master plan (revised)
+  - The ace path
+  - Arc 3 outline
+  - Status card plan
+  - Dialogue playbook
+- The last 2 chapters of `arc3.md`, for voice and continuity.
+- `planning/arc3/`, for the canon notes (03_canon.md) and the training notes (08_training.md).
 
-## LIGHT TOUCH (most important, learned the hard way)
-My first revisions of ch 1 to 7 stretched the chapters, rewrote them from scratch, and made them worse: flatter, less funny, new errors. So:
-- **If a chapter doesn't need revision, leave it.** Start from the OLD text. Keep its flow, humor, narration and charm.
-- **Change the conversations** (sitcom ping-pong, quips and toppers, Sho's cocky lines, out-of-voice lines, canon talks told as summary that should be spoken) and **fix real errors** (canon, volleyball logic, rotation and serve order, continuity, the eye's rules, banned tics).
-- **Stretch only where a scene truly needs it.** Never pad for a word count. No unnecessary conversations; don't skip important ones.
-- **Always evaluate** the revised chapter against the old one before it goes in: more readable? more soul? anything lost? If anything got worse, fix that first.
-- Keep Sho's inner voice alive (shameless, funny, 1 or 2 anime references a chapter in his head); his spoken lines stay plain and polite.
+## Where we are
+Arc 3 (the Tokyo trip and the Shinzen summer camp) is written up to ch 43 "The last game". It ends at 1 set all against Fukurodani in the camp final. Karasuno has just won set 2, 25-23, on Sho's out-of-system kill, after Hinata turned decoy for him.
 
-## Conversation checklist (every chapter; from `planning/arc1/11_convo_diagnosis.md`)
-1. Write down what each speaker wants right now; every line, Sho's included, comes from that.
-2. Sho brings something: a fact, a flat failure report, a plain ask, a confession. At most 2 bare "I know / Yes / Okay" per scene unless deliberate.
-3. Each other speaker gets 1 line from their Soul sheet that isn't about Sho.
-4. At least 1 conversation per chapter gets a second turn (it keeps going past the first answer).
-5. No unbroken speech over about 50 words; a listener breaks it with a question, an unanswered line or a movement.
-6. Mouth plain; head holds the real reason and 1 or 2 jokes or anime refs. At most 1 "seen it on tape" credential line per chapter, plus 1 Satoshi memory that hurts or warms.
-7. Humor from the situation or someone's sincere logic; Sho's plain asks often get flatly refused.
-8. Before an important reply, let the room make a sound.
-9. If a line repeats 3 times, the 3rd one changes.
-10. Scenes end on the other person's move or an object, never on the narrator explaining Sho's feeling or Sho winning the last word.
+Next is ch 44 "Last ball":
+- Set 3 goes to Fukurodani, as in canon.
+- Sho's map is right on Bokuto's last ball, but his arms aren't enough.
+- Kageyama says: "You were there. All 3."
+- Then the penalty.
 
-## The golden rule
-Chapters are slow and stretched out where it matters, but they must never lag. Every scene earns its length: no idling, no re-explaining, no summary where a scene belongs. Nothing can feel artificial. Every chapter needs soul: characters act from what they want (bible "Soul sheet"). The hook at the end comes out of that soul.
+After that comes ch 45 "Barbecue", the end of Arc 3:
+- The aces talk.
+- The Little Giant line, used once: "Matsumoto. Number 5."
+- Mio names the eye "fast-forward" and moves her magnet to January.
+- Sho pays Mio the 4 puddings he owes her.
+- He starts a new notebook with ace lines on its 1st page.
+- The end status card is in the bible's Status card plan.
+
+## The golden rule (most important)
+Chapters are slow and stretched out, but they must never lag. Every scene earns its length: no idling, no re-explaining, no summary where a scene belongs. Nothing can feel artificial, and every chapter needs soul. Characters act from what they want (see the Soul sheet). The hook at the end of each chapter comes out of that soul.
 
 ## Story rules
-- Sho is an ACE (outside hitter) being built: at least 1 line of the ace per chapter.
-- The eye in ch 1 to 22: partial awakening, fires on its own, shows the hitter's or setter's body (never where the ball lands), never announced aloud (Observation Haki stays in his head), nobody treats it as shocking. Sho is never scared of his power.
-- Never explain the hand symbolism, the Satoshi parallels or the Hinata mirror in prose. Sho never says Satoshi/Matsumoto/"past life" aloud in Arc 1.
-- Shameless = plain, polite asks; asks again once after a no; copies openly; reports his own failures flatly. Never quips, pitches, roasting or winning every exchange.
-- Keep every fact later chapters rely on (`planning/arc1/03_continuity.md`). If a fix needs a fact changed, ask me first.
+- Canon is a starting point. Sho changes matches near him. Canon moments stay with their owners:
+  - Hinata and Kageyama's quick
+  - Tsukishima's blocking and his moonrise
+  - Bokuto's lessons to Hinata
+  - Asahi's jump serve
+  - Yamaguchi's float
+- Sho never gives notes on the new quick and never calls Tsukishima's blocks.
+- Sho is an ACE (outside hitter) being built. Receive, defense and the eye are the all-rounder layer of an ace, never the goal. Put at least 1 line of the ace in every chapter. The strength and ace program starts after camp (Arc 4). See "The ace path".
+- The eye (Emperor's Eye) is pure talent and NOT a debuff. It adapts like a muscle. Nobody treats it as shocking, Sho never announces it, and it shows only through his play. Ukai calls it "IQ". The eye shows the hitter or setter, never where the ball lands after contact. Sho can now invite it in calm moments, and it sometimes comes on its own.
+- POV chapters come only when needed, 1 character each, and never 2 in a row. Ukai (ch 38) was the last one.
+- Never explain the hand symbolism, the Satoshi parallels or the Hinata mirror in prose.
+- No tears from Sho in Arc 3.
 
 ## Style rules (hard)
-- No em or en dashes. No negative parallelisms in any form ("Not X. Y.", "X, not Y", "didn't X, he Y", concession then pivot).
-- **Numbers:** digits for counts and measures ("1 year", "3 steps", "1st year"). **The word "one" stays a word when it isn't a count:** "the one", "this one", "the next one", "no one", "one of them", "one by one", "Can I hit one?". Never "the 1 I'm going to beat".
-- Banned words: delve, crucial, seamless, robust, vibrant, testament, highlight, leverage, showcase, enhance, and the rest of my AI-word list.
-- Banned tics: "for a moment/second/while/long time", "said nothing", "didn't say anything", "didn't look at", "without looking", "without turning", "very quietly", "filed", "Something in his chest", "That was all". Avoid narrator explaining feelings, feeling adverbs, and-chains, button endings, simile overload, kids talking like writers.
-- Every chapter ends with a "**Continuity (ch N)**" block separating canon from invented details.
+- No em dashes or en dashes.
+- No negative parallelisms in ANY form. That means no "Not X. Y.", no "X, not Y", no "It wasn't X. It was Y.", no concession-then-pivot, and no "didn't X, he Y". Say what is.
+- Numbers as digits, including "1st", "2nd" and "the 1 who...".
+- Contractions, short paragraphs, plain and specific words.
+- Banned words: delve, crucial, seamless, robust, vibrant, testament, highlight, leverage, showcase, enhance, and the rest of the AI-word list in my preferences.
+- Banned tics:
+  - "for a moment", "for a second", "for a while", "for a long time"
+  - "said nothing", "didn't say anything"
+  - "didn't look at", "without looking", "without turning"
+  - "very quietly", "filed", "Something in his chest", "That was all"
+- Also avoid:
+  - runs of 1-line stoic paragraphs
+  - the narrator explaining subtext or feelings
+  - mirrored or topper exchanges (A says X, B echoes and tops it)
+  - button endings
+  - kids talking like writers
+- Every chapter ends with a "**Continuity (ch N)**" bullet block that separates canon from invented details.
 
-## Workflow per chapter (keep it lean)
-1. Read the old chapter and its spec/audit notes. Tell me in a few lines what's wrong and what you'll change.
-2. Edit the old text in the scratchpad (targeted replacements, not a rewrite).
-   - **Every chapter, no exceptions: run 1 conversations agent (opus) that works only on the dialogue.** Give it the scratchpad brief (rules, Arc 3 voice models, `07_voices.md`, `06_shameless.md`), the old and draft text, and have it judge every conversation against Arc 3 and return verbatim find/replace passages as finished prose. Check its lines for artificial tells before using them. (Author, Nov 12: "Conversations are the key to a fanfic. If you mess that up it is over." Arc 1 must read as well as Arc 3; revised ch 1 to 5 are still a cut below.)
-3. Grep for dashes, tics, negative parallelisms, numbers and the "one" rule.
-4. Evaluate it against the old version honestly. Use a reviewer agent only when a chapter has match logic or big changes.
-5. Replace it in `arc1.md`/`arc2.md` with CRLF line endings and its new chapter number; update `handofff.md`; commit and push.
+## Workflow for every chapter
+1. Plan it from the bible row and the handoff's "Next" line.
+2. Draft it in the scratchpad.
+3. Grep the draft for dashes, tics and negative parallelisms, and fix them.
+4. Run a strict report-only reviewer agent on it, checking the golden rule, canon, volleyball logic (rotations, front and back row, who serves, scores), continuity and style.
+5. Fix what it finds, or rewrite.
+6. Append the chapter to `arc3.md` with CRLF line endings.
+7. Update the "Next" line in `handofff.md`.
+8. Commit with the attribution lines and push.
 
-Reply to me in plain, short, direct English. Start by reading the files, then do ch 9.
+Ch 41, 42 and 43 went out without the reviewer pass. Run a review on them first and fix anything real.
+
+Reply to me in plain, short, direct English. Check your own grammar. Don't paste back long summaries of what you wrote.
+
+Start by reading the files, then write ch 44.
