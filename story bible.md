@@ -529,6 +529,7 @@ Sho never learns the name. Readers see it on the status cards; in the prose it's
  
 | Stage | When | What it does | Cost / limit |
 | --- | --- | --- | --- |
+| Dormant | Ch 1 to 4 | Nothing yet. Satoshi's analyst habits only (film brain) | None |
 | Partial awakening | 3v3, Hinata's first freak quick | Sho sees Hinata's next step a blink early and digs it. From then on it fires on its own: a faint afterimage of one player's next move, about 0.2s ahead, never on command | Unreliable. Sho can't plan around it, so Ukai can't either |
 | Adapting | Arc 3, Tokyo to the Saitama week | Fires more often, mostly on studied players; can be held 2 or 3 rallies | Soreness that fades, then stops |
 | Conditioned | End of Arc 3 | Fires most rallies when he's settled and the player is studied; he can invite it in calm moments | Tired eyes after a long day, nothing more |
@@ -587,6 +588,23 @@ Emperor's Eye: Partial awakening
 Meta Vision: Film brain
 ```
  
+## Revision of ch 1 to 29 (user decisions, Nov 13)
+
+Ch 1 to 29 are being rebuilt one at a time, from ch 1, before Arc 4 is written. Planning reports: `planning/revision/` (01 to 05 audits, 06 canon, 07 and 08 soul and conversations, 09 structure, 10 fact ledger). The old rule "Don't edit ch 1 and 2" is lifted.
+
+**User, Nov 13:** "The conversations are the soul of chapters. Orchestrate the chapters beautifully." Every interaction has a purpose, a distinct voice and a reason to engage. Relationships grow through what people say, what they avoid saying, their disagreements, their humour and the small ways they answer each other. Surprise POVs where they add a view Sho's narration can't. Chapters breathe; every ending's hook grows out of what happened.
+
+**Decided (user, Nov 13: "Yes to all"):**
+
+- **Chapter count: Option B (+5).** Splits: old 7 (into "Blue castle" and "Bottle cap"), old 10 (into "The ace who left" and "40 yen"), old 13 (into "Rice cooker" and "Prime number"), old 16 (into "Bracket" and "Fly"), old 22 (into "1 finger" and "Set 2"). Arc 1 becomes ch 1 to 18, Arc 2 ch 19 to 34, Arc 3 ch 35 to 50, Arc 4 ch 51 to 72. The old-to-new map is in `planning/revision/09_structure.md` section 2.3; it gets frozen as `planning/revision/CHAPTER_MAP.md` before ch 7 is revised, and the renumbering follows that report's section 3.3 method. Historical planning reports keep their old numbers. Until the renumbering is done, chapter numbers everywhere are the old ones.
+- **POVs before ch 23 are allowed.** Old ch 12 "Call for the ball" (new ch 14) becomes a **Suga POV**. A Daichi POV during Golden Week stays optional.
+- **Exam pass line stays 30** (canon is 40). It's the fic's line; ch 29 to 31 rely on it.
+- **Aone stuffs Sho twice in ch 19**, and Sho tools a block with Aone in it, to match ch 38 and the Arc 4 plan.
+- **Nekoma practice match: 3 games** (canon: 25-22, 25-23 / 25-22, 26-24 / 27-25, 32-30), fixed in ch 15.
+- **Sho plays the wing (outside hitter)** in the Seijoh practice match and after, never a hidden opposite (ch 7 to 10).
+- **Canon fixes:** Seijoh plays 2 more matches the same afternoon after beating Karasuno (ch 25, 26 lose "Ushiwaka next"); the Inter-High final is 22-25, 23-25 with no deuce (ch 28).
+- **Ch 1:** the red-car bit is cut, so ch 6 drops "Red car still on?".
+
 ## Canon and divergence (Oct 30, second pass)
 
 The user's call: the fic had turned into canon with a guy on the bench. Every chapter was mapped to a canon chapter range, the scores were fixed in advance, and Sho was only allowed to "offer a small unsure observation". That is over. These rules replace it.
@@ -725,7 +743,9 @@ Each entry is the thing under the voice: what the person wants, what hurts, what
 
 - Up at 4:40 making onigiri. Doesn't ask, notices everything. Covered plates, "Before the bath."
 
-## POV chapters (from ch 23)
+## POV chapters
+
+**User, Nov 13:** surprise POVs may now come before ch 23 too (old ch 12 becomes a Suga POV). Give each POV its own motive and a perspective the main narration can't provide.
 
 **User, Oct 30 (after ch 24):** no fixed schedule. POV chapters come as surprises, only when a moment really needs someone else's eyes, sprinkled along the way. Most chapters stay with Sho. Never 2 POV chapters in a row. Ch 23 (Mio) is the model.
 
