@@ -8,273 +8,505 @@ Arc 2 chapters: https://claude.ai/artifact/Vb8jKuNfrZmwMYVo927Uwv
 
 ## Chapter 1: Ball to the face
 
-Kiyose Sho had one rule for club recruitment week: keep walking.
+Kiyose Sho had 1 rule for club recruitment week, and it was to keep walking.
 
-Every hallway at Karasuno was lined with flyers and second years who wanted his name on something. Brass band. Calligraphy. A boy in full kendo armor bowed at him like it was the start of a duel. Sho bowed back, took the flyer, and dropped it in the next bin.
+It was the 1st Monday of it, and Karasuno's corridors were full of people who wanted his name. A 2nd year with a trumpet case stood at the top of the stairs saying "Brass band, brass band" to every 1st year who passed. The calligraphy club had a table by the shoe lockers with a brush and an ink stone on it and a sign that said TRY IT! in very good handwriting. A boy in full kendo armor bowed at him from the doorway of the old judo room.
 
-He'd done clubs before. Soccer at 9, quit at 10. Swimming at 10, quit at 11. Kendo lasted 4 months, right up until he worked out that the older kids were allowed to hit you as hard as they liked. By 12 he'd retired from sport completely, like a boxer with a very short career and very soft hands.
+Sho bowed back. He took the flyer. He put it in the bin by the vending machines, folded once, on top of the brass band.
 
-The problem was his mother.
+He knew how clubs went. Soccer at 9, because his friend Daisuke did soccer, until Daisuke moved to Nagoya. Swimming at 10, until the coach started timing them. Kendo at 11, for 4 months, until a 13-year-old hit him on the wrist so hard he couldn't hold chopsticks, and he understood that the older kids were allowed to do that, and would keep doing it, and that the point of kendo was to get better at being hit. He'd stopped going. Nobody had made a fuss. By 12 he'd stopped trying new ones, and by 15 nobody asked anymore except his mother.
 
-"Just try one," she'd said that morning, holding out his bento like a bribe. "Something you'd actually enjoy."
+She'd asked that morning, holding out his bento.
 
-"I enjoy going home."
+"Just try 1," she'd said. "1 thing. Something you'd actually like."
+
+"I like going home."
 
 "That's not a club, Sho."
 
-From behind her cereal bowl, Mio had added, "Do something cool for once. Kaho's brother is in a band."
+Mio had looked up from her cereal. She was 10 and still had her pajama top on over her skirt, which was how she got dressed when she was running late, from the bottom up. "Do something cool," she'd said. "Kaho's brother's in a band."
 
-Mio was 10. She had no mercy and an excellent memory, which is a bad combination in a little sister.
+"Kaho's brother is 19."
 
-So the entry form sat folded in Sho's blazer pocket, blank, while he cut behind the main building toward the gyms. It was the long way to the gate. It was also the way with the fewest flyers.
+"So?"
 
-Shouting came from the Second Gymnasium.
+He hadn't had an answer to that. The entry form had come home in his bag on Friday, and it was in his blazer pocket now, folded in 4, blank. Every 1st year got 1. You were supposed to hand it in by the end of the month.
 
-"Receive it properly, dumbass!"
+He went out the back of the main building, the long way round to the gate. It went past the gyms and the bike sheds and the incinerator, and nobody stood on that path with flyers, because nobody walked it. The cherry trees along the fence had buds on them, tight and dark pink, about a week from opening. The air was cold in the shade and warm in the sun, and he had his hands in his pockets and was thinking about whether the konbini by the station would still have nikuman this late in the season, or whether they'd switched the steamer over to the summer things.
+
+Shouting came out of the 2nd gym.
+
+"Receive it properly!"
 
 "I AM receiving it properly!"
 
-The big sliding door stood half open. Sho slowed down, and he couldn't have told you why. Rubber squeaking on wood. The hard slap of a ball. He'd heard those sounds in PE a hundred times and never once cared.
+"Then why is it going over there?"
 
-He stopped at the door.
+"BECAUSE YOU SERVED IT WEIRD!"
 
-A dark-haired boy stood behind the far end line, bouncing a ball, with a face like a storm warning. On the near side of the net, a tiny kid with orange hair crouched with his arms out, braced to take a hit from a truck.
+The big sliding door was half open. Sho slowed down, because it was the way to the gate and the voices were in the way, and because 1 of them sounded about to cry.
 
-The dark-haired one tossed, stepped in, and served. The ball came off his palm flat and fast, and the orange kid got his arms on it.
+He looked in.
 
-Barely.
+The gym was the old kind, wooden floor gone honey-colored, the paint on the lines worn through in the places people stood most. A net was up across the middle. On the far side, behind the end line, a dark-haired boy in a gym shirt was bouncing a ball with the flat of his hand, hard, the same height every time. On the near side a small kid with orange hair stood in a crouch, knees bent, arms out in front of him, his whole body pointed at the server.
 
-It came off his forearms at an angle nobody on earth would have chosen, screamed across the gym, and flew straight out the door.
+"I'm going to beat you," the orange kid said. "I'm going to beat you and I'm going to be Karasuno's ace."
 
-Sho saw it for about a tenth of a second, which was just long enough to think: oh, that's going to hurt.
+"You can't even receive."
 
-It hit him square in the face.
+"I CAN RECEIVE."
+
+The dark-haired 1 tossed the ball up and stepped into it and hit it. It came over the net hard and dipping, with a lot of spin on it, and the orange kid got his arms under it, and it went off his arms sideways into the wall.
+
+"See?"
+
+"That was a practice 1!"
+
+Sho stood in the doorway and watched them do it again. Serve, receive, wall. He'd seen volleyball in PE. He'd been on a team of 6 boys who all stood still and let it land between them. This looked about the same, louder, and he was mostly thinking that if he went round by the bike sheds he'd still make the 4:20 light at the crossing.
+
+The dark-haired 1 served again. Harder.
+
+The orange kid's elbows bent as the ball came in. It hit the inside of his left forearm and came off it at an angle, fast, low, straight at the door.
+
+Sho saw it come. He saw the blue and the yellow turning over each other, and had about enough time to think *oh*.
+
+It hit him in the face.
 
 ---
 
 White.
 
-Then everything at once.
+Then a gym. Bigger, with a curved roof and windows high up full of gray Osaka sky, and the floor wax smell so strong it was almost a taste. A setter's voice, a man's voice, shouting "Matsumoto!" and the ball going up over the net, high and soft, hanging at the top of its climb right where he wanted it, the way it hung when the setter had looked at you and decided you were the 1. His own arm going back. His own hand.
 
-A gym in Osaka that smelled of floor wax. A setter yelling "Matsumoto!" and the ball hanging right where he wanted it, high and soft and his. The pop in his left knee at 20, so loud the bench heard it. Crutches. A narrow room full of monitors. Tape at quarter speed: a hitter's shoulder, a setter's hips, 9 years of rewinding other people's rallies because he couldn't play his own anymore. A cold can of coffee. A clock in the corner of the screen reading 3:14 a.m. His thumb on the rewind button, and his heart doing something wrong.
+A sound in his left knee like somebody snapping a pencil, so loud the bench heard it.
+
+Crutches in a hospital corridor. A rehab room with a mirror. The same knee, 6 months later, 12, and a doctor saying *recreational level* in the voice doctors use for the end of something.
+
+A narrow room with 3 monitors and the blinds down. A hitter's shoulder on the screen, frozen. A setter's hips. A league's worth of other people's rallies, rewound and played, rewound and played, at quarter speed, for 9 years. A can of coffee gone cold on the desk. His thumb on the rewind button. The clock in the corner of the middle screen: 3:14 a.m.
+
+His heart doing something it shouldn't, all at once, hard.
 
 Then nothing.
 
 ---
 
-"...alive? Hey! HEY! Are you alive?!"
+"Hey."
 
-A face full of orange hair blotted out the sky.
+Sky. Pale blue, with a long flat cloud across it.
 
-Behind it stood the dark-haired server, frowning down at Sho as if getting hit had been rude of him.
+"HEY. Are you alive? Hey!"
 
-Sho lay on the concrete and did the math.
+A face came into the sky. Orange hair, wide brown eyes, mouth open.
 
-He was Kiyose Sho. 15. First year at Karasuno. His mother packed too much rice, his father hummed while he shaved, and his sister hid his phone charger whenever she was losing an argument. He knew all of that the way he knew his own hands.
+Sho lay on the concrete outside the 2nd gym and didn't move, because he was busy.
 
-He was also Matsumoto Satoshi, 29, college ace turned video analyst. Dead at his desk, judging by the timestamp.
+He was Kiyose Sho. He was 15. He lived in a 2-story house 6 minutes from the school gate with his mother, who packed too much rice, and his father, who hummed in the bathroom while he shaved, and his sister, who hid his phone charger whenever she was losing an argument. He was in class 1-5. He'd quit kendo. He knew all of that the way he knew which stair at home creaked.
 
-Both lives sat in his head like 2 tapes on the same shelf. Neither felt borrowed. That was the strangest part.
+He was also Matsumoto Satoshi. He'd been 29. He'd been a wing spiker at university until the knee, and then he'd watched tape for a living, and then he'd been sitting at his desk at 3:14 in the morning with his thumb on a button.
 
-"I'm so sorry!" The orange kid bowed so fast he nearly headbutted Sho's knee. "That was my receive! I mean, it was his serve, but it was my receive, which technically means..."
+And then he hadn't been.
 
-"It was your receive," the server said.
+He looked at the cloud. He knew what had happened in that room. Nobody would have been there. The light from the monitors on his face all night, and the tape running, and the cleaner opening the door at 6 with the vacuum.
+
+He'd died. He'd died, and here was a cloud.
+
+Both lives sat in his head, side by side. They didn't argue about it. The 15 years were his, the mother and the rice and the stair, and the 29 years were his too, the knee and the room and the clock. It felt like remembering, the plain way you remember where you left your shoes, and that was the part he couldn't get his mind around, lying there on the concrete with a cloud going over.
+
+Something warm ran out of his nose and over his lip.
+
+"You're bleeding! Oh no. Oh no, oh no. I'm so sorry!" The orange kid dropped into a bow so deep and so fast that his forehead nearly hit Sho's knee. "That was my receive! I mean, it was his serve. But it was my receive. But his serve was really..."
+
+"It was your receive," said a voice from the doorway.
 
 "I KNOW IT WAS MY RECEIVE."
 
-Sho sat up. His nose throbbed. Something warm ran over his lip, and he wiped it with the back of his hand. A little blood. He'd had worse in kendo, from a 13-year-old.
+Sho sat up.
 
-The ball sat on the concrete beside his knee.
+The world swung once and came back. He touched his upper lip, and his fingers came away red. He looked at his hand. It was a big hand, square in the palm, the nails short. A 15-year-old's hand, soft on the inside where Satoshi's had been hard as a shoe sole from 12 years of balls. It was the right hand, and it was his, and he turned it over to look at the back of it.
+
+"Are you okay?" said the orange kid. "Can you see? How many fingers?" He held up 3.
+
+"3," said Sho.
+
+The dark-haired server had come out onto the concrete. He was about Sho's height, with a face that looked like it was frowning even when it wasn't. He stood over them with the ball he'd been bouncing still under his arm.
+
+"Is he okay," he said to the orange kid, as if Sho were somewhere else.
+
+"I don't know! I'm asking!"
+
+Sho opened his mouth and found that what he wanted to say was *Your elbows bent. Lock them, and move your feet 1st*, and that it was in Satoshi's voice, a grown man's voice, tired, at 3 a.m. He shut his mouth again.
+
+"I'm okay," he said, in his own. "Sorry. I was in the way."
+
+The server looked at him a bit longer. Then he nodded, once, and went back inside.
+
+The ball that had hit him was by his knee. It had rolled to a stop against his leg, and sat there, blue and yellow, the panels a little gray along the seams from a gym floor.
 
 He picked it up.
 
-His fingers closed over the panels, and heat went straight through his chest. He wanted to play. He wanted it so badly his palms itched. 5 minutes ago he'd been planning the fastest route home, and now he wanted to walk into that gym and stay until they turned the lights off.
+It was the most ordinary feeling in the world. A volleyball, 260 grams or so, soft, the leather slightly tacky. His fingers went to the seams by themselves, the way your feet find the stairs in the dark, and the moment they did, he wanted to play so badly that his palms hurt with it.
 
-Satoshi had loved volleyball the way you love an ex you never got over, with a limp in it. Sho's version was new and loud, and it scared him a little how good it felt.
+Satoshi had loved volleyball carefully, from the edge of the room, for 9 years. Now a 15-year-old body that had never wanted anything wanted this, all at once, with the volume turned all the way up. 10 minutes ago he'd been thinking about nikuman.
 
-Then Satoshi's half of his brain did what it had done for 9 years. It took the last 10 seconds apart.
+He held on to the ball.
 
-The serve: tossed slightly in front, hit at the peak, flat with a little topspin. Good mechanics. Scary mechanics, for a first year. The receive: the orange kid's elbows had bent, so the ball skidded off the inside of his left forearm and went wherever it liked. Which, today, was Sho's face.
+Under the wanting, the other half of his head was doing what it had done for 9 years, all on its own. It ran the last 10 seconds back. The serve: a hard topspin serve, tossed a little in front, hit right on top of the ball so it dipped. A serious serve for a 1st year. The receive: the orange kid's elbows had bent as the ball arrived, and the ball had hit the soft inside of his left forearm, off the edge of the platform, and skidded off at whatever angle it liked. Feet set too late. Arms swinging up at it. Every beginner did it, and every tired pro did it at the end of a long 5th set, and Satoshi had written *platform* in the margin of more scouting reports than he could count.
 
-"Your serve," Sho said, looking up at the dark-haired one. "Nice toss. But you aimed at his chest, and he's tiny. So you basically served at his face."
+"Oh no. Was that our ball?"
 
-The server blinked. "...Who are you?"
+A 3rd year had come round the side of the gym at a jog, carrying 2 more balls under his arm. He had soft gray hair and a beauty mark under 1 eye, and he took 1 look at Sho's face and winced.
 
-"Your victim." Sho held up his bloody hand like evidence. "So. Since you two broke my face."
+"It was his receive," said the orange kid, pointing at himself. "Mine. I'm sorry. Sugawara-san, I'm so sorry."
 
-"We said sorry!" said the orange kid.
+"Hinata. Okay. Breathe." The 3rd year put the balls down and crouched in front of Sho. "Hi. Don't tip your head back. Forward. Like this." He put 2 fingers on the back of Sho's head and pushed it gently down. "Pinch here. The soft part. Hinata, there's tissues in my bag. Front pocket."
 
-"He said sorry," said the server.
+Hinata ran.
 
-"Sorry is nice. Sorry doesn't fix noses." Sho got to his feet. He was a couple of centimeters taller than the server, he noticed, and a whole head over the orange kid. "Let me hit one. Compensation."
+"I'm Sugawara," said the 3rd year. "I'm really sorry about this."
 
-"No," said the server.
+"Kiyose," said Sho, through his pinched nose. It came out *Kiyobe*. "1st year."
 
-"Sure!" said the orange kid.
+Hinata came back with a whole packet of tissues and gave him all of them. Sugawara rolled 2 into plugs and Sho put them in, 1 each side, and sat on the step of the gym with the tissue sticking out of his nose and the ball on his knee.
 
-"It's not your gym, dumbass."
+Hinata stood in front of him. He couldn't keep still. He bounced on his toes and then made himself stop and then bounced again.
 
-"It's not YOUR gym either!"
+"Are you joining?" he said. "Are you a 1st year? Me too. 1-1. I came from Yukigaoka. Nobody's heard of it. We didn't have a team, really. It was just me for ages and then 3 1st years joined and I borrowed 2 more and we played 1 match. 1. In 3rd year." He pointed through the door, at the dark-haired 1, who was back at the end line, bouncing his ball. "Against his school. Kitagawa Daiichi. They won 2-0. He was the setter."
 
-"What's going on out here?"
+"Ah," said Sho.
 
-A third year with soft gray hair and a beauty mark under one eye leaned out of the doorway. He took one look at Sho's lip and winced. "Oh no. Was that our ball?"
+"So I came here to beat him, and he came here too, which isn't FAIR, and now we're on the same team. Nearly. If we're allowed." Hinata's eyes went up, to the top of Sho's head, and stayed there. "How tall are you?"
 
-"It was his receive," the server said immediately.
+"182."
 
-"Kageyama," the third year said, with a sigh that had clearly been sighed before.
+"182!" Hinata looked up at him, and then up at the place 182 would be if Sho stood, and his face did something complicated. "You'd be such a good middle. You should be a middle. You'd block everything." He stopped bouncing. "I'm going to be the ace, though. So you know."
 
-So the server was Kageyama. The orange one was Hinata, since he spent the next 30 seconds introducing himself, apologizing, and asking Sho's height, in roughly that order. The third year was Sugawara, and he made Sho sit on the step while he fetched a wet towel.
+"Okay," said Sho.
 
-"You're a first year?" Sugawara asked, pressing the towel into his hand.
+"I mean it!"
 
-"Kiyose Sho. First year."
+"I know."
 
-"Looking for a club?"
+Sugawara was looking at Sho over Hinata's head. His eyes went to the ball on Sho's knee, and to Sho's hand on top of it, and away again.
 
-Sho thought about the blank form in his pocket. About the heat in his chest that hadn't gone anywhere.
+"Hinata. Go and get the mop. Kageyama's going to want to do 50 more."
 
-"I think I just found one."
+Hinata went.
 
-Sugawara's eyes went bright. "Really? Do you have any experience?"
+Sugawara sat down on the step.
 
-How did you answer that? Yes, about 12 years of it, ending in a knee reconstruction and a heart that quit at a desk. Also no, none, this body has touched a volleyball exactly once and it used its nose.
+"You're a 1st year," he said. "Are you looking at clubs?"
 
-"Some," Sho said. "Theoretical."
+The form was in his pocket, folded in 4. Sho could feel the corner of it through his shirt.
 
-Inside the gym, Hinata had already wandered back to the net. Kageyama tossed a ball up over it, not even for him, just to reset. Hinata went after it anyway.
+"I wasn't," he said.
 
-He jumped.
+"Oh." Sugawara smiled. "Okay."
 
-Sho's mouth fell open a little. The kid couldn't have been more than 163 centimeters, and his hand went well above the tape. Satoshi had watched thousands of hours of V.League middle blockers, and something in his gut said that vertical was a typo in nature.
+"I think I am now."
 
-Hinata landed, whooped, and got yelled at by Kageyama for showing off.
+Sugawara turned his head and looked at him properly. He had a way of looking that took its time.
 
-"Bring your form tomorrow morning," Sugawara said. "Our captain, Daichi, will want to meet you."
+"Do you have any experience?"
 
-"Great. Can I keep the ball?"
+Sho thought about how to answer that. Yes. 12 years. A university gym in Osaka and a knee and 9 years of tape. And no, none. This body had touched a volleyball in PE, badly, and once more just now, with its face.
 
-"No."
+"Some," he said.
 
-"Can I borrow it? As collateral. In case my nose gets worse overnight."
+Sugawara waited, and Sho had nothing else he could say, so they sat there. Inside, the ball hit the floor, the same sound every time.
 
-Sugawara laughed and took the ball back with a firm, friendly hand. "Nice try."
+"We're a bit short this year," Sugawara said. "We'd be glad to have you. Practice is in the morning before school and after school till 6. Club doesn't properly start till the forms are in. Those 2 just couldn't wait." He tipped his head at the door. "Bring yours tomorrow, early, if you can. Our captain's Daichi. Sawamura. He'll want to meet you."
+
+"Thank you," said Sho. "I will." He looked at the gym. "Can I sit here and watch? Till you finish?"
+
+"With your nose like that?"
+
+"I'll sit still."
+
+Sugawara laughed. "Sure. Till 6. Then go home and put ice on it."
 
 ---
 
-Home was a 6-minute walk. Sho did it in 5, because his legs wanted to run and he let them.
+He sat on the step till 6.
 
-Halfway there he stopped under a streetlight and looked at his hands. Normal hands. A bit big. No calluses.
+The sun went down behind the clubhouse and the light in the gym went from gold to the flat white of the ceiling lamps. The cold came up out of the concrete through his trousers. Sugawara went back in, and set balls for the 2 of them, high ones, easy ones, and Hinata hit them into the net and over the end line and once, by luck, into the court, and screamed. Kageyama served, and Hinata received, and the ball went everywhere.
 
-So was this a past-life thing? A Naruto thing? If he concentrated hard enough, would a fox start talking to him?
+Sho watched it all. He watched the way Kageyama's whole body went still before he served, like a held breath. He watched Sugawara's hands. He watched Hinata's feet, which were fast and in the wrong place, every time, and his arms, which were wrong in a new way every time. His nose throbbed.
 
-He concentrated. Nothing talked.
+At 10 to 6, Kageyama walked to the net and tossed a ball straight up, high, for nobody in particular.
 
-"Disappointing," he told the streetlight, and kept walking.
+Hinata went after it.
 
-His mother opened the door before he got his key out.
+He ran from the 3-meter line, 3 steps, and his last 2 were so fast they blurred, and he left the floor, and kept leaving it. Sho watched him go up. 163 centimeters of kid, maybe, and his hand went up past the tape, and past it, and his whole head came above the net, and at the top his hand came round and slapped the ball down into the floor on the other side with a bang that went round the roof.
+
+Satoshi had spent 9 years watching V.League middles on a screen. He knew what a jump looked like when it was good. He sat on the step with the tissues in his nose and tried to work out where that 1 had come from, and the numbers wouldn't add up.
+
+Hinata landed and screamed "YES!" at the ceiling. Then he turned round, to the door, and pointed at Sho.
+
+"DID YOU SEE?"
+
+"I saw," said Sho.
+
+"Stop showing off and get the net," said Kageyama.
+
+"I was showing HIM!"
+
+They put the net down at 6. Sho stood up. The world swung again, a little, and settled. He went to the door with the ball still in his hands.
+
+"Sugawara-san," he said. "Can I keep the ball?"
+
+"No."
+
+Sugawara held out his hand, still smiling, and waited. Sho looked at the ball, and at the hand. Then he gave it back. Sugawara took it with his fingers spread on the panels, the way setters hold a ball, and tucked it under his arm.
+
+"Tomorrow," he said.
+
+---
+
+Home was 6 minutes. He ran it in 4.
+
+His legs wanted to, so he let them, and he went up the hill past the dry cleaner's and the shrine with the 1 stone fox and the house with the dog that barked at everybody, and the dog barked at him, and he ran past it with the tissues still in his nose and his bag banging on his back. He wasn't out of breath at the top. He noticed that, and kept going.
+
+At the corner by the vending machine the streetlight had just come on. He stopped under it and looked at his hands again. Normal hands. A bit big. No calluses. If this were Naruto there'd be a fox sealed in his stomach, and if he concentrated hard enough it would start talking to him. He tried it. A cat came out from under a car and looked at him and went back under the car.
+
+He walked the rest of the way.
+
+"Tadaima."
+
+His mother came out of the kitchen before he'd got his 1st shoe off. She was wiping her hands on a towel, and she stopped in the hallway when she saw him.
 
 "What happened to your FACE?"
 
-"I got in a fight with a volleyball."
+Behind her, Mio came to the living room door in her socks. She looked at him, at the swelling across his nose, at the 2 plugs of tissue sticking out of it, red-brown at the ends.
 
-"Who won?"
+"Did a girl hit you?"
 
-"The volleyball."
+"A boy with orange hair," said Sho. "With a ball. By accident. I was standing in the door."
 
-"Sho!"
+"Why were you standing in the door?"
 
-From the living room, Mio called, "Did a girl hit you?"
+"I was watching."
 
-"A first year with orange hair hit me. With a ball. By accident." He toed his shoes off. "It's fine. I'm joining the volleyball club."
+Mio looked at the tissue as though it might explain better.
 
-Silence.
+"Is it broken? Let me see." His mother came and took his chin in her fingers and turned his face to the light, the way she had when he was 6 and fell off the wall at the park. Her fingers were cold and smelled of onion. "It's swollen. Take those out."
 
-His father leaned out of the kitchen with a ladle in his hand. Mio appeared in the hall doorway in her socks, staring at him like he'd announced he was moving to the moon.
+He took the plugs out. His mother made a noise and took them off him with the towel, and went to the freezer. There was no ice in the tray, because there never was, so she came back with a bag of frozen edamame in a dish towel and held it out. He put it on his nose. It was cold enough to make his eyes water.
 
-"You," Mio said. "Volleyball."
+"Sit down," she said. "Your father made curry."
 
-"Me. Volleyball."
+---
 
-"You'll quit by Golden Week."
+His father was at the stove in his work shirt with the sleeves rolled up, stirring the pot with a ladle. He made curry on Mondays because Monday was the day he got home 1st, and he made it the same way every time, out of the box, with extra potato, and it was always good. His newspaper was folded small on the corner of the table, the way he left it when he'd only read half. He looked round when Sho came in with the edamame on his face, and his eyebrows went up and stayed up.
 
-"Bet," said Sho. "Your pudding cups. All of them."
+"Volleyball," said Sho.
 
-Mio narrowed her eyes. She'd been running a pudding-based economy since she was 6. "Deal. And if you quit, I get your room."
+"Mm," said his father, and went back to the pot.
 
-"Your room is bigger than mine."
+They sat. The table was the same table, with the same burn mark by his place from the hot pot 3 New Years ago, and the same 4 chairs, and the TV on low with the news. His mother put the curry down in front of him. The steam came up into his face, sweet and brown, with the carrots cut too big the way his father always cut them.
 
-"I want both."
+Satoshi had eaten alone for 9 years. Konbini bento at 1 in the morning in front of a screen, the plastic lid on the desk, the chopsticks still in their paper because he'd forgotten them. Some weeks he hadn't said a word out loud to anybody until Wednesday. He knew how quiet that room had been, because he could hear it now, here, under the news and his mother's chair scraping and Mio humming something from school.
 
-Dinner was curry. Sho sat at the table while the 3 of them talked over each other. His father wanted to know if volleyball was the one with the net or the one with the hoop. His mother wanted to put ice on his nose. Mio wanted to know if there were cute girls in the club, purely for research.
+He put his hands together.
 
-Satoshi had eaten alone for 9 years. Convenience store bento at 1 a.m., match tape on the screen. He knew exactly how quiet that room had been.
+"Itadakimasu," he said.
 
-Sho looked down at his rice for a while, so nobody would see his face.
+He said it properly. He heard himself do it: both hands, a little bow of the head, the whole word, every syllable.
 
-"Is it bad?" his mother asked softly. "Your nose?"
+Across the table, Mio stopped with her spoon in the air.
+
+She looked at him. He picked up his own spoon and started eating. After a while she started eating too, but she kept looking.
+
+"So," said his mother. "Who was it? With the ball?"
+
+"A 1st year. Hinata. And another 1, Kageyama, who served it. And a 3rd year, Sugawara-san. He gave me the tissues." He ate a piece of potato. "They're the volleyball club."
+
+"That was nice of him."
+
+"Yeah." He put his spoon down. "I'm going to join."
+
+The TV went on talking about rain in Kyushu.
+
+His father had been about to say something. Sho saw it before it happened: his father's mouth started to open and his eyes came up from his plate, and then he closed his mouth again and looked at Sho.
+
+His mother put her own spoon down.
+
+"Since when," said Mio, "do you like volleyball?"
+
+"Since today."
+
+"You'll quit," Mio said. She said it as a fact, the way she said the bus came at 7:40. "By Golden Week."
+
+"I won't."
+
+"You did kendo for 4 months."
+
+"I know."
+
+"You said kendo was your thing. You said it at dinner. You said it right there." She pointed with her spoon at his chair. "And then you stopped going and you said it was stupid."
+
+"It was," said Sho. "For me. It was stupid for me."
+
+"And swimming."
+
+"That was 10."
+
+"And soccer."
+
+"Mio," said their mother.
+
+"I'm just saying." Mio put her spoon down too, now, so that all 3 of them had, and only their father was still eating. "I'm saying he'll quit by Golden Week."
+
+Sho looked at her. She was sitting up very straight on her chair with her chin out, and her ears had gone pink at the tops. She looked about as sure as anybody had ever looked about anything.
+
+He'd quit kendo in July. He remembered that now. He remembered her standing in the hallway in her summer pajamas when he came back from the last practice he went to, and him walking past her up the stairs, and her asking if he'd won, and him saying he wasn't going anymore. She'd been 6. He hadn't thought about it once since.
+
+"Bet," he said.
+
+Mio blinked. "What?"
+
+"Your pudding cups." She had a row of them in the fridge, the little ones with the caramel at the bottom, 4 of them, lined up on the door shelf where everybody could see them and nobody was allowed to touch them. "If I'm still going after Golden Week. All of them."
+
+She thought about it. She thought about it hard. He could see her doing it.
+
+"Deal," she said. "And if you quit, I get your room."
+
+"Okay."
+
+"Okay?" She looked at their mother, as if their mother might stop it. Their mother was looking at Sho. "It's a bet, then. You can't take it back."
+
+"I won't."
+
+Mio got down from her chair. She went to the fridge, where the calendar hung on the door, the free 1 from the bank with the whole year on 1 sheet and a photo of Matsushima across the top. She took a magnet off the corner of it, round and red, with the bank's logo in white. She found May, and found Golden Week, and put the magnet on it, right in the middle, and pressed it flat with her thumb so it wouldn't slide.
+
+Then she came back and sat down and picked up her spoon and went on eating.
+
+Their mother watched her do it. Then she watched Sho, and Sho ate his curry.
+
+"Volleyball," said his father, after a while. "That's the 1 with the net."
+
+"Yes."
+
+"Mm." His father ate a carrot. "Over the net. With your hands."
+
+"Yes."
+
+"Mm."
+
+He went back to the news. He was eating slowly, the way he ate when he was thinking about work, and every so often his eyes came off the TV and went to Sho's nose.
+
+Sho put the edamame down and looked at his rice.
+
+His mother bought it from the same shop every time, from a man in Natori whose family grew it, and she always made too much, and Sho had eaten it every day of his life. The bowl was warm in his hand. The steam had made the rim wet.
+
+"Is it bad?" his mother said. "Your nose?"
+
+He looked up.
 
 "No," he said. "It's good. Everything's good."
 
-Then, because 29 years of life had taught him to strike while the curry was hot, he turned to his father.
+She looked at him a bit longer than she usually did. Then she nodded, and picked up her spoon, and asked Mio about her math test, and Mio said it was fine.
 
-"Dad. I'm going to need proper shoes."
+When the curry was finished and his father had got up to put the pot in the sink, Sho said, "Dad."
 
-"Shoes?"
+His father turned round with the pot in both hands.
 
-"Volleyball shoes. Gum soles. Ankle support." He put down his spoon. "Think of it as an investment. When I go pro, I'll buy you a car."
+"If it's all right," Sho said, "I'm going to need shoes. Volleyball ones. The kind with gum soles, for the gym floor. And knee pads." He stopped. "If it's all right. I'll use them. I'm going to use them."
 
-His father considered this. "What kind of car?"
+His father looked at him over the pot.
 
-"Don't encourage him," his mother said.
+"How much are they?"
 
-"Whatever kind you want," Sho said.
+"I don't know yet. I'll look."
 
-"Red?"
+"Mm." His father put the pot in the sink and ran the water into it. "Saturday," he said to the window.
 
-"Any red you can imagine."
+"We'll see on Saturday," said his mother.
 
-His mother sighed and said they'd see about it on Saturday, which in Kiyose household law meant yes.
-
-Mio watched the whole thing with the face of someone taking notes.
+Mio was looking at the magnet on the fridge.
 
 ---
 
 He couldn't sleep.
 
-At 10:40 p.m. he gave up, dug through the hall cupboard, and found a soft old volleyball from a family trip to the beach years ago. He pumped it up with the bike pump and took it out to the side of the house.
+He lay in bed with the light off and both lives going round in his head, the clock at 3:14 and the clock on his own desk, which said 10:31, then 10:36, then 10:40. At 10:40 he gave up and got up and went downstairs in his socks.
 
-Wall passes. The most boring drill in the sport.
+The hall cupboard had the vacuum in it and the umbrellas and the box of things that didn't have a place. Under the box, flat and soft and gray with dust, was a ball. A volleyball, an old soft 1, from a beach trip when he was 7. He remembered his father throwing it to him in the shallow water and him missing every time and crying, and his father laughing and saying it didn't matter.
 
-The first one went into the hedge.
+He found the bike pump by the back door and pumped it until it was hard and took it out to the side of the house, where the wall had no windows, only the drainpipe and the gas meter and the light from the kitchen coming round the corner.
 
-He knew why. His elbows had bent. Satoshi's brain wrote the correction before the ball even landed: lock the arms, angle the platform, move your feet first. Sho's body read the memo and threw it away.
+Wall passes. The most boring drill there was. You stood 3 meters from a wall and passed the ball against it and passed it again when it came back, and you did it 1,000 times, and every coach in Japan made every beginner in Japan do it until they hated walls.
 
-The second one hit the gutter.
+The 1st 1 went into the hedge.
 
-The 3rd came back to him clean, and he nearly shouted.
+He knew why. His elbows had bent at the last instant, like Hinata's. Satoshi's half of his head had the correction ready before the ball landed: lock your arms, thumbs together, angle the platform, move your feet 1st so your arms don't have to. Sho's arms heard all of that and did whatever they liked.
 
-He did 200. Maybe 40 were clean. His forearms went red and blotchy, and he wasn't even breathing hard, which was strange. This body hadn't done anything harder than climb to a 3rd floor classroom in 3 years. It should have been dying.
+The 2nd 1 hit the gutter and came down on his head.
 
-At 11:15, a window slid open upstairs. "Kiyose Sho, it is a SCHOOL NIGHT."
+The 3rd came back to him clean. Off the wall and into his arms and back up, a little arc, the height he'd sent it, and he nearly shouted.
 
-"5 more!"
+He kept going. He did 200. Maybe 40 were clean. The ball got away from him and he chased it into the hedge and out of the hedge and once under his father's car, and his forearms went red, then blotchy, then hot, the skin on the inside of his wrists stinging.
 
-"You said that 50 ago!"
+He wasn't breathing hard. This body hadn't done anything harder than the stairs to the 3rd floor in 3 years, and it should have been dying, and his legs felt like they'd been for a short walk. If anything they wanted more.
 
-In the window beside it, Mio rested her chin on her hands and watched him with deep suspicion. "So weird," she announced, and shut the curtain.
+At 11:15 the window over the kitchen slid open.
 
-Finally he went upstairs, sat at his desk, and smoothed the entry form flat.
+"Kiyose Sho," said his mother, "it is a SCHOOL NIGHT."
 
-Name: Kiyose Sho.
+"5 more."
 
-Club: Volleyball.
+"Now, Sho."
 
-At the bottom was a line for position, if known. Sho looked at it for a long time. He thought about a knee popping in Osaka. About an orange-haired kid jumping too high for his body. About the heat in his chest, which still hadn't gone anywhere.
+The window slid shut.
 
-He wrote: Ace.
+He did 5 more, and when he turned to pick up the ball from the hedge, the window above his mother's was open too. Mio's. She had her arms folded on the sill and her chin on her arms, and she was watching him.
 
-Then he went to bed and dreamed about a ball hanging in the air, high and soft and his.
+He had no idea how long she'd been there.
+
+"What are you doing," she said.
+
+"Passing."
+
+"To who?"
+
+"The wall."
+
+She looked at the wall. She looked at him, with his red arms and the ball under 1 of them, standing in the light from the kitchen at 11:20 on a school night.
+
+"So weird," she said, and pulled her head in, and drew the curtain.
+
+It stayed open a little at the side. He picked the ball out of the hedge and went in by the back door.
+
+In the bathroom he washed his arms in the sink and looked at himself in the mirror.
+
+A 15-year-old face. His own. Puffy across the bridge of the nose, a little purple under the left eye, a bit of dried blood still in the corner of 1 nostril. He'd seen this face every morning, bored, brushing his teeth. He was looking at it differently now, and it took him a while to see how: he was looking at it the way Satoshi looked at tape.
+
+He dried his hands. His left hand went down, all on its own, and rested on his left knee, on the kneecap, and stayed there.
+
+He took it away.
+
+---
+
+Upstairs, he sat at his desk and took the entry form out of his blazer and smoothed it flat with both hands.
+
+*Name:* Kiyose Sho.
+
+*Class:* 1-5.
+
+*Club:* he wrote it carefully. Volleyball.
+
+At the bottom there was a line that said *Position (if known)*, and he sat with his pen over it.
+
+He thought about a setter yelling a name that belonged to somebody dead, and the ball hanging there, high and soft, waiting for him. About an orange-haired kid going up past the top of the net with nothing above him but the roof.
+
+*I'm going to be Karasuno's ace,* the kid had said. Once to Kageyama, and once on the step, to Sho, so he'd know.
+
+A team had 1 of those.
+
+He wrote it anyway, small, in the box at the end of the line.
+
+*Ace.*
+
+Then he folded the form in 4 and put it in his bag where he'd see it in the morning, and set his alarm for 5:45, and turned off the light.
 
 ```
 [Kiyose Sho]
@@ -288,12 +520,20 @@ Meta Vision: Film brain
 
 **Continuity (ch 1)**
 
-- Memories return during club recruitment week: a stray ball from Hinata's receive of Kageyama's serve hits Sho in the face.
-- Met: Hinata, Kageyama, Sugawara. Daichi named, not met yet.
-- New nouns: Satoshi's college gym in Osaka; Kaho (Mio's friend); the old beach volleyball.
-- Family: father cooks and wants a red car; shoe shopping on Saturday. Bet with Mio: Sho wins her pudding cups if he lasts past Golden Week, Mio gets his room if he quits.
-- Open threads: Hinata's jump; "Ace" on the entry form.
-- Next: Ch 2, the wig incident and first practice.
+- Revised Nov 13 (revision pass of ch 1 to 29). Old version's red-car bit is cut; ch 6 must drop "Red car still on?". Ch 10 must drop "I also wrote that I was 190" (the form has no height line).
+- Canon: Hinata and Kageyama clash at Karasuno on the 1st days of club recruitment (Hinata will beat Kageyama and be Karasuno's ace; "You can't even receive"); Kageyama's hard serve, Hinata's bad receive; Hinata is from Yukigaoka (3 1st years joined, 2 borrowed players, 1 official match in 3rd year, lost to Kitagawa Daiichi with Kageyama setting); Hinata's jump. Heights: Hinata about 163, Kageyama about 180.
+- Divergence (ours): the ball off Hinata's receive hits Sho in the face (in canon the ball comes off Hinata and knocks off the vice principal's wig; the fic moves the wig to ch 2, next morning). Only Sugawara is with them today; Daichi and Tanaka don't appear and nobody calls Kageyama "King" yet. Daichi named, not met. Suga: club starts properly once the forms are in.
+- Invented: the 1st Monday of recruitment week, early April; Sho looks in at about 4:15 and sits on the gym step watching till 6; cherry buds a week from opening. Sho in class 1-5 (Yachi's canon class; ch 27, 31). Hinata 1-1. Sho quit soccer at 9 (friend Daisuke moved to Nagoya), swimming at 10, kendo at 11 for 4 months (a 13-year-old's hit to the wrist), in July, when Mio was 6. Mio's friend Kaho (brother 19, in a band). Dad hums while he shaves; Mio hides Sho's phone charger when she's losing an argument; the hot-pot burn mark on the table; Natori rice from the same shop; Dad's newspaper folded small.
+- Satoshi's memory (every noun kept for later chapters): an Osaka university gym, floor wax, a setter shouting "Matsumoto!", the ball high and soft, the left knee at 20 (heard by the bench), crutches, "recreational level", 9 years as a tape analyst, 3 monitors, cold coffee, thumb on rewind, 3:14 a.m. on the middle screen, his heart. The cleaner came at 6. 12 years of playing.
+- Nosebleed: Sugawara's tissues, 2 plugs, head forward; Mio sees the tissue in his nose at the door (ch 23 relies on this). Mom: "What happened to your FACE?" Frozen edamame in a dish towel as the ice pack (the family habit; ch 3, ch 26). Mio: "Did a girl hit you?" (ch 23).
+- Sho says "Itadakimasu" properly for the 1st time; Mio stops with her spoon in the air (ch 23: the polite voice and *thank you for the food* started in April). Sho sees Dad about to speak before he speaks (ch 23: "the looking").
+- The bet (kept wording): "Bet." / "Your pudding cups... All of them." / "Deal. And if you quit, I get your room." Sho wins her 4 caramel pudding cups if he's still going after Golden Week. Mio puts the bank's round red magnet on Golden Week on the fridge calendar: the free bank calendar, whole year on 1 sheet, Matsushima photo (ch 13: "a magnet on Golden Week. Since April."; ch 44: "the round red 1 from the bank"; ch 45 moves it below December).
+- Dad: box curry on Mondays, extra potato, big carrots; "Mm."; "That's the 1 with the net." Shoes and knee pads asked for politely; "Saturday." Mom: "We'll see on Saturday."
+- Night: wall passes with the old beach ball (from a trip when Sho was 7) at the windowless side wall, 200 passes, about 40 clean, not tired. Mom: "it is a SCHOOL NIGHT." Mio at her window: "What are you doing." "Passing." "To who?" "The wall." "So weird."
+- Bathroom: his left hand rests on his left knee on its own (Mio's list, ch 34; ch 45). Never explained.
+- Entry form: Name, Class 1-5, Volleyball, *Ace* in the "Position (if known)" line (ch 2: Daichi reads it aloud). Alarm 5:45.
+- Ace line: *Ace* on the form, written after Hinata said it twice. A team has 1.
+- Next: Ch 2, the next morning: the form to Daichi, Tanaka, the wig, 1st practice.
 
 ## Chapter 2: The wig
 
