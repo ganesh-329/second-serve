@@ -21,7 +21,7 @@ Important: 09_continuity's line numbers are stale (ch 29 now exists, and the "8 
 9. **Yamaguchi, Shimada and the jump float:** Shimada's cues (ch 12), Sundays behind Shimada Mart, Sho introduced Yamaguchi, Sho's 1st official serves were "3 jump floats, all in" with Yamaguchi's toss height (ch 17). Arc 4 ch 50 and the Serve C to B card frame the jump float as this serve coming back (B:952, P4/10:16, 603).
 10. **Satoshi:** 29, college ace, wore 5 for 2 years (navy jacket, name on the sleeve), left knee ACL at 20 after 3 months of hidden pain, stopped asking for the ball in his last 2 months, 9 years as an analyst, died at his desk at 3:14 a.m. with his thumb on rewind, college gym in Osaka. Sho never says "Satoshi" or "Matsumoto" aloud before ch 45 (a3:5484 "In 4 months... never once said the name out loud"). He may say "past life" (a1:346, a1:3554, a2:361).
 11. **Height 182 in April** (cards a1:281, 1663, 4963; a1:3057), 183 in August with the April pencil mark 1 cm lower (a3:5688). Do not change 182.
-12. **Who knows about the eye:** nobody knows the ghost. Daichi, Kageyama, Ikkei (later) say "You moved before he hit it." Oikawa has "the strange one". Ukai, Mom, Dad, the doctor think it's tired eye muscles. "Observation Haki" said aloud once only (to Tsukishima, ch 5).
+12. **Who knows about the eye** (Nov 13 revision: "Observation Haki" is now a thought only, never said aloud; the old "said aloud once" is void): nobody knows the ghost. Daichi, Kageyama, Ikkei (later) say "You moved before he hit it." Oikawa has "the strange one". Ukai, Mom, Dad, the doctor think it's tired eye muscles.
 
 ---
 
@@ -77,7 +77,7 @@ KEEP (eye firings 1 and 2, section 2)
 - Firing 1 at 20-16 on Hinata's 1st freak quick: silence, skeleton of points of light, forearm burning white, ghost 1 blink early; Sho's legs too slow, ball lands where the ghost pointed (a1:1384-1403). 20-17.
 - Firing 2 at 23-20 on the cut-across quick: Sho moves before contact and digs it; Yamaguchi's free ball, Hinata scores anyway (a1:1517-1547).
 - Cost: burning dry eyes, thumb of pressure, depth gone about 3 minutes, misreads a plain serve (a1:1549-1593; notebook a1:1937). Ch 25's count "afterward 3 minutes where the floor wouldn't stay still" (a2:4761) and ch 22's "the old feeling, the one from the 3v3" (a2:3225) depend on it.
-- KEEP-WORDING: "Observation Haki" said aloud to Tsukishima, the only time (a1:1559). B:520, H:99.
+- (Revised Nov 13: "Observation Haki" is a thought only; Tsukishima never hears it.)
 - KEEP: Daichi "You moved before he hit it." (cont. a1:1678). Kageyama repeats it in ch 13; Ikkei uses it in ch 35 (a3:2077).
 - KEEP-WORDING image: Hinata's hit "a crack like a door slamming in an empty house" (a1:1397; a3:3432 reuses it in Ukai's POV).
 - Set 1 lost 25-23.

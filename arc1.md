@@ -2186,115 +2186,145 @@ The analyst in Sho, the 1 who'd rewound 10,000 rallies, looked at that run and f
 
 ## Chapter 5: Eyes closed
 
-Kageyama's hands touched the ball.
+Kageyama's hands touched the ball, and the set left them going sideways.
 
-Sho watched the toss leave them.
+It went fast and flat, a short hard line toward the right side of the net, toward a place in the air where nobody was. A set was supposed to climb and hang and give the hitter time to arrive. This 1 gave nobody time for anything.
 
-It didn't go up. That was the first wrong thing. A toss is supposed to rise and hang and give the hitter a moment. This one went sideways, fast and flat, a short hard line toward the right side of the net, toward a spot in the air where nobody was standing.
+Somebody was already there.
 
-Except someone was already there.
-
-Hinata had started his run before the pass. Now he was in the air, high, impossibly high, rising past the tape with his right arm already swinging, and the ball was still on its way to him.
+Hinata had gone before the set. He was in the air now, high, much too high, rising past the tape with his right arm already swinging, and the ball was still on its way to him.
 
 The gym went quiet.
 
-It happened between one heartbeat and the next. The squeak of shoes, the second years on the bench, Tanaka's breathing, all of it dropped away like someone had pulled the plug on a speaker. Sho could hear his own pulse in his ears.
+It happened between 1 heartbeat and the next. The squeak of shoes, the 2nd years on the bench, Tanaka's breathing, all of it went out at once, as if somebody had pulled the plug on a speaker. Sho could hear his own pulse in his ears.
 
 And Hinata changed.
 
-His body stayed where it was, and Sho saw it as joints. Shoulder, elbow, wrist, hips, knees: a skeleton made of points of light, and the brightest was the right forearm, burning white. A pale shape peeled off it and moved ahead of the rest. A ghost of the arm, one blink early, swinging down and across toward the deep left corner of Sho's side.
+His body stayed where it was, but Sho saw it as joints. Shoulder, elbow, wrist, hips, knees: a skeleton made of points of light, and the brightest of them was the right forearm, burning white. A pale shape came off it and moved ahead of the rest. A ghost of the arm, 1 blink early, swinging down and hard across Hinata's body, toward Sho's left.
 
-Sho's legs moved.
-
-He didn't tell them to. They went anyway, left and back, toward the corner where the ghost was pointing.
+Sho was in the back right corner, where Tsukishima had put him. His legs went before he told them to, left and back, the long way across the back of the court, after the place a swing like that would reach.
 
 They were too slow.
 
-The ball hit Hinata's palm with a crack like a door slamming in an empty house. It went straight down past Tsukishima's fingertips and smacked the floor 2 meters in front of Sho's outstretched arms.
+The ball hit Hinata's palm with a crack like a door slamming in an empty house. It went past Tsukishima's fingertips and down into the deep left of the court, and hit the floor 2 meters short of Sho's arms.
 
 20-17.
 
-The sound came back all at once. Shoes. Breathing. Someone on the bench saying, "Eh?"
+The sound came back all at once. Shoes. Breathing. Somebody on the bench saying, "Eh?"
 
-Sho stood in the corner with his arms still out, looking at the spot where the ball had landed. It was exactly where the ghost had pointed. Exactly.
+Sho stood with his arms still out, halfway across the back court, a long way from where he'd started. His calves knew they'd moved before the ball was hit. He could feel it in them.
 
 Then he looked at Hinata.
 
-Hinata had landed. He was staring at his right hand like it belonged to somebody else. And Sho, who'd been looking at his face the whole time without meaning to, without even knowing how he'd seen it so clearly, said it out loud before he could stop himself.
+Hinata had landed. He was staring at his right hand as if it belonged to somebody else. And Sho, who'd been watching his face come up past the net under all that light, said it before he could stop himself.
 
 "His eyes were closed."
 
-Tsukishima turned his head. "What?"
+Tsukishima, at the net, turned his head. "What?"
 
 "Hinata. When he hit it. His eyes were shut."
 
-On the other side of the net, Tanaka's mouth fell open. "Wait. Wait wait wait. You hit that BLIND?!"
+On the other side, Tanaka's mouth fell open. "Wait. Wait wait wait. You hit that BLIND?"
 
 "I can't look at the ball!" Hinata said, still staring at his hand. "If I look at it, I can't stop looking at it! He said don't look, so I didn't!"
 
-Kageyama had gone very still. He turned slowly and stared at Hinata.
+Kageyama had turned round. He stared at Hinata.
 
 "You closed your eyes," he said.
 
-"You said you'd bring it!"
+"You said you'd put it in my hand!"
 
-"I said don't LOOK at it. I didn't say close your..." Kageyama stopped. His face did something complicated, as if a hundred things were trying to get out at once and had all jammed in the door.
+"I said don't LOOK at it. I didn't say close your..." Kageyama stopped. His mouth stayed open on the rest of it.
 
-Sho understood what he was looking at. Satoshi had spent 9 years studying setters and hitters on tape: the timing, the trust, the hundreds of hours it took to build. He had never once seen a hitter simply hand his eyes over to someone.
+"Over a toss," said Tsukishima, to nobody. "That's insane."
 
-"He trusted the toss," Sho said quietly, mostly to himself. "Completely."
-
-Tsukishima looked at him sideways. "Over a toss. That's insane."
-
-"Yeah," said Sho.
+Sho kept quiet. Satoshi had watched setters and hitters on tape for 9 years, the timing, the hours it took 2 people to trust each other, and he had seen a lot of hitters trust a set. He'd never seen 1 hand his eyes to somebody. It had taken them a week.
 
 Tanaka came running across his own court and slapped Hinata on the back so hard he staggered. "THAT WAS AMAZING! You little monster! Do it again!"
 
-Hinata looked down at his palm. He closed his hand slowly, then opened it again.
+Hinata looked down at his palm. He closed his hand slowly, and opened it again.
 
-"It felt..." He couldn't find the word. "It hit right here. Right in the middle."
+"It felt..." He couldn't find it. "It hit right here. Right in the middle."
 
-On the sideline, Sugawara was smiling so hard it looked like it hurt.
+On the sideline, Sugawara was smiling so hard it looked as if it hurt.
 
 ---
 
-They couldn't do it again. Not right away.
+Hinata served. A plain overhand, high, that Tsukishima passed to Yamaguchi with a bored face, and Yamaguchi set Tsukishima, and Tanaka dug Tsukishima's hit up off the floor to Kageyama.
 
-On the 2nd try, Kageyama's toss was perfect and Hinata swung a fraction late and caught the ball with his wrist. It sailed out. 21-17.
+Kageyama set Hinata.
 
-On the 3rd, Hinata swung early and the ball went under his fingers into the net. 22-17.
+Sho watched Hinata the whole way up. He watched the run, the jump, the arm, with everything he had, and waited for the gym to go quiet.
 
-This time Kageyama didn't yell. He picked up the ball and looked at it, and Sho caught the corner of his mouth going up. It was gone a second later, but it had been there.
+The gym stayed loud. Hinata was a short kid jumping too high, and the set was perfect, and Hinata swung with his eyes shut a fraction late, and the ball hit him in the face.
 
-Tsukishima saw it too.
+It went off his cheek and over the sideline. 21-17.
 
-"How long are you going to keep trying that?" he called across the net. Mild. Pleasant. "It worked once. Lucky."
+Hinata landed holding his face. Kageyama, behind him, picked up the ball, and Sho caught the corner of his mouth going up.
 
-Hinata glared at him. Kageyama ignored him completely and walked back to his spot, flexing his fingers.
+"DON'T LAUGH!"
+
+"I'm not laughing."
+
+"YOUR FACE IS LAUGHING!"
+
+Kageyama's mouth went back down. It had been there, though. Sho had seen it.
+
+That made it Sho's serve. He went back to the line and served his plain float, and Tanaka passed it, and Kageyama set Hinata again, and Sho, coming in from the end line to the back court, watched again. The light stayed away. Hinata swung early this time, and the ball went under his fingers into the net.
+
+22-17.
+
+Tsukishima pushed his glasses up. "How long are you going to keep trying that?" he called across the net. "It worked once. Lucky."
+
+Hinata glared at him. Kageyama walked back to his spot, flexing his fingers, as if Tsukishima were weather.
 
 Sho was looking at his own hands.
 
-Nothing had happened since. No light, no ghost. Twice Hinata had gone up and twice Sho had watched him with everything he had, and twice he'd seen a short kid jumping too high and nothing more. Whatever had happened at 20-16 was gone, and it hadn't left a note.
+Nothing since. No light, no ghost. Twice Hinata had gone up and twice Sho had watched him with everything he had, and twice he'd seen a small boy jumping too high, and nothing more.
 
-So was he imagining it? A good guess. A tired brain filling in a gap. Satoshi had read the papers back in his analyst days, about how the brain stretches a frightening moment afterward, making it longer and clearer in memory than it ever was.
-
-That was probably it.
-
-Except the ball had landed exactly where the ghost pointed.
+*Observation Haki,* said a voice in his head, the part of him that had grown up on One Piece. He told it to be quiet.
 
 ---
 
-Then it started to work.
+He served again at 22-17. It went in. Tanaka passed it high, and Kageyama ran under it, and Hinata was already going.
 
-22-18: Hinata, eyes closed, a crack and a dent in the air where the ball had been. 22-19: again, to the other side this time.
+This time it worked.
 
-Each time, Sho watched for the light. Each time it didn't come, and each time he was a full step late.
+Sho was in the back right, watching for the light, and the light didn't come. He saw only what everybody saw. A fast flat set. A small body at the top of a jump that shouldn't have been possible. Hinata's arm coming round with his eyes screwed shut. A crack.
 
-"Stop setting to him," Tsukishima told Kageyama on a dead ball, in the tone of someone giving a friend advice. "You'll get bored of it eventually."
+And Sho was standing still.
+
+His body had been waiting. It had been standing there with its weight even, its feet flat, ready to go wherever the light told it to, and the light had stayed off, and his feet had stayed flat. The ball went into the floor between Yamaguchi and the sideline before he'd shifted his weight an inch.
+
+22-18.
+
+He looked down at his feet.
+
+He knew what that was. Satoshi had seen it on tape in young defenders: a boy who'd been lucky once and spent the rest of the match waiting to be lucky again. You could see it in their feet. They stopped reading the hitter and started waiting for a feeling.
+
+*Stop it,* he told himself. *Play the ball you can see.*
+
+Tanaka served. Tsukishima passed it, and Yamaguchi set Sho, and Sho waited and counted and hit it hard and cross, and Tanaka got his arms under it, and Kageyama set Hinata from a pass that was nowhere near him, and Hinata went anyway.
+
+Sho played the ball he could see. He watched Hinata's run, which was coming from the right this time, and his shoulders, which were turned, and he took 2 steps to his left before Hinata left the floor, because a boy running that way at that speed couldn't hit anywhere else. He was right about the direction and wrong about the depth. The ball went down beside Tsukishima's left foot, short, half a meter in front of Sho's hands.
+
+22-19.
+
+Closer. A lot closer. And he'd had to get there on his own.
+
+"Stop setting to him," Tsukishima said to Kageyama on the dead ball, in the voice of somebody giving a friend advice. "You'll get bored of it eventually."
 
 Kageyama looked at him. "No."
 
-Tsukishima's jaw tightened a fraction. He started cheating his block toward Hinata, half a step, then a full step. Kageyama saw it instantly, went high to Tanaka on the left instead, and Tanaka hit it into the open court where Tsukishima wasn't.
+Tsukishima's jaw tightened a little.
+
+Tanaka served it in, and Sho, from the back, watched Tsukishima's feet at the net while the ball was in the air. They went half a step toward the middle. Then, as the pass came up, a whole step, toward wherever Hinata was going to be.
+
+Sho saw the gap open on the left, where Tanaka was coming. He saw it a beat before Kageyama did. He had it in his mouth: *Tsukishima, left.*
+
+He kept it there.
+
+Kageyama saw it too. He went high and outside to Tanaka on the left, and Tanaka came in like a falling wardrobe and hit it into the open court where Tsukishima wasn't.
 
 22-20.
 
@@ -2302,53 +2332,51 @@ Tsukishima's jaw tightened a fraction. He started cheating his block toward Hina
 
 "I can count, Yamaguchi."
 
-Tanaka's next spike hit Tsukishima's hands and popped up. Yamaguchi got under it and sent up one of his nervous rainbows, and Sho waited, counted 1, and went.
+Tanaka served again. Tsukishima passed it badly, off to the side. Yamaguchi ran under it and sent up another nervous rainbow, and Sho, at the left now, waited, and counted 1, and went.
 
-There was a tiny orange blocker in front of him. Hinata jumped like he wanted to touch the ceiling, which meant his arms came up high and wide, and that left a gap just under his outside elbow. Sho hit low line, right through it.
+There was a small orange blocker in front of him. Hinata jumped like a boy who wanted to touch the ceiling, which meant his arms went up high and wide, and that left a gap just under his outside elbow. Sho hit low line, through it, hard.
 
 23-20.
 
-Hinata landed and spun around. "WHOA! Kiyose, that was so cool!"
+Hinata landed and spun round. "WHOA! Kiyose, that was so cool!"
 
-"Thank you," Sho said. "Please stop jumping that high. It's rude."
+Sho didn't answer. He was looking at Hinata's feet, at where they'd been when he took off, and at where they were now, a whole meter to the right of it. That boy went sideways in the air.
 
 ---
 
-Sho served next, a plain float that Tanaka passed easily, and then Hinata did something new.
+Tsukishima served, and then Hinata did something new.
 
-He ran right up beside Kageyama at the net. So close he could have used Kageyama's shoulder as a step. He stood there on his toes, bouncing, and Sho watched Tsukishima's eyes flick between them. From there, Hinata could be going anywhere.
+Tanaka passed Tsukishima's serve high, and while it was in the air Hinata ran up beside Kageyama at the net. So close he could have used Kageyama's shoulder as a step. He stood there on his toes, bouncing, and Sho watched Tsukishima's eyes go from Hinata to Kageyama and back. From there, Hinata could be going anywhere.
 
-"Yamaguchi," Tsukishima said. "With me."
+"Yamaguchi," said Tsukishima. "With me."
 
-Yamaguchi stepped up to the net beside him. 2 blockers. Which left Sho alone in the back court, with 9 meters of floor and one of him.
+Yamaguchi ran up to the net beside him. 2 blockers. That left Sho alone in the back court, with 9 meters of floor and 1 of him.
 
 Hinata ran left. Both blockers went with him.
 
-Then Hinata cut. He planted, turned on a coin, and went right, across the front of Kageyama, eyes squeezed shut, away from both blockers.
+Then Hinata cut. He planted and turned on the spot and went right, across the front of Kageyama, eyes squeezed shut, away from both blockers, and Kageyama's hands were already moving.
 
 The gym went quiet.
 
 The light came back.
 
-Hinata's skeleton flared up in front of Sho, the forearm burning, and the ghost peeled off it one blink early, swinging hard and cross, toward the right sideline, 2 steps in front of him.
+Hinata's skeleton flared up in front of Sho, the forearm burning, and the ghost came off it 1 blink early, swinging hard and cross, a long swing across his body. Sho had watched swings like that on tape for 9 years. His head had the place before the ghost had finished: the floor in front of the right sideline, 2 steps away.
 
-This time Sho didn't wait.
+He didn't wait.
 
-Every coach Satoshi had ever had said the same thing: be still when the hitter makes contact. Don't guess. A defender who moves early gets burned.
+Every coach Satoshi ever had had said the same thing. Be still when the hitter makes contact. Don't guess. A defender who moves early gets burned.
 
 Sho moved early.
 
-He was already falling forward when the ball left Hinata's hand, already dropping toward the spot where the ghost had pointed. There was no time to make a platform, no time for anything, so he just put his forearms where the ball was going to be.
+He was already falling forward when the ball left Hinata's hand, already going down toward the right sideline. There was no time to make a platform, no time for anything, so he put his forearms in the path of the swing.
 
 It hit him.
 
-It hit the inside of his right forearm so hard the arm went numb to the elbow, and it bounced off at a terrible angle, straight up, high and spinning, toward the ceiling.
+It hit the inside of his right forearm so hard that the arm went numb to the elbow, and it bounced off at a terrible angle, straight up, high and spinning, toward the lights.
 
 Up.
 
-It was up.
-
-Someone on the bench yelled "NICE!" before it even started coming down.
+Somebody on the bench yelled "NICE!" before it had started coming down.
 
 Yamaguchi scrambled under it and got it, barely, a clumsy push that floated over the net to the other side, soft and easy.
 
@@ -2356,81 +2384,93 @@ Yamaguchi scrambled under it and got it, barely, a clumsy push that floated over
 
 And Kageyama set Hinata again.
 
-Sho was still on the floor. He saw it from below: Hinata already in the air, eyes shut, the ball meeting his palm in that impossible place.
-
-The light didn't come. Sho's arms didn't move. The ball hit the floor a meter from his face.
+Sho was still on the floor. He saw it from below: Hinata already in the air, eyes shut, the ball meeting his palm in that impossible place. The light stayed away this time. Sho's arms lay where they were. The ball hit the floor a meter from his face.
 
 23-21.
 
-Sho lay on his back and stared at the gym ceiling. His forearm was buzzing. His eyes were burning and dry, as if he'd been staring at the sun, and there was a pressure behind them, a dull push like a thumb pressing from inside his skull.
+He lay on his back and looked up at the gym ceiling. His forearm was buzzing. His eyes were burning and dry, as if he'd been staring into the sun, and there was a pressure behind them, a dull push, like a thumb pressing from the inside of his skull.
 
-He'd dug it.
+He'd dug it. He'd dug a ball nobody should have been able to dig, by moving before it was hit, and 2 seconds later they'd done it again, and it had made no difference at all.
 
-He'd dug a ball nobody should have been able to dig, by moving before it was hit, toward a spot he couldn't have known about. And it hadn't mattered at all, because 2 seconds later they'd done it again.
+He started to laugh. He lay there on the floor with his arm buzzing and laughed at the ceiling.
 
-He started to laugh. He couldn't help it.
+Tsukishima's shadow came over him. "Are you concussed?"
 
-Tsukishima's shadow fell over him. "Are you concussed?"
+"Maybe." Sho wiped his eyes with the back of his wrist. They were watering.
 
-"Maybe." Sho wiped his eyes with the back of his wrist. They were watering. "I think I just used Observation Haki."
-
-Silence.
-
-"...What," said Tsukishima.
-
-"From One Piece. You see what someone's about to do. A second before they do it."
-
-Tsukishima looked down at him for a long moment with an expression of perfect, flat nothing.
+Tsukishima looked down at him with his face perfectly flat.
 
 "Get up," he said. "You're in the way."
 
 Sho got up.
 
-Yamaguchi hovered at his elbow. "Kiyose. That dig. That was, um. How did you know?"
+Yamaguchi was at his elbow. "Kiyose. That dig. That was, um." He waved a hand at the floor. "How did you know?"
 
-Sho looked at the spot on the floor. His head throbbed once, low and slow.
+Sho looked at the spot. His head throbbed once, low and slow.
 
-"I didn't," he said, and found he wasn't sure if he was lying.
+"I didn't," he said, and wasn't sure if he was lying.
 
 ---
 
-It cost him the next point.
+It cost him the next 3 minutes.
 
-Kageyama served at him, of course. A plain, flat, ordinary serve, nothing like the first one that had hit the wall. Satoshi had read 50,000 serves like it.
+Kageyama served at him, of course. A plain, flat, ordinary serve, the kind Satoshi had read on tape by the 1,000.
 
 Sho misread it.
 
-His eyes slid off the ball. For a second the depth went wrong: the ball looked closer than it was, then farther, flat like a picture. He stepped forward when he should have stayed, and it went over his shoulder and landed on the end line behind him.
+His eyes slid off the ball. The depth went wrong: the ball looked closer than it was, then farther, then flat, like a picture of a ball pasted on the air. He stepped forward when he should have stayed, and it went over his shoulder and landed on the end line behind him.
 
 23-22.
 
-"Kiyose," Daichi said from the sideline. Just his name. Calm.
+"Kiyose," said Daichi from the sideline. Only that.
 
-"Sorry," said Sho. He blinked hard. The gym came back into proper depth slowly, like a camera finding focus.
+"Sorry."
 
-"Your eyes are red," Yamaguchi said.
+He blinked hard. The gym stayed flat. The net was a gray stripe painted on the far wall, and Tanaka was a cutout standing in front of it, and Sho couldn't have told anybody how far away either of them was. He held his hand up in front of his face and it looked the same size as the scoreboard.
+
+"Your eyes are red," said Yamaguchi.
 
 "Allergies."
 
-"To what?"
+Yamaguchi looked at him for a bit, as if he'd never heard of anybody being allergic to a gym.
 
-"Volleyball."
+Kageyama served again, at him again. Tsukishima got there 1st this time. He came across from the left in 2 long steps and put himself in front of Sho, in the corner, the place he'd told Sho on Friday to stand and not move from, and passed it, flat and easy, and went back to his own spot.
+
+He kept his eyes front. Sho stood behind him, in the corner of a world gone flat as paper, and watched Tsukishima's back.
+
+Yamaguchi set Sho on the left, and Sho went up for a ball that was coming down a meter from where his eyes said it was. He swung late. It hit his wrist and went into the net.
+
+23-23.
+
+He stood at the net with his hand stinging. *Wait,* said the analyst. *A brain that's done too much pays for it. You wait. You don't make it worse.*
+
+Kageyama served. Tsukishima passed. Yamaguchi had the ball over his head, and Sho saw his eyes go to Sho, at the left, waiting, and go away again, and Yamaguchi set Tsukishima. Tanaka dug Tsukishima. Kageyama set Hinata. Hinata, eyes closed, a crack, and a hole in the floor that Sho didn't move toward.
+
+23-24.
+
+The depth came back somewhere in the next dead ball, slowly, like a camera finding focus. The net stepped back off the far wall to where it belonged. Tanaka grew a front and a back. Sho stood in the corner and watched the gym fill back in, and his eyes stopped watering, and the thumb behind them let go.
+
+3 minutes, maybe less. It had felt like a whole set.
 
 ---
 
-2 rallies later it was 23-24. Hinata both times, eyes closed, a crack and a hole in the floor that Sho didn't even move toward.
+Set point. Kageyama served, and ran in behind it to the net.
 
-Then, at set point, Kageyama set Tanaka.
+It was a soft serve this time, a short 1, and Tsukishima had to come forward for it and passed it high, too high, back over the net. Tanaka dug it up on the other side, and it went to Kageyama.
 
-Everyone in the gym was watching Hinata, including Sho, including Tsukishima, both blockers drifting toward the orange blur. Kageyama simply turned and sent a high, lovely ball to the left, where Tanaka was already coming in like a freight train.
+Everybody in the gym was watching Hinata. Sho was. Tsukishima was, drifting toward the middle with his hands up. Hinata was already running from the right, eyes on Kageyama's hands, and Yamaguchi took a step toward him too.
 
-Sho was the only blocker on that side. He went up. He was even on time.
+Kageyama turned his shoulders and sent the ball the other way, high and lovely, to the left.
 
-Tanaka didn't care. He hit it straight down the line past Sho's outside hand, so close that Sho felt the wind of it on his fingers.
+Tanaka was coming. He'd been coming the whole time, the loud 1, the 1 nobody had been watching, and the left side of the net had only Sho on it.
+
+Sho went up. He was even on time. He got both hands up and out, high, over the tape.
+
+Tanaka looked at them, and turned his shoulders a fraction, and hit it straight down the line past Sho's outside hand, so close that Sho felt the wind of it on his fingers.
 
 23-25.
 
-Tanaka landed and turned, and for once he didn't do anything ridiculous. No shirt. No pointing. He looked at Sho through the net, breathing hard, and grinned.
+Tanaka landed and turned. He kept his shirt on. He looked at Sho through the net, breathing hard, and grinned.
 
 "That's the set, rookie."
 
@@ -2438,17 +2478,17 @@ Sho bowed. His arm still hurt. His eyes still burned.
 
 "Thank you for the lesson, senpai."
 
-Tanaka's grin wobbled. He opened his mouth, shut it, then turned around very fast and walked off rubbing the back of his neck.
+Tanaka's grin wobbled. He opened his mouth, shut it, then turned round very fast and walked off rubbing the back of his neck.
 
 ---
 
-They had 3 minutes between sets.
+They had a few minutes between sets.
 
 Sho sat on the bench with a towel over his head because the gym lights hurt. Something cold touched his hand: a bottle of water. He took it.
 
 "Drink," said Daichi's voice.
 
-Sho drank. Daichi didn't leave.
+Sho drank. Daichi stayed.
 
 "That dig," Daichi said.
 
@@ -2456,21 +2496,49 @@ Sho drank. Daichi didn't leave.
 
 "Mm." A pause. "You moved before he hit it."
 
-Sho went very still under the towel.
+Under the towel, Sho's hands stopped on the bottle.
 
-Daichi said nothing else. After a moment, his footsteps went back toward the sideline.
+Daichi waited. When nothing came, his footsteps went back toward the sideline.
 
-Sho sat in the dark under the towel and listened to his own heart.
-
-Whatever it was, it had come twice and gone twice, and both times it had been looking at Hinata. He couldn't call it up. He couldn't make it stay. It had shown him exactly where the ball would go, and his body had still been a step too slow, and afterward it had taken his depth perception with it like a toll.
-
-He thought about telling someone. He thought about how that conversation would go. Excuse me, captain, I think I have Observation Haki, also I'm technically 44.
+Sho sat in the dark under the towel and listened to his own heart. It had come twice and gone twice, and both times it had been on Hinata, and the 4 times he'd watched for it, it had stayed away. He thought about telling somebody. He thought about how that would go. *Excuse me, Captain. Sometimes I see Hinata's arm before it moves. Also I'm 44, sort of.*
 
 He kept the towel on.
 
-Across the gym, Hinata was still opening and closing his right hand, staring at it as if there were something written on his palm. Kageyama stood beside him, not looking at him, flexing his fingers in the same rhythm.
+The bench creaked. Somebody long had sat down at the other end of it, and Sho knew who from the sigh.
 
-Set 2. 25 more points against a monster combo, with a pair of eyes that worked only when they felt like it.
+"If you're going to faint," said Tsukishima, "do it on your side of the bench."
+
+"I'm not going to faint."
+
+"Good." A bottle cap turned. "You stared at him the whole set. The shrimp. Every rally."
+
+"He's the 1 scoring."
+
+"Did it help? Staring."
+
+Sho thought about it. "Once."
+
+"Hm." Tsukishima drank. He sat there with the bottle hanging from 2 fingers and his elbows on his knees, looking at the far court. "In the corner. Earlier. You were standing in the wrong place."
+
+"You moved in front of me."
+
+"You were standing in the wrong place," said Tsukishima again, and got up, and went back to the court.
+
+Something hit the net post beside the bench, lightly. Sho lifted the towel.
+
+Hinata was at the post, on his own side, hanging on to it with both hands, looking at him.
+
+"Kiyose! That dig! You were trying your hardest!"
+
+"I promised."
+
+"I KNOW." Hinata hung off the post, bouncing on his toes, his cheek still red where the ball had hit it. "I'm still going to win. Just so you know."
+
+"I know."
+
+Hinata grinned and let go of the post and ran back to Kageyama, who was standing on his own, flexing his fingers, with his eyes on the far wall. Hinata stopped beside him and started opening and closing his right hand, staring at the palm. Soon Kageyama's fingers went in the same rhythm.
+
+Set 2. 25 more points against that, with a pair of eyes that worked when they felt like it.
 
 Sho pulled the towel off, blinked until the lights stopped stinging, and stood up.
 
@@ -2486,15 +2554,18 @@ Meta Vision: Film brain
 
 **Continuity (ch 5)**
 
-- Canon covered: the first freak quick (eyes closed), the reveal that Hinata's eyes were shut, Kageyama's shock at the trust, Hinata's "it hit right in the middle", 2 failed tries, Kageyama's hidden smile, Tsukishima's "stop setting to him", Tsukishima shifting his block and Tanaka scoring in the gap, Hinata standing beside Kageyama, Tsukishima pulling Yamaguchi into the block and leaving the back court empty, the cut-across freak quick, Tanaka scoring the last point of set 1.
-- Changes: Sho (in Daichi's spot) is the one who notices Hinata's closed eyes. On the cut-across play, where canon Daichi lunged and missed, Sho digs it; Yamaguchi pushes a free ball over and Hinata scores on the next freak quick anyway.
-- Set 1: Hinata, Kageyama and Tanaka win 25-23 (comeback from 16-20). Tanaka's last point went past Sho's block.
-- Emperor's Eye: partially awakened on the first freak quick and fired again on the cut-across play. What Sho sees: the gym goes silent, the hitter as points of light with the hitting forearm brightest, and a ghost of the swing one blink early. Cost: burning dry eyes, pressure behind them, and lost depth perception for a few minutes, which made him misread a plain serve. He can't trigger it.
-- Sho made his first "Observation Haki" joke (to Tsukishima, who didn't laugh). Keep it rare.
-- Daichi noticed Sho moved before contact and said nothing more.
-- Sho's line kill past Hinata's elbow; Hinata cheered for him.
-- Status card: Emperor's Eye changed from Dormant to Partial awakening.
-- Next: ch 6, set 2 (canon 25-21 to Hinata's side), the handshake, jackets, Seijoh match announced.
+- Revised Nov 13 (revision pass of ch 1 to 29). Status card: Emperor's Eye Dormant to Partial awakening.
+- Canon: the 1st freak quick (Kageyama's fast flat set, Hinata swinging with his eyes closed); the reveal that his eyes were shut ("If I look at it, I can't stop looking at it!"; Kageyama: "I said don't LOOK at it. I didn't say close your..."); "It hit right here. Right in the middle."; the next try hits Hinata in the face and Kageyama smiles ("DON'T LAUGH!"); Tsukishima: "It worked once. Lucky." and "Stop setting to him"; Tsukishima cheats his block and Tanaka scores in the gap; Hinata stands beside Kageyama; Tsukishima pulls Yamaguchi into the block and leaves the back court; the cut-across freak quick; Tanaka scores the last point of set 1 down the line; set 1 to Hinata's side 25-23 (canon score).
+- Divergence (ours): Sho (in Daichi's spot) is the 1 who notices Hinata's closed eyes. On the cut-across, where canon Daichi lunged and missed [memory, unverified], Sho digs it; Yamaguchi pushes a free ball over and Hinata scores on the next quick anyway.
+- Servers (3 on 3, rally scoring): Yamaguchi at 20-16 (the 1st quick, 20-17); Hinata at 20-17 (the ball hits Hinata's face, 21-17); Sho at 21-17 (Hinata early into the net, 22-17) and 22-17 (the quick works with Sho flat-footed, 22-18); Tanaka at 22-18 (Sho reads the direction on his own, short, 22-19; Tsukishima's shifted block, Tanaka in the gap, 22-20; Sho's low line through the gap under Hinata's outside elbow, 23-20); Tsukishima at 23-20 (Hinata beside Kageyama; the cut-across; the dig; Yamaguchi's free ball; Hinata, 23-21); Kageyama at 23-21 (misread serve 23-22; Tsukishima covers Sho, Sho swings late into the net 23-23; Hinata 23-24; set point, Tanaka down the line past Sho's block, 23-25).
+- Emperor's Eye, partial awakening (ledger section 2): firing 1 at 20-16 on the 1st freak quick (silence like a pulled plug, Hinata as a skeleton of points of light, the right forearm burning white, a ghost of the swing 1 blink early; from the back right corner Sho's legs go on their own, too slow; the ball lands deep left 2 m short of his arms). Firing 2 at 23-20 on the cut-across (the ghost's swing goes hard and cross; Satoshi's tape memory turns the swing into a place; Sho moves early and digs it off the inside of his right forearm, numb to the elbow). The eye shows the hitter's swing only. Cost: burning dry eyes, a thumb of pressure behind them, watering; depth gone about 3 minutes across 3 rallies (misread serve, late swing, a ball he doesn't move for; flat "like a picture", back "like a camera finding focus"). 4 times he watched for it and got nothing. He can't call it up. At 22-18 he learns the trap (waiting for it makes him flat-footed) and plays the ball he can see (22-19).
+- At 22-20 Sho sees Tsukishima's block shift and the gap open, and keeps "Tsukishima, left" in his mouth (ch 4: "Don't do that again.").
+- "Observation Haki" is a thought only; Sho never says it aloud (bible, ledger and handoff updated Nov 13). Tsukishima: "Are you concussed?" "Maybe." "Get up. You're in the way." Yamaguchi: "How did you know?" "I didn't." "Your eyes are red." (ch 22 echo) "Allergies."
+- Sho laughs on the floor after the dig (the origin of the habit; ch 32, 33, 37).
+- Tanaka: "That's the set, rookie." "Thank you for the lesson, senpai." (his grin wobbles).
+- Set break: Daichi: "Drink." "That dig." "Lucky." "Mm." "You moved before he hit it." (ch 13 Kageyama, ch 35 Ikkei repeat it). Sho tells nobody. Tsukishima: "Did it help? Staring." "Once." "You were standing in the wrong place." Hinata at the net post: "You were trying your hardest!" "I promised." "I'm still going to win. Just so you know." "I know."
+- Ace line: the low line through the gap under Hinata's elbow, 23-20.
+- Next: Ch 6, set 2 (canon: Hinata's side wins; Hinata as the decoy frees Tanaka), the handshake, Takeda and the Seijoh match, jackets, the notebook. Ch 6 must drop "Sho called 'line' twice", "Ball landed exactly where the ghost pointed" and "It showed me exactly where the first ball would land" (the eye shows the swing). Sho's receive cost 4 points in set 1 (ch 4: 0-2, 0-3, the 10-10 ace; ch 5: 23-22).
 
 ## Chapter 6: One touch
 

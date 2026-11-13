@@ -221,7 +221,7 @@ Arc 1 covers canon Ch 1 to 34 in 15 chapters and ends with the Nekoma loss. Sho 
 | 2 | The wig | 2 | A receive knocks off the vice principal's wig; Daichi throws Hinata and Kageyama out. Sho signs up | First practice: his body shanks passes his brain knows cold. He asks Daichi for extra reps without shame |
 | 3 | Dawn reps | 3 to 4 | Hinata and Kageyama practice at dawn with Suga's and Tanaka's help; Tsukishima and Yamaguchi mock them | Sho trains in the same gym and talks Suga into tossing for him too. Daichi puts him on Tsukishima's side for the 3v3 |
 | 4 | The King | 5 to 7 | 3v3 starts; Tsukishima needles Kageyama with "King of the Court" | Sho vs Tanaka at the net, first healthy rivalry beat. The ace instincts are there, the technique isn't |
-| 5 | Eyes closed | 7 to 8 | The freak quick is born | Emperor's Eye partially awakens: Sho sees Hinata's next step a blink early and digs it. He wonders if it's Observation Haki |
+| 5 | Eyes closed | 7 to 8 | The freak quick is born | Emperor's Eye partially awakens: Sho sees Hinata's next swing a blink early; misses the 1st quick, digs the cut-across. In his head (never aloud) he wonders if it's Observation Haki |
 | 6 | One touch | 9 | Hinata's side wins; all 4 first years join; jerseys handed out; Seijoh match announced | The eye won't fire again. Sho's first loss in this life; team jackets only (jersey numbers come before the Nekoma match). Rattled for a minute, then the notebook and a plan to train twice as hard |
 | 7 | Blue castle | 10 to 13 | Seijoh practice match, sets 1 and 2; Hinata's nerves, serve to Kageyama's head | Sho starts in the 6th spot (Ennoshita's in canon) beside Daichi, Tanaka, Tsukishima, Hinata, Kageyama. Asahi and Noya aren't back yet |
 | 8 | Grand King | 14 | Set 3; Oikawa pinch serves at 24-21; Karasuno wins 25-23 | Oikawa clocks something in Sho's eyes. Sho asks Oikawa to teach him that serve, to his face |
@@ -530,7 +530,7 @@ Sho never learns the name. Readers see it on the status cards; in the prose it's
 | Stage | When | What it does | Cost / limit |
 | --- | --- | --- | --- |
 | Dormant | Ch 1 to 4 | Nothing yet. Satoshi's analyst habits only (film brain) | None |
-| Partial awakening | 3v3, Hinata's first freak quick | Sho sees Hinata's next step a blink early and digs it. From then on it fires on its own: a faint afterimage of one player's next move, about 0.2s ahead, never on command | Unreliable. Sho can't plan around it, so Ukai can't either |
+| Partial awakening | 3v3, Hinata's first freak quick | Sho sees Hinata's next swing a blink early (misses the 1st, digs the cut-across). From then on it fires on its own: a faint afterimage of one player's next move, about 0.2s ahead, never on command | Unreliable. Sho can't plan around it, so Ukai can't either |
 | Adapting | Arc 3, Tokyo to the Saitama week | Fires more often, mostly on studied players; can be held 2 or 3 rallies | Soreness that fades, then stops |
 | Conditioned | End of Arc 3 | Fires most rallies when he's settled and the player is studied; he can invite it in calm moments | Tired eyes after a long day, nothing more |
 | Full awakening (Lv1) | Nationals, vs Inarizaki | On command. 1 player, about 0.5s ahead | Fatigue; about 3 clean reads per set before it blurs |
