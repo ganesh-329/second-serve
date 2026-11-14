@@ -3230,7 +3230,11 @@ He'd been on court for the whole set, watching that blocker with Satoshi's brain
 
 "Mm." Ennoshita still didn't look at him. "Use it."
 
----
+**Continuity (ch 7, 1st half)**
+
+- Split Nov 14 (Option B) from old ch 7; this half gets its full Continuity block when it is rebuilt. Facts for this stretch are in the 2nd half's old block below.
+
+## Chapter 8: Bottle cap
 
 Set 2 started badly, too.
 
@@ -3378,7 +3382,7 @@ Then Satoshi's brain opened a fresh page, and wrote at the top: Oikawa. Setter. 
 
 And underneath that, in smaller letters: He watches like I do.
 
-**Continuity (ch 7)**
+**Continuity (ch 8)**
 
 - Canon covered: the lineup announced at Sakanoshita (Hinata as decoy, Kageyama selling it), Hinata's sleepless night and the bus vomit on Tanaka, arriving at Seijoh and the hallway clash (Tanaka's forced apology), Kindaichi's "King", Hinata's bathroom meeting with Kindaichi (summarized), set 1 lost 13-25 with Hinata's serve into the back of Kageyama's head, Tanaka and Tsukishima laughing, Kageyama slapping his own head, Tanaka's pep talk, Kageyama apologizing for a high set (Kindaichi and Kunimi stunned), Hinata as decoy freeing Tanaka, Hinata's "I can trust you guys" timeout, Kageyama and Tsukishima blocking together, set 2 won 25-22 (set 2 score is inferred), Oikawa's arrival with the balcony fans and the coach's "don't overdo it", Kageyama explaining Oikawa, Hinata naming him the Great King.
 - Changes: Sho starts in Ennoshita's spot, playing opposite and hiding from serve receive. Ennoshita and Suga sit on the bench together.
@@ -3393,9 +3397,9 @@ And underneath that, in smaller letters: He watches like I do.
 - No eye events this chapter. The Iwaizumi dig was pure reading (hand vanishes = full swing; approach from outside = cross).
 - Oikawa clocked Sho for a second. Sho's note: "He watches like I do."
 - No status card.
-- Next: ch 8, set 3. Oikawa pinch serves at 24-21 targeting Tsukishima; Karasuno wins 25-23.
+- Next: Ch 9, set 3. Oikawa pinch serves at 24-21 targeting Tsukishima; Karasuno wins 25-23.
 
-## Chapter 8: Grand King
+## Chapter 9: Grand King
 
 Oikawa warmed up for a long time.
 
@@ -3781,7 +3785,7 @@ He set his alarm for 4:15, turned off the light, and lay in the dark thinking ab
 
 Tomorrow, apparently, a god was coming back to Karasuno.
 
-**Continuity (ch 8)**
+**Continuity (ch 9)**
 
 - Canon covered: Oikawa's long warm-up and scouting of Karasuno's receive, set 3 to 24-21, Oikawa subbing in for Kunimi as pinch server, pointing at Tsukishima ("attacking power means nothing if the receive doesn't connect"), 2 aces on Tsukishima (24-22, 24-23), Suga's "stronger than Kageyama's serve", Hinata's "aim at me" and Tanaka's "ally" line repeated, Daichi widening the formation, the softer 3rd serve, Tsukishima's free ball, Kindaichi's swing, Hinata's one-touch, the cross-court sprint and the quick past Oikawa's left ear (25-23), Oikawa smiling at the quick, Takeda's "chemical reaction" speech and his private resolve to find a coach, Oikawa at the gate (Hinata praised, receive weakness, "I'll crush you properly"), Daichi's "Guardian Deity".
 - Changes and additions: Sho is part of Daichi's spread formation. Iwaizumi dragging Oikawa away at the gate is my addition (canon doesn't confirm Iwaizumi was there). The Kindaichi and Kageyama bathroom talk happens off-page.
@@ -3795,9 +3799,9 @@ Tomorrow, apparently, a god was coming back to Karasuno.
 - Family: Mio checked his knees and forearms at the door; Mom announced "practice sekihan"; Dad looked up libero rules on his phone; Mio's new bet is 2 puddings that he quits by summer.
 - Sho's notebook: Oikawa scouting notes, jump serve progression plan (float, then jump float, then spin; 15 min/day toss-and-catch; shoulder warm-up), "Guardian Deity. Who?"
 - No status card (no rank changed).
-- Next: ch 9, Nishinoya returns and receives everything.
+- Next: Ch 10, Nishinoya returns and receives everything.
 
-## Chapter 9: Guardian deity
+## Chapter 10: Guardian deity
 
 The blond guy at Sakanoshita threw the popsicles.
 
@@ -4269,7 +4273,7 @@ He looked at the 2 lines together for a long time.
 
 Then he underlined both.
 
-**Continuity (ch 9)**
+**Continuity (ch 10)**
 
 - Canon covered: the popsicles thrown by the Sakanoshita clerk (Ukai), the walk home where Kageyama reveals he failed Shiratorizawa's entrance exam and came to Karasuno for Coach Ukai, who then collapsed; Nishinoya's entrance receiving Kageyama's serve (aimed at a water bottle) into the setter's spot; Hinata's "shorter than me" and "Nishinoya-senpai"; the popsicle offer; the suspension (1 week from school, 1 month from the club, a vase broken in front of the vice principal during a fight about Asahi leaving); Noya asking for Asahi, Suga's "he hasn't come back", Noya refusing to play matches until Asahi returns but agreeing to teach receiving; Noya unable to explain receiving; Kageyama asking to serve at Noya; Rolling Thunder; the Tanaka and Noya Kiyoko guard.
 - Not confirmed canon: Noya's specific sound words ("shu", "don") are mine; canon only says he can't explain receiving. Rolling Thunder's first appearance may be later in canon.
@@ -4284,9 +4288,9 @@ Then he underlined both.
 - New backstory detail: in his last 2 months before the ACL tear, Satoshi stopped asking for the ball.
 - Family: Mio hears the 4:15 alarm through the wall; Sunday is Sho's rest day; Mom gives him 2 extra pieces of tamagoyaki and leaves the porch light on for him without a word. Toss-and-catch: 20 in a row in a hand-width patch (up from 14).
 - No status card.
-- Next: ch 10, Asahi's backstory and Ukai Keishin agreeing to coach.
+- Next: Ch 11, Asahi's backstory and Ukai Keishin agreeing to coach.
 
-## Chapter 10: The ace who left
+## Chapter 11: The ace who left
 
 Takeda-sensei announced it at the end of Thursday practice, holding a sheet of paper in both hands like a diploma.
 
@@ -4472,7 +4476,11 @@ Ukai looked up. "What."
 
 Ukai gave him the biggest one in the warmer. Again.
 
----
+**Continuity (ch 11, 1st half)**
+
+- Split Nov 14 (Option B) from old ch 10; this half gets its full Continuity block when it is rebuilt. Facts for this stretch are in the 2nd half's old block below.
+
+## Chapter 12: 40 yen
 
 On Monday, Takeda walked into the gym with Ukai behind him.
 
@@ -4688,7 +4696,7 @@ And Sho thought, very calmly: I'm going to block you as hard as I can.
 
 Because that was the only honest thing to do.
 
-**Continuity (ch 10)**
+**Continuity (ch 12)**
 
 - Canon covered: Takeda announces the Golden Week camp and the Nekoma match ("to get someone's attention"); Tanaka explains the Battle at the Garbage Dump; Hinata and Kageyama meet Asahi on the 3rd-year floor (Suga introduces) and Asahi says "I'm not the ace" and leaves; Suga explains the Date Tech match (every spike blocked by the Iron Wall, Asahi carrying too much, the fight with Noya, quitting); Takeda's repeated bows to Ukai at Sakanoshita; Ukai agreeing "only until the Nekoma match" after Takeda mentions Nekomata and Nekoma's current coach; Ukai's first practice; his awe at the quick; the Neighborhood Association match at 6:30 (Karasuno alumni; Ukai coaches from the sideline and Suga sets for them); Suga volunteering for Ukai's side and confessing to Kageyama that he was relieved not to set for Asahi but wants to toss to him once more; Ukai recruiting Noya as libero; Hinata spotting Asahi through the window; Ukai pulling him in as "tall guy".
 - Unverified details used: Hinata visiting Asahi's classroom on the 3rd-year floor; Asahi's stubble and tied-back hair; the 6:30 match being that same evening; the alumni's jobs (supermarket, electrical shop); Ukai's hairband.
@@ -4701,9 +4709,9 @@ Because that was the only honest thing to do.
 - Ace rivalry: Hinata vows to be the ace; Sho says "Okay" (no height joke). Form joke: "I also wrote that I was 190." Noya: "Karasuno's ace is Asahi-san." Sho: "Then I'll be the opposite. Literally." Noya leaves a gap in the line beside him.
 - Hook: Sho at opposite across the net from Asahi, deciding to block him at full strength because a soft block would be the cruelest thing.
 - No status card.
-- Next: ch 11, the Neighborhood Association match. Asahi gets blocked, Noya saves it, Suga sets him again (Asahi's moment).
+- Next: Ch 13, the Neighborhood Association match. Asahi gets blocked, Noya saves it, Suga sets him again (Asahi's moment).
 
-## Chapter 11: Neighborhood
+## Chapter 13: Neighborhood
 
 The Neighborhood Association changed in the club room, and they came out looking exactly like what they were: guys who'd worked all day.
 
@@ -4949,7 +4957,7 @@ Suga was about to set someone else.
 
 And across the net, Asahi lifted his head and opened his mouth.
 
-**Continuity (ch 11)**
+**Continuity (ch 13)**
 
 - Canon covered: the Neighborhood Association arriving after work (Shimada of Shimada Mart, Takinoue, Uchizawa, a 4th alumnus), Suga setting for them, Suga's quick to Takinoue for the first point, Daichi's "He's a real setter", Noya calling Suga cool, the first freak quick stunning the adults ("Is that allowed?"), Asahi watching Hinata, Asahi's hesitant early attacks, Tanaka shouting at Asahi to keep asking for the ball, Asahi and Noya talking at the net (canon: Asahi says he still wants to hit; Noya says he'll keep the ball alive), Hinata's net-clipping serve, Shimada's bad receive, Uchizawa's desperate set to Asahi, the triple block, Noya's last-second save and "call for it again". Ends at canon ch 20's last page.
 - Canon fixes: Ukai coaches from the sideline and Suga sets for the Neighborhood side. Chapter 10 now matches. The Date Tech flashback is Asahi's POV in canon and stays off-page here.
@@ -4963,9 +4971,9 @@ And across the net, Asahi lifted his head and opened his mouth.
 - Asahi's last swing before the climax: no hitch, full approach, hand vanished behind his head. Sho stuffed it at full strength, didn't gloat, and was already resetting when Noya saved it.
 - Suga's hands paused at the top of the save, about to set someone else (canon ch 21: he starts to set Shimada, Kageyama yells to set Asahi, Asahi calls Suga's name).
 - No status card.
-- Next: ch 12, Asahi calls for the ball and breaks through; the rest of the match (Neighborhood wins 2-0, set 1 25-19); Asahi and Noya rejoin.
+- Next: Ch 14, Asahi calls for the ball and breaks through; the rest of the match (Neighborhood wins 2-0, set 1 25-19); Asahi and Noya rejoin.
 
-## Chapter 12: Call for the ball
+## Chapter 14: Call for the ball
 
 Sugawara's hands paused at the top.
 
@@ -5351,7 +5359,7 @@ His left knee didn't hurt. It hadn't hurt all night.
 
 He fell asleep before he could think about why that mattered.
 
-**Continuity (ch 12)**
+**Continuity (ch 14)**
 
 - Canon covered: Suga starting to set Shimada a back attack, Kageyama yelling across the net to keep setting Asahi, Asahi calling for the ball ("SUGA! ONE MORE!"), the spike through the triple block (5-7), Hinata awed then "It's our turn now", Kageyama's "Don't get scared now", Ukai's "saves like that don't happen every time", Noya scolding Asahi about his jump, Ukai asking Hinata how he knew to jump ("I knew it was coming to me"), Ukai's "Kageyama's a prodigy, but Suga has the trust", "why didn't anyone tell me this team was this good" / "I did, several times", set 1 ending 19-25 on Asahi's spike off Hinata's block, Ukai doubting Hinata as a middle blocker, Hinata hit in the face at 2-2 in set 2 while staring at Asahi, Kageyama's decoy talk, announcing the set to the opponents, the "same one point" line, "decoys aren't lame anymore", Shimada's 4 straight jump float aces (20-18 to 24-18), Takinoue's "you're a jerk", Daichi's dig, the last rally (Hinata decoy, Tanaka spike, Noya dig, Suga sets Asahi), Ukai's verdict that receiving is the biggest problem, Asahi asking to come back, Daichi's "ace in name only, a greenhorn".
 - Inferred or invented: final score 18-25 in set 2 (canon gives 24-18 then Asahi's winner); Asahi calling "Suga" by name (canon only says he called for the ball); "you never filed a withdrawal form", "Okaeri" / "Tadaima", and Asahi bowing to the first years are mine; Ukai's meat buns after the match.
@@ -5367,9 +5375,9 @@ He fell asleep before he could think about why that mattered.
 - Family: lost 2-0 "against a bunch of 26-year-olds". Mio silently put a pudding cup by Sho's plate. Nobody mentioned the bet.
 - Notebook: crossed out "stopped asking for the ball", wrote "He called for it." New page: Shimada's jump float cues. His left knee didn't hurt all night.
 - No status card.
-- Next: ch 13, Golden Week training camp, Hinata gets #10, stories of Ikkei's old training; first status card rank-up.
+- Next: Ch 15, Golden Week training camp, Hinata gets #10, stories of Ikkei's old training; first status card rank-up.
 
-## Chapter 13: Golden Week
+## Chapter 15: Rice cooker
 
 The camp building smelled like old tatami and somebody else's laundry detergent, and Hinata ran through every room of it in under 2 minutes.
 
@@ -5681,7 +5689,11 @@ His father came on next. He asked how practice was. Then he asked, carefully, "D
 
 Sho hung up. He stood in the hallway with his hand still on the receiver until the phone gave his last coin back.
 
----
+**Continuity (ch 15, 1st half)**
+
+- Split Nov 14 (Option B) from old ch 13; this half gets its full Continuity block when it is rebuilt. Facts for this stretch are in the 2nd half's old block below.
+
+## Chapter 16: Prime number
 
 On the last morning's run, Hinata raced Kageyama up the hill, took a wrong turn, and came back 20 minutes late, red-faced and full of news.
 
@@ -5951,7 +5963,7 @@ Emperor's Eye: Partial awakening
 Meta Vision: Scanning (new)
 ```
 
-**Continuity (ch 13)**
+**Continuity (ch 16)**
 
 - Canon covered: Golden Week camp (May 2 to 6, match on the 6th), Kiyoko going home at night, Ukai's receive drills (stay on until 5 good passes), Hinata exploring every room, the bath scare (flat-haired Noya taken for a kid, Asahi with his hair down), Hinata getting lost on the last morning's run and meeting Kenma (reported; a "tall guy with weird hair" fetches him; "See you, Shoyo"), Ukai's lineup for Nekoma (Daichi, Asahi, Tanaka, Tsukishima, Hinata, Kageyama, Nishinoya libero), Noya making Asahi apologize to Ennoshita for taking his spot, Ennoshita's story while laying futons (old Ukai returned last year, Ennoshita, Narita and Kinoshita stopped coming, came back after he collapsed), jerseys on match morning (1 to 12 as canon; Hinata annoyed by 2 digits; Daichi: the Little Giant wore 10; Ukai: the Little Giant's team never beat Nekoma; "So beat them"), Nekoma's arrival (Yamamoto vs Tanaka, Suga and Yaku hauling them back, Yamamoto fleeing from Kiyoko, yakisoba bread bet), Hinata learning Kenma is Nekoma's setter, Kageyama interested, Daichi and Kuroo's handshake.
 - Invented or unverified: Kiyoko handing out jerseys; Takeda's printed curry recipe; the payphone; study hour; lights out at 10; the koinobori; Yamamoto's "What're you looking at?"; who made the yakisoba bet; Kenma not answering "Why didn't you say?"; Kuroo noticing Sho.
@@ -5969,9 +5981,9 @@ Meta Vision: Scanning (new)
 - Ennoshita: Sho put his speech away; asked for 20-minute receive feeds after practice ("I'm still bad. And you see things I don't." "Mm. Fine."). Melon bread; Narita: "Where's ours?" "Earn your bread." Ennoshita: "We'll be right behind you."
 - Kuroo: "Your team's got a guy taking notes." "Thank you. I'm also very handsome." "Noted." Kenma gave Sho one analyst's look. Notebook: "Kenma, setter. Watches like I do. That's 2." (Oikawa was the 1st.)
 - Status card: Reception E to D. Meta Vision Film brain to Scanning.
-- Next: ch 14, the Nekoma practice match. Sho subs in; Kenma reads him; scanning overload freezes him mid-rally.
+- Next: Ch 17, the Nekoma practice match. Sho subs in; Kenma reads him; scanning overload freezes him mid-rally.
 
-## Chapter 14: Garbage Dump
+## Chapter 17: Garbage Dump
 
 Before the first whistle, a tall Nekoma first year with short spiky hair and a very honest face looked down at Hinata across the net.
 
@@ -6285,7 +6297,7 @@ He wrote 1 word in it.
 
 > Kenma.
 
-**Continuity (ch 14)**
+**Continuity (ch 17)**
 
 - Canon covered (set 1): Inuoka calls Hinata short ("I'm not, I just noticed"), Kenma serves first at Asahi, the opening super quick point, Asahi's spike that Yaku misses then touches, Tsukishima's line about Yaku touching a spike he'd seen once, Hinata's missed serve, Tanaka's spike past Yamamoto, Karasuno 12-9, Nekomata's timeout, Kenma assigns Inuoka to Hinata, Inuoka falls for the decoy then gets fingertips on the quick, Hinata reads Kenma so Kenma dumps, 18-18, Nekoma 24-22 set point, Hinata asks for the next one, Inuoka blocks the quick clean, Nekoma 25-22.
 - Invented or unverified: Takeda's "Battle at the Garbage Dump" explanation on the bench (the name is canon; who explains it in this match is unverified); the libero swap detail; Yaku stopping at Karasuno's bench; Kenma and Kuroo's towel exchange.
@@ -6300,9 +6312,9 @@ He wrote 1 word in it.
 - Kenma, under a towel, looked at Sho, then at Kuroo. Sho reads it as being passed to Kuroo.
 - Ukai: "Set 2. Same rotation. Same call. You go in when I say." Sho boxed "Kenma" in the notebook.
 - No status card this chapter (no rank change).
-- Next: ch 15, sets 2 and rematches. Sho goes back in with 2 checks; Kuroo targets him; Nekoma wins 25-23 and every rematch; Ukai's "not a team yet"; promise of Nationals.
+- Next: Ch 18, sets 2 and rematches. Sho goes back in with 2 checks; Kuroo targets him; Nekoma wins 25-23 and every rematch; Ukai's "not a team yet"; promise of Nationals.
 
-## Chapter 15: Not a Team Yet
+## Chapter 18: Not a Team Yet
 
 Inuoka blocked Hinata 3 times in the first 5 points of set 2.
 
@@ -6632,7 +6644,7 @@ He turned off the lamp.
 
 Through the wall, very faintly, he could hear the clock in Mio's room ticking, and somewhere under it, the sound of a ball he'd already hit 10,000 times in another life, still bouncing.
 
-**Continuity (ch 15, Arc 1 finale)**
+**Continuity (ch 18, Arc 1 finale)**
 
 - Canon covered (set 2 and after): Inuoka keeps blocking Hinata, Hinata grins ("I hate getting blocked"), Nekoma 10-5, Ukai's timeout and the Little Giant story (hit off the blockers' hands), Hinata's cross off Inuoka that Yaku can't hold, Yamamoto "I'm the ace," Tanaka off Yamamoto and Inuoka plus the Tanaka/Noya chant, Hinata's touch and glance, Karasuno 17-15, Kuroo's "Shrimpy," Kageyama's super quick (18-16), Nekoma's synchronized decoys, Fukunaga's back-row hit into Hinata's face, Kuroo's paused-approach quick, Nekomata's "scared?" / "NO," Hinata's glance, Kenma's dump, Daichi's line shot, the last ball dropping between Noya and Hinata, Nekoma 25-23. Hinata asks for more; Nekomata: "It wouldn't be a practice match without a rematch." Nekoma wins the 2 extra games in straight sets. Kageyama: an official loss would have ended it. Ukai: prelims in under a month. Kenma and Hinata's "next time / fun" exchange (kept offscreen-ish, Sho looks away). Daichi and Kuroo's laughing handshake.
 - Invented or unverified: Ukai's exact "strong players / they've got a team" phrasing; Takeda relaying Nekomata's "ball touches the floor" saying; scores 19-20, 19-21, 20-21 (canon only fixes 17-15, 18-16, 22-20, 23-22, 24-22, 24-23); the bus ride; Kuroo's "We'll see you in Tokyo."

@@ -2,7 +2,7 @@
 
 Story bible: https://claude.ai/artifact/CzEHV4vyfey9WUYExLRVrK Arc 1 chapters: https://claude.ai/artifact/XR47XChbme3QjgaTLAuPAL
 
-## Chapter 16: The Map
+## Chapter 19: Bracket
 
 Ukai came into the gym on the Monday after Nekoma in sandals, with a cigarette he wasn't allowed to light tucked behind his ear, and announced it like he was reading a weather report.
 
@@ -298,7 +298,11 @@ Yamaguchi stared at him. "You're not making fun of me?"
 
 Yamaguchi laughed, a startled little sound, and picked up another ball. Sho drank his melon soda and left him to it, and somewhere behind him a ball hit the end line again, on purpose.
 
----
+**Continuity (ch 19, 1st half)**
+
+- Split Nov 14 (Option B) from old ch 16; this half gets its full Continuity block when it is rebuilt. Facts for this stretch are in the 2nd half's old block below.
+
+## Chapter 20: Fly
 
 On Saturday, Kageyama stood at the net after practice holding a ball and staring at Sho until Sho understood he was being invited.
 
@@ -472,7 +476,7 @@ He tapped the pen in the middle of the box, once, and left a small dot.
 
 *Shut up, Satoshi,* thought Sho, and set his alarm for 4:15.
 
-**Continuity (ch 16, rewritten dialogue-first)**
+**Continuity (ch 20, rewritten dialogue-first)**
 
 - Canon covered (between Nekoma and the prelims): Ukai becomes the official coach; the bracket (Tokonami, then Date Tech, then probably Seijoh; Shiratorizawa and Ushijima at the top); Ukai lays out Date Tech's Iron Wall; Hinata and Kageyama's endless racing; Yamaguchi secretly practicing his float serve (with Shimada on Sundays, per ch 12); Kiyoko's old "飛べ" (Fly) banner, mended, unrolled on the gym floor; Kiyoko's "Good luck"; Tanaka and Noya collapse crying.
 - Invented or unverified: banner and "Good luck" timing (last practice); the local channel's 5 p.m. rerun of last year's prelim highlights; Kageyama's extra sets to Sho; Ukai's sandals and unlit cigarette.
@@ -489,9 +493,9 @@ He tapped the pen in the middle of the box, once, and left a small dot.
 - Home: Mio crosses out June; magnet stays on August. "The solstice is June 21st." "Teacher says July." "Are you going to win?" "Probably not all of it." "Then quit." "I'm helping him." Dad: "10 a.m.?" "10, Dad." "Mm." Sports page on the fridge under the fish magnet, Karasuno's match circled once. Mom: "It's 1 bento. It's just ambitious."
 - Notebook: bracket with notes (Oikawa starred, "dangerous" underlined twice); Karasuno's box left empty except 1 dot. "Shut up, Satoshi."
 - No status card.
-- Next: ch 17, Tokonami. Sho's first official serve.
+- Next: Ch 21, Tokonami. Sho's first official serve.
 
-## Chapter 17: First Official Serve
+## Chapter 21: First Official Serve
 
 At 4:15 the sky behind the house was the gray of dishwater.
 
@@ -1151,7 +1155,7 @@ Then he went to Karasuno's box, the one that was empty except for 1 small dot, a
 
 He put the notebook away and went down the stairs.
 
-**Continuity (ch 17)**
+**Continuity (ch 21)**
 
 - Canon covered (ch 37 to 41, ep 14 to 16): Kageyama and Hinata's race to the gym (Kageyama claims 31 wins, 30 losses, 1 draw; Hinata says 32); Tanaka's bag for Hinata on the bus; Tokonami reading the board and calling Karasuno the Fallen Champions / Flightless Crows; Tanaka and Noya looming; Ikejiri (#4) spotting Daichi, Daichi walking on; the Salonpas smell; Date Tech in the hallway: Aone points at Asahi, Noya steps in, Asahi holds him back, captain Moniwa apologizes, Futakuchi pushes Aone away and says "be ready for the rematch"; Suga calls Asahi brave; Hinata's "shaving" for "shaking"; Asahi's scariest-experience advice and Hinata remembering Kageyama's face; Seijoh's arrival, Iwaizumi hitting Oikawa with a ball, Oikawa's cheerful greeting; Ukai's "who gets over nerves first"; Takeda's "flightless crows back in the air"; Tanaka scores first, the referee warns Daichi over Tanaka and Noya's yelling; Asahi through a 3-man block; the quick silences the arena; Hinata serves at 23-12, Ikejiri can't pass it (24-12), then Daichi and Tsukishima block Ikejiri for 25-12; set 2 at 17-8 with Kageyama's 5 aces; Tokonami's 2nd timeout at 21-12; 24-13 match point, Tokonami's quick for 24-14, Noya angry, Daichi "we'll get the next one"; Daichi's right-side spike for 25-14; Ikejiri asks Daichi to win for them (seen from a distance); Hinata staring at his hand.
 - Invented or unverified: Tokonami's 3-bounce server who only serves straight; 15-10 and 16-10 in set 1; 21-13 and 22-13 in set 2; Sho's pinch serves (22-13 to 24-14) and Tanaka's return at 24-14; Futakuchi's "See you in round 2"; Date Tech playing their round 1 on a far court between rounds; Aone looking up at Karasuno's banner; Oikawa at the rail above Karasuno's court; Mio and Dad in the stands. Skipped canon: the Asahi rumors and "wild image" exchange, Hinata's "shallot-head", Michimiya's girls' team.
@@ -1171,9 +1175,9 @@ He put the notebook away and went down the stairs.
 - Aone, after his match, looked up along the 2nd-floor railing and stopped on Karasuno's 飛べ banner.
 - Notebook: crossed out Tokonami; in Date Tech's box crossed out "read" from "read and commit"; added a 2nd dot to Karasuno's box. Enies Lobby / Gate of Justice joke ("We have a decoy, a guy with a meat bun debt, and a senpai who brings 3 bags.").
 - Ukai: round 2 in 30 minutes.
-- Next: ch 18, Date Tech (Iron Wall). Aone reads Hinata; Asahi blocked again. Sho on the bench reading Aone; the eye won't touch a commit block.
+- Next: Ch 22, Date Tech (Iron Wall). Aone reads Hinata; Asahi blocked again. Sho on the bench reading Aone; the eye won't touch a commit block.
 
-## Chapter 18: Iron Wall
+## Chapter 22: Iron Wall
 
 The stairwell at the end of the back hallway was the only place in the building where nobody had put a bag down. Sho sat on the bottom step with the blue furoshiki on his knees and worked at the knot. His mother tied them tight.
 
@@ -1575,7 +1579,7 @@ Sho took the notebook out of his back pocket. Under Date Tech he'd written *read
 
 He put the notebook away. On the far side, the big one crouched in the middle with his hands in front of his face, and the drum started up again.
 
-**Continuity (ch 18)**
+**Continuity (ch 22)**
 
 - Canon covered (ch 41 to 44, ep 16 to 17): Aone walks past and Hinata hides behind Tanaka; Kageyama's "the more they look at you, the better a decoy"; Suga takes Hinata and Kageyama aside (offscreen); Date Tech's big cheering section; Takeda's "Date Tech atmosphere"; Noya's Rolling Thunder and "I'll protect your backs"; Ukai on what a libero is for; Karasuno starts Hinata, Tanaka, Kageyama in the front row; the first quick lands as Aone arrives late; Asahi's back-row attack blocked; Aone's net touch gives Karasuno a point; Asahi's block-out; Hinata blocked at 3-2; Ukai explains read blocking; Hinata runs everywhere as a decoy and quicks land; Date Tech timeout and the order to stay on number 10; Hinata delays his jump; Aone follows Hinata's cut and blocks the quick; Futakuchi needles Asahi and Moniwa scolds him; blockers rush Hinata and Kageyama sets Asahi, who scores on Date Tech for the first time; Shimada and Takinoue arrive; Aone blocks Hinata's quick completely; Shimada says every team will copy it.
 - Invented or unverified: the stairwell details; the drum; scores other than 3-2 (1-0, 1-1, 2-1, 3-1, then Hinata blocked for 3-2; 8-5 timeout, 9-6, 9-7, 10-7, 11-8, 12-9); the decoy rallies to Tanaka and Daichi; Asahi stopped twice early; Daichi's pre-match line; Hinata's "Again."; Futakuchi's exact taunt; Mio and Dad still in the stands.
@@ -1590,9 +1594,9 @@ He put the notebook away. On the far side, the big one crouched in the middle wi
 - Shimada waved at Sho and Yamaguchi; Yamaguchi checked whether Tsukishima saw (he was watching Aone).
 - Score at chapter end: Karasuno 12-9 in set 1, right after Aone's clean block on the quick. Hinata: "Again."
 - No status card.
-- Next: ch 19 "Ace". Hinata and Kageyama answer the block; Asahi's pipe behind the decoy; set 1 to 25-19; Ukai changes the rotation for set 2; Noya's foot save at 24-22; Kageyama's high set; Asahi through the wall for 25-22. Sho subs for Tanaka to change pace at some point. Asahi's moment stays his.
+- Next: Ch 23 "Ace". Hinata and Kageyama answer the block; Asahi's pipe behind the decoy; set 1 to 25-19; Ukai changes the rotation for set 2; Noya's foot save at 24-22; Kageyama's high set; Asahi through the wall for 25-22. Sho subs for Tanaka to change pace at some point. Asahi's moment stays his.
 
-## Chapter 19: Ace
+## Chapter 23: Ace
 
 Kageyama looked at Hinata for a while. Then he went back to his spot and bent his knees.
 
@@ -2012,7 +2016,7 @@ Yamaguchi nodded. Then he looked down the rail past Sho, to the stairs. Tsukishi
 
 Tsukishima came and leaned on the rail on Yamaguchi's other side. Shimada started telling Sho where Takinoue had probably gone to eat and how long he'd be. Down on the court Oikawa had the ball again, and he bounced it twice.
 
-**Continuity (ch 19)**
+**Continuity (ch 23)**
 
 - Canon covered (ch 44 to 48, ep 17 to 18): after Aone's clean block, Hinata is blocked again; Noya saves it; Daichi, Hinata and Tanaka all rush the net, Date Tech goes with Hinata, and Asahi's pipe from behind Hinata scores (he looks at the far court before he hits); Asahi thanks Kageyama, Hinata and Noya; Hinata: no score but exciting; Kageyama: the strongest decoy is as cool as any ace; Hinata's quick through 2 blockers; Asahi wins set 1 (25-19); Ukai's rotation change so Aone faces Hinata less; Asahi: can't only rely on Hinata; Hinata: he'll score as the strongest decoy; Asahi to Tsukishima about facing the big one; Hinata: flashy is his job, Tsukishima just endures; Asahi envies Tsukishima; Tsukishima handles trouble from the back; Asahi and Tsukishima block Aone's quick; Moniwa misses a block on Asahi; Futakuchi's jump serves; Hinata switched back to the front rotation and scores; Kamasaki answers with a quick; Futakuchi teases Kamasaki, Kamasaki blocks Asahi; Hinata's quick falls between Aone and the net; Aone's frustration and his seniors reassuring him; 24-22, Hinata rotates out; Asahi blocked, Noya's foot save; Suga, Hinata, Noya call to Asahi; Kageyama hesitates; Suga and Asahi call to him; the high set; Takeda asks why high, Ukai says it's what the team needs; Asahi through the block, the ball clips the tape and drops; Futakuchi misses by a hair; Aone's handshake with Hinata; Asahi's "everyone's a hero"; Hinata credits Suga with the quick signal; Suga wishes he'd won it with his own toss; Daichi glad he still wants to fight; Seijoh's first match on the next court, Oikawa's serve and consecutive aces.
 - Invented or unverified: 13-9 after the pipe; set 2 scores 13-13 to 15-16; the final 25-22 (only 24-22 is on the wiki); the exact canon wording of every line (all paraphrased); Ukai's tactical reason for the sub; Hinata holding Sho's sleeve; Shimada and Yamaguchi at the railing; Shimada's comment on Sho's float toss.
@@ -2023,9 +2027,9 @@ Tsukishima came and leaned on the rail on Yamaguchi's other side. Shimada starte
 - Railing: Shimada told Sho he's tossing the float behind him ("Toss it where you're going to hit it."). Yamaguchi noticed Oikawa's toss lands in the same place every time and asked Shimada to spend Sunday only on the toss ("Bring the ball. Mine's flat."). Tsukishima came back with tea; the secret holds. Oikawa's "I'll show you my serve. From very close." (ch 8) is in Sho's head.
 - The eye did not fire this chapter.
 - No status card.
-- Next: ch 20 "Scouting Seijoh" (canon ch 48 to 50): end of day 1 (home? dinner? Mio and Dad, who were in the stands), day 2, Seijoh. Sho and Oikawa, 2 people who watch the same way.
+- Next: Ch 24 "Scouting Seijoh" (canon ch 48 to 50): end of day 1 (home? dinner? Mio and Dad, who were in the stands), day 2, Seijoh. Sho and Oikawa, 2 people who watch the same way.
 
-## Chapter 20: Scouting Seijoh
+## Chapter 24: Scouting Seijoh
 
 Oikawa's 3rd serve went at the gap between 2 receivers. They both moved for it, and they both stopped, and it hit the floor between their shoes.
 
@@ -2435,7 +2439,7 @@ Hinata was drinking water. He didn't notice.
 
 Sho noticed. He watched the hitters, the way Ukai had said. Kindaichi, Iwaizumi, the number 3, Kunimi. They were all nodding.
 
-**Continuity (ch 20)**
+**Continuity (ch 24)**
 
 - Canon covered (ch 47 to 50, ep 18 to 19): Seijoh's first match on the next court, Oikawa's consecutive aces unnerving Karasuno, realising they know little about Oikawa as a setter; Ukai's conductor comparison (paraphrased); the team returns to the gym for a meeting; Ukai: the quick is less effective now that Seijoh has seen it, focus on stopping Seijoh, a new receive formation; Kageyama quiet, Hinata declares they'll beat Seijoh; day 2: Oikawa and Daichi shake hands; Oikawa tells Kageyama he looks forward to beating him; Hinata cuts in; Oikawa's 2nd-ball attack and challenge; Iwaizumi scores; Kageyama dumps after Hinata, Asahi and Tanaka all run in; Kageyama's serve goes out; Oikawa serves hard at Noya on purpose (Ukai explains); Hinata's quick past Kindaichi; Oikawa talks to Kindaichi and Kindaichi jumps higher; Asahi scores off Oikawa (here: off Oikawa's dig in the back row); Oikawa calls an early timeout.
 - Invented or unverified: Oikawa's ace count in Seijoh's first match (Seijoh beat Oomisaki 25-14, 25-12 per the results pages; the opponent isn't named in the chapter); Ukai's exact words on the setter; Kageyama saying he once asked Oikawa to teach him his serve (canon shows it later as a flashback); the bus beats; the meeting details; Ukai's pre-match words; Seijoh's early-timeout huddle as Sho sees it; scores are left vague on purpose.
@@ -2447,9 +2451,9 @@ Sho noticed. He watched the hitters, the way Ukai had said. Kindaichi, Iwaizumi,
 - Oikawa at the sink: "See? I wrote it down." "Tall-kun's cuter." Seijoh sat behind Karasuno's bench on day 1. He watched Sho both days: 3 floats, the sub at 13 all, Kageyama's flatter set ("Him setting a ball because it's easier for someone. That's new."), going into the big one, then looking at the end blocker's hand and turning his chin toward it before he jumps. "When you look at the hand, they'll move it." "Now you'll be thinking about your chin when you jump." Iwaizumi ("Oi. Shittykawa.") dragged him off. Oikawa: "Today's from very close, Kiyose-kun." Sho can't remember where his eyes went on that hit.
 - Score at chapter end: early in set 1, close, at Seijoh's first timeout. Canon set 1 ends 15-25.
 - No status card.
-- Next: ch 21 "Set 1" (canon ch 51 to 55): Oikawa reads Karasuno's quick calls ("send" and "bring") and marks Hinata on the superhuman quick; Kindaichi serves at the gap Kageyama crosses; Oikawa serves at Tanaka; Tanaka's slump and self-slap; Suga in for Kageyama at 20-11; Seijoh 25-15. Sho stays on the bench (per the outline Oikawa reads Sho's 2 looks in set 1, so if Sho goes in at all, Oikawa's chin read pays off).
+- Next: Ch 25 "Set 1" (canon ch 51 to 55): Oikawa reads Karasuno's quick calls ("send" and "bring") and marks Hinata on the superhuman quick; Kindaichi serves at the gap Kageyama crosses; Oikawa serves at Tanaka; Tanaka's slump and self-slap; Suga in for Kageyama at 20-11; Seijoh 25-15. Sho stays on the bench (per the outline Oikawa reads Sho's 2 looks in set 1, so if Sho goes in at all, Oikawa's chin read pays off).
 
-## Chapter 21: Set 1
+## Chapter 25: Set 1
 
 Sho had the bottles out of the carrier before the starters got to the bench. He put them into hands as they came in. Daichi drank with his eyes on the far side of the court. Asahi held his against his chest with the cap still on and kept looking up at the seats, where the ball off Oikawa's forearms had gone. Nishinoya waved his away. He was bouncing on his toes behind Ukai, telling Asahi how loud the hit had been.
 
@@ -2871,7 +2875,7 @@ Sho opened his notebook. Under Seijoh he had 4 lines now, written small and clos
 
 Sho closed the notebook and put it away.
 
-**Continuity (ch 21)**
+**Continuity (ch 25)**
 
 - Canon covered (ch 49 to 55, ep 19 to 21), checked against fetched wiki pages: Seijoh's early timeout; Noya and Tanaka teasing Kageyama's face, Tanaka telling him his sets help, Noya recalling a junior-high serve that was Oikawa's (the exact words are invented); Hinata serving first after the timeout and Seijoh's number 3 (Hanamaki) hitting it down; Kindaichi's 2 serves at Asahi aimed at the gap Kageyama crosses; Kageyama's blocked dump; Tanaka scoring a cross; Kindaichi read-blocking Hinata's plain quick; Kageyama's near-foul serve hit with the base of the palm and the soft return to him; Oikawa serving at Tanaka; Karasuno's first timeout (Ukai tells Kageyama to calm down and play with the team); more bad Tanaka receives and a spike blocked out; Karasuno's second timeout (Tanaka slaps his face, says he wasn't playing properly; Ukai impressed); Tanaka's chest receive and straight spike; the setter joust and Kageyama's bad toss at 20-11; Suga for Kageyama; Hinata shouting at Kageyama; Ukai telling him to watch and learn from a 3rd year; Suga touching teammates and telling Daichi he's been quiet; Suga's first 3 rallies (Daichi's receive, parallel toss to Tanaka, Tsukishima swapping in to block Iwaizumi; Tsukishima serving; Hinata blocking the other tall middle; Suga's hand signal to Hinata); Oikawa's final 3 serves (the gap between Noya and Tanaka, the front court, then a rally ending with Hinata's block going out); 25-15; Ukai praising the team and promising better receive; Kageyama and Suga arguing about Kindaichi's jump, Suga admitting he was scared (and wanting to stay on) and that Kageyama's presence helped; Hinata asking if Kageyama is depressed and Kageyama's promise; Oikawa sitting apart from his team.
 - Invented or unverified: every score except 20-11 (sub) and 25-15 (final); the rally order between the timeout and 20-11 (built to satisfy rotation, see below); the bench dialogue (Tanaka/Hinata exchange, Ukai's lines on Kindaichi going up with Hinata and on "the path", Ukai's lines to Kageyama and Tanaka, Yamaguchi/Ennoshita/Suga's bench lines, Shimada's "Hang on!", Kiyoko's towels); Suga's exact words to Kageyama at the sub (unheard); Kageyama sitting in Suga's seat next to Sho; Kageyama (not Hinata or Daichi) setting the ball Tanaka gets blocked on; Mio's cameo; Sho holding Suga's jacket; Sho's notebook entries; Tanaka's straight spike landing in the corner (the wiki page ends before the result).
@@ -2882,9 +2886,9 @@ Sho closed the notebook and put it away.
 - Timeouts in set 1: Seijoh 1 (early), Karasuno 2 (both used). Substitutions: Suga for Kageyama (1). Kageyama can return only for Suga and only once; the set 2 line-up resets.
 - Tanaka: slapped his face in the 2nd timeout ("I wasn't playing right... That's on me."), "YES" to Ukai, hit Sho on the shoulder once, straight spike down the line. Sho gave him no volleyball advice.
 - Kageyama beside Sho: "Don't need it" (towel), "Hinata was late" (Sho thought: *He wasn't*), "He talks to them. Every time." "What did Suga-san say to you? Before." "To give you water." Then at the set break: "When I'm back, I'll set you so many you'll be sick of hitting."
-- Next: ch 22 "Set 2" (canon ch 56 to 60): the end of the set break; Sho decides whether to say anything to Ukai about the notebook; Suga's set 2; Karasuno takes it 25-23; Sho in for a rotation, one clean hit off Iwaizumi.
+- Next: Ch 26 "Set 2" (canon ch 56 to 60): the end of the set break; Sho decides whether to say anything to Ukai about the notebook; Suga's set 2; Karasuno takes it 25-23; Sho in for a rotation, one clean hit off Iwaizumi.
 - No status card.
-## Chapter 22: Set 2
+## Chapter 26: 1 finger
 
 The notebook was a cheap one from the konbini by the shrine, 120 yen, with a gray cover gone soft at the corners from his back pocket. Sho had it on his knee with his thumb in the Seijoh page.
 
@@ -3180,7 +3184,11 @@ Across the net, behind the end line, Oikawa was bouncing the ball. He watched Sh
 
 "Tall-kun," he said. He said it to the ball.
 
----
+**Continuity (ch 26, 1st half)**
+
+- Split Nov 14 (Option B) from old ch 22; this half gets its full Continuity block when it is rebuilt. Facts for this stretch are in the 2nd half's old block below.
+
+## Chapter 27: Set 2
 
 Sho got low.
 
@@ -3506,7 +3514,7 @@ It cracked in the middle.
 
 Sho took the towel off. The light came in like a slap, and he couldn't find her. He could only hear her, and under her, lower, his father's voice saying, "Mio. Mio, wait," and the sound of someone small running down a flight of concrete stairs.
 
-**Continuity (ch 22)**
+**Continuity (ch 27)**
 
 - First chapter under the Oct 30 divergence rules (bible: "Canon and divergence"). Set 2 is the fic's own: every score and rally except the final 25-23 is invented, and the match now runs differently from canon because of Sho.
 - Canon kept: Kageyama starts set 2 after watching Suga and asks his hitters what they want from his sets, Tsukishima first (canon, ep 22 "Evolution"; the exact words are invented). Tsukishima's answer ("A little further off the net. On the quick.") is invented. Karasuno takes set 2, 25-23.
@@ -3521,10 +3529,10 @@ Sho took the towel off. The light came in like a slap, and he couldn't find her.
 - Set break before set 3: Sho at the end of the bench with a cold towel over his eyes and ice on his neck. Hinata stood in front of him without talking and left. Kageyama put a carton of milk with the straw in it on his knee: "Drink it."
 - Mio stood on a seat on the 2nd floor across the court, behind the Seijoh girls, during set point. By the end of the break she had come all the way round to the rail above Karasuno's bench and shouted "SHO!" (her voice cracked); Dad: "Mio. Mio, wait." She ran down the concrete stairs. Sho couldn't see her. First time anyone in the family has acknowledged being there.
 - Karasuno timeouts in set 2: 1 (at 17-20). Seijoh: 1 (at 8-4). Subs: Sho for Asahi (1).
-- Next: ch 23 "The rail" (Mio POV): set 2 from the stands through the blood, the break, Dad, and the start of set 3.
+- Next: Ch 28 "The rail" (Mio POV): set 2 from the stands through the blood, the break, Dad, and the start of set 3.
 - No status card. The fusion was a one-time spike; no rank changed.
 
-## Chapter 23: The rail (Mio)
+## Chapter 28: The rail (Mio)
 
 The girls a few seats along from Mio had fans with a face on them.
 
@@ -4054,7 +4062,7 @@ Mio stood up on her seat. She stood right at the rail, right above him, where he
 
 On the court the ball went up, and came down, and everybody shouted. At the end of the bench her brother, who couldn't see, turned a page.
 
-**Continuity (ch 23)**
+**Continuity (ch 28)**
 
 - First POV chapter (bible: "POV chapters"). Close third on Mio, 10. Covers the set break before set 2 through the first part of set 3. Her names for people: "the boy with the face" (Oikawa, printed on the Seijoh girls' fans), "the man with the hair band" (Ukai), "the angry setter" (Kageyama), "the orange-haired one" (Hinata), "the loud one with no hair" (Tanaka), "the big one with the bun" (Asahi), "the short one in the different shirt" (Nishinoya), "the gray-haired one" (Suga), "the boy with spiky hair" (Iwaizumi), "the tall girl with glasses" (Kiyoko), "the man with the glasses who was always writing" (Takeda).
 - Seats: front row at the rail on the 2nd floor, across from Karasuno's bench. 3 Seijoh girls (ponytail, teal ribbon, one on the end) stood at the rail a few seats along with fans printed with Oikawa's face, holding them up and chanting in 2 halves. Mio sat down when they went up for Oikawa and stood on her seat for Karasuno's points. Invented lines: "No idea. 13." "13's kind of scary." "He looks at people... Before the ball comes. He looks at everybody." "Did Oikawa-san just get *tooled* by 13?"
@@ -4069,10 +4077,10 @@ On the court the ball went up, and came down, and everybody shouted. At the end 
 - Bleeding stopped after 8 minutes. 2nd finger test: better, not right. Nurse to Dad: "After the match, you take him to an eye doctor. Today. Not tomorrow." Dad: "Mm." Sho may go to the bench with the cold pack on and must not play. Sho walked along the wall with 1 hand.
 - Sho asked Dad not to tell Mom; Dad: "You can tell her yourself. At dinner. With your nose like that." Owed in ch 26. The eye doctor visit after the match is owed too (ch 24 end or ch 26).
 - Dad and Mio moved to front-row seats near Karasuno's bench (old man with a towel on his head and rice crackers, a lady with a sleeping boy). Set 3 at 4-7 Seijoh when they sat (invented). Sho took the cold pack off against the nurse's rule, held the notebook against his nose and wrote. Mio: "That's on purpose." Dad didn't deny it. Mio stood on her seat at the rail right above him, where he could find her if he looked up.
-- Next: ch 24 "Set 3" (Sho), from 4-7: back on the bench, half blind, writing anyway, with Mio standing above him. Ukai's "talk" is owed. Yamaguchi's pinch serve, deuce, 31-33, the final quick blocked.
+- Next: Ch 29 "Set 3" (Sho), from 4-7: back on the bench, half blind, writing anyway, with Mio standing above him. Ukai's "talk" is owed. Yamaguchi's pinch serve, deuce, 31-33, the final quick blocked.
 - No status card.
 
-## Chapter 24: Set 3
+## Chapter 29: Set 3
 
 The notebook was so close to his face that he could smell it, paper and the pencil-shaving smell of his back pocket. Sho wrote *4-7* at the bottom of the Seijoh page and couldn't tell whether it was on the line.
 
@@ -4512,7 +4520,7 @@ Sho stood with his back against the sink and his hand on the cold edge of it.
 
 "Oikawa-san," he said.
 
-**Continuity (ch 24)**
+**Continuity (ch 29)**
 
 - Set 3, Sho POV, from 4-7 Seijoh to the end of the match. Canon kept (via web search; the wiki is blocked here): Yamaguchi's pinch serve for Hinata hits the net and falls on Karasuno's side; deuce; 31-33; Karasuno's last ball is Hinata's fast quick, stuffed by Seijoh's block and landing behind Hinata, who turns to look at it; Oikawa setting Iwaizumi from off the court in deuce [memory, consistent with canon]. The exact blockers on the last ball aren't named. Everything else in set 3 is invented.
 - Karasuno set 3 rotation (bookkeeping, not in text). Serving order as in set 2: Tsukishima, Kageyama, Hinata, Tanaka, Asahi, Daichi. At 5-7 Kageyama serves next. 8 Karasuno side-outs from 5-7 to 17-19 put Hinata at serve. At Hinata's serve: 1 Hinata/Yamaguchi, 2 Tanaka, 3 Asahi, 4 Daichi, 5 Tsukishima (Noya in), 6 Kageyama. Tsukishima watched Yamaguchi's serve from the libero replacement zone. Karasuno side-outs then: 18-20 (Tanaka serves; Tsukishima to front left, Noya in for Hinata), 21-21 (Asahi serves), 23-22 (Daichi serves; Tsukishima front right, blocks Kunimi at 23-24), 24-24 (Tsukishima serves), 25-25 (Kageyama), 26-26 (Hinata), 28-28 (Tanaka), 29-29 (Asahi), 30-30 (Daichi), 31-31 (Tsukishima). Final rally: 1 Tsukishima, 2 Kageyama, 3 Hinata, 4 Tanaka, 5 Asahi, 6 Daichi (Noya in for Tsukishima).
@@ -4528,7 +4536,7 @@ Sho stood with his back against the sink and his hand on the cold edge of it.
 - Ends at the sink with 2 taps: Oikawa crouched at the vending machine, waiting. Sho speaks first: "Oikawa-san." Ch 25 (Oikawa POV) picks up there.
 - No status card.
 
-## Chapter 25: Tall-kun
+## Chapter 30: Tall-kun
 
 Oikawa stood up.
 
@@ -4874,7 +4882,7 @@ At the head of the table Ukai looked up and saw him in the doorway. He looked at
 
 "Sit down," said Ukai. "Eat first."
 
-**Continuity (ch 25)**
+**Continuity (ch 30)**
 
 - Sho POV. POV chapters are now unscheduled surprises (bible "POV chapters"). Ch 25 covers the sink after the match, the eye clinic, the train home and the walk to the team dinner. Sunday, about 4:30 to 6:45 p.m.
 - Sink: Oikawa stood up slowly with 2 cans and gave Sho a cold melon soda for his eyes. He called Sho "Tall-kun". He'd noticed Sho looking at his ear at the handshake, and that at 21 all in set 2 Sho stopped looking at people ("That's when I knew something was wrong with you."), and that Sho moved after the toss and before contact on the 4th serve at 17-20 ("Iwa-chan doesn't do that, and he's watched me serve for 12 years.").
@@ -4895,7 +4903,7 @@ At the head of the table Ukai looked up and saw him in the doorway. He looked at
 - Owed in ch 26: the dinner (Takeda's speech, the team crying over the food, canon); Ukai's talk; telling Mom "4" with his nose like that; Sho's real answer to Mio; telling Ukai about Oikawa's tell. Then 3 days off; Wednesday clinic.
 - No status card.
 
-## Chapter 26: Dinner
+## Chapter 31: Dinner
 
 Sho put his bag down by the door with the others and went down the long table to the gap.
 
@@ -5221,7 +5229,7 @@ Sho stayed in bed.
 
 It was the hardest thing he'd done all weekend.
 
-**Continuity (ch 26)**
+**Continuity (ch 31)**
 
 - Sho POV, Sunday evening into Monday 4:14 a.m. Canon kept (via web search; wording invented): Ukai pays for dinner after the Seijoh loss and tells them to eat to get stronger; the team cries while eating. Takeda's speech is built on his canon question (is losing proof of weakness?), in invented words and set at the dinner [unverified: canon's exact setting and wording].
 - Dinner at the restaurant across from the back gate: ginger pork, cabbage, rice, tofu miso, pickles. Order of eating: Daichi, Suga, Asahi, Tanaka ("Iff goob."). Hinata nearly in the miso; Noya crying out loud, eating fastest; Kageyama steady, ears dark red, wiping his face on his sleeve; Yamaguchi crying into his miso; Tsukishima cleaning 1 lens, then pushing his pickles to Yamaguchi. Kiyoko's plate untouched at first.
@@ -5236,7 +5244,7 @@ It was the hardest thing he'd done all weekend.
 - Owed: Monday at school (3 days no sports, no screens); Wednesday clinic with Mom; Kageyama and Hinata and the quick; the 3rd years' decision; Seijoh vs Shiratorizawa result.
 - No status card.
 
-## Chapter 27: The key (Tanaka)
+## Chapter 32: The key (Tanaka)
 
 The key to the Second Gymnasium lived on a red string, and Tanaka Ryunosuke wore the string round 1 finger and swung it all the way up the hill.
 
@@ -5580,7 +5588,7 @@ He looked down at his arms. Then at Kiyose on the step, with his eyes shut, list
 
 He went and got the ball.
 
-**Continuity (ch 27)**
+**Continuity (ch 32)**
 
 - Surprise POV (bible "POV chapters"): close third on Tanaka. Monday 4:51 a.m. to Tuesday about 5:00 a.m. Ch 23 (Mio) was the last POV chapter; ch 28 returns to Sho.
 - Tanaka's ritual since April: unlock, turn round on the step, look down the path; Sho arrives later ("Early." "EARLIER THAN YOU."). The key is on a red string. A crow on the gym roof.
@@ -5598,7 +5606,7 @@ He went and got the ball.
 - Owed: Wednesday clinic with Mom (fly test); Thursday watching depends on it; the 3rd years' decision; Seijoh vs Shiratorizawa; Hinata and Kageyama's fight (theirs).
 - No status card.
 
-## Chapter 28: Stay
+## Chapter 33: Stay
 
 On Wednesday morning there was a square of newspaper beside Sho's rice bowl.
 
@@ -5878,7 +5886,7 @@ He looked at the line at the bottom of the open page. *Play all 3 sets.*
 
 Then he looked at the phone again, at *several sets a day*, for a long time, with his eyes that worked.
 
-**Continuity (ch 28)**
+**Continuity (ch 33)**
 
 - Sho POV, Wednesday to Thursday night.
 - Wednesday breakfast: Dad kept Tuesday's paper, folded to the article: Shiratorizawa beat Aoba Johsai in Monday's Miyagi Inter-High final; grainy photo of Ushijima Wakatoshi (3rd year), left arm back; 1 line: Aoba Johsai "pushed the 1st set to deuce" (invented; canon set scores unverified). Whether Oikawa fixed his tell is unknown. Mio: "Good." "He gave me a can of melon soda afterward." "I know. I drank it." Sho: "Thanks, Dad. For keeping it." "Mm."
@@ -5896,7 +5904,7 @@ Then he looked at the phone again, at *several sets a day*, for a long time, wit
 - Hook: Takeda's group-chat message at 10:52 p.m.: *Everyone! I have just got off the phone with Nekoma High School!* ... "a week of matches in Tokyo, against Nekoma, Fukurodani and others, several sets a day". Details (dates, the exam condition) come in ch 29.
 - No status card.
 
-## Chapter 29: Invitation
+## Chapter 34: Invitation
 
 Takeda's message was long enough that Sho had to scroll it with his thumb 4 times.
 
@@ -6336,7 +6344,7 @@ Under the question he wrote:
 
 *End of Arc 2.*
 
-**Continuity (ch 29)**
+**Continuity (ch 34)**
 
 - Sho POV, Thursday 11 p.m. to Saturday night. The last chapter of Arc 2; no status card (see bible "Eyes as a weapon").
 - **Takeda's message** (quoted in full; matches ch 28's 1st line and the 4th-line clause "a week of matches in Tokyo, against Nekoma, Fukurodani and others, several sets a day"): Nekomata (invented quote): "Tell old Ukai's grandson to bring them down here. Let's see what they've got now." The Fukurodani Academy Group: Fukurodani Academy, Ubugawa, Shinzen, Nekoma. A weekend of practice matches at Fukurodani after end-of-term exams; then a full camp in August at Shinzen High, Saitama. Money: "I am working on it!" Group replies: Hinata 11 times (TOKYO, a cat picture); Tanaka *TOKYOOOOOOO* then *wait are there girls' teams at camp*; Noya *RYU*; Kageyama *Understood.*; Ennoshita *Sensei, it's 11 at night.*; Yamaguchi a thumbs-up; Tsukishima nothing; Daichi *Everyone sleep.* Sho put the phone down (not before bed).

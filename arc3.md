@@ -1,6 +1,6 @@
 # Second Serve: Arc 3 chapters (Tokyo expedition and summer camp)
 
-## Chapter 30: Red pen
+## Chapter 35: Red pen
 
 Tanaka was already on the step when Sho came up the hill on Monday, sitting on it with the key on its red string hanging from 1 finger and his chin on his fist, watching the bottom of the path.
 
@@ -286,7 +286,7 @@ Suga capped the red pen.
 
 "Tomorrow," he said. "Same table. Bring the emperor."
 
-**Continuity (ch 30)**
+**Continuity (ch 35)**
 
 - Arc 3 begins. Sho POV, Monday to Wednesday of the week before exam week. The eye did not fire. Per the user's direction his eyes are not discussed; the change shows in his play (the seam pass).
 - **Monday 4:56:** Tanaka sitting on the step waiting; "Early." "EARLIER THAN YOU." The net had stayed rolled up for a week (a 2-person job); they set it up (left post crank sticks; Tanaka hits it with the heel of his hand). Light passing, then Tanaka's down-balls left, right, short; Sho got all of them. "Fine fine? Or fine like you said with the nose?" "Fine fine." Spike at his feet, dug clean.
@@ -295,10 +295,10 @@ Suga capped the red pen.
 - **Tuesday lunch (canon, theirs; staging invented):** 1st-year corridor; Tsukishima and Yamaguchi at the window outside 1-4; Hinata from the stairs, Kageyama from the vending machine alcove halfway along. Hinata bowed: "Please teach us! For exams!" Tsukishima: "And the King? Is he asking too, or is he just here for the view?" Kageyama: "...Please... Teach us. English. And the rest." (bowed too far). Yamaguchi: "Tsukki, they're asking nicely." Terms: library after practice every day till exams; "if you 2 start fighting in the library, I'm leaving, and you can fail on your own." Kageyama stood at the vending machine "as if he'd forgotten what milk was." Tsukishima saw Sho as he passed.
 - **Wednesday, library (3rd floor, window table; 1st cicadas):** across the room Tsukishima marking Hinata's and Kageyama's practice tests in red pen (Yamaguchi: "Tsukki, that's a lot of red." Tsukishima: "That's their red. I just found it."). **The trade, English for Classical** (note: the training plan in the bible trades English for occlusion calls; this chapter makes it Classical; occlusion calls can be added later). Sho's English method: find the sentence doing the work (1st, last, or *however*/*although*). Suga 5 of 6. "I watch a lot of movies." "Hm." Suga's Classical: honorifics tell you who ("You just have to hear it."); *Ima wa mukashi*; "The emperor's crying." Suga's grade last year: 72.
 - **The red pen:** Suga's 1-page practice test, 15 minutes; marked in red: **38** (3 lower than 41; harder paper). "The line's 30. That's 8 away." Sho thought of the Nekoma page and Kenma. Sho asked for every day, not only Wednesdays ("I'll do your English every day."). Suga: "You really want Tokyo." "Yes." "Tomorrow. Same table. Bring the emperor."
-- Next: ch 31 "Village person B" (Thursday onward: Kiyoko approaches Yachi, canon, theirs; Sho's classmate beat (the dropped pens, 1 small kind thing); exam week; the Classical exam; Ennoshita on "you go still").
+- Next: Ch 36 "Village person B" (Thursday onward: Kiyoko approaches Yachi, canon, theirs; Sho's classmate beat (the dropped pens, 1 small kind thing); exam week; the Classical exam; Ennoshita on "you go still").
 - No status card.
 
-## Chapter 31: Villager B
+## Chapter 36: Villager B
 
 On Thursday at lunch Kiyoko came down the 1st-year corridor, looking into the classrooms.
 
@@ -596,7 +596,7 @@ Tomorrow at 6 in the morning the bus left for Tokyo. Tomorrow at 9, in this buil
 
 Tomorrow morning, against Fukurodani, or Nekoma, or whoever came 1st, Suga would set. There'd be no quick. There'd be no Hinata pulling 2 blockers across the net every time he ran. There'd be 2 empty places on the court in the front row, and Ukai would have to fill them with somebody.
 
-**Continuity (ch 31)**
+**Continuity (ch 36)**
 
 - Sho POV, Thursday of the week before exams to Friday of exam week. Title "Villager B" (canon translation; "Townsperson B" also used). The eye did not fire.
 - **Canon kept (Kiyoko's ask, Yachi seeing the quick, Hinata's push, the poster, the parent's seal; staging and wording invented):** Kiyoko searched the 1st-year corridor at lunch; stopped Yachi coming back from the vending machines with 2 friends: "Are you a 1st year?... Are you in a club?... Would you like to be a manager? For the boys' volleyball club." "Yes." / "What does a manager...?" / "Come and see. After school. The Second Gymnasium." Yachi's worst-case spiral ("sell my..."). Thursday after school Yachi on the stage with Kiyoko. Friday lunch Hinata shouted "YACHI-SAN!" and talked to her by the window outside 1-5 for most of lunch; Sho heard 1 word, "*VILLAGER!*", and went to the library. Monday: Yachi's poster (black crow cut from shadow, Karasuno's gym in thin lines, *KARASUNO HIGH SCHOOL VOLLEYBALL CLUB / Please support our journey*, donation box by the office; every feather with its own edge); bandage on her left thumb. **Yachi gave Takeda her club registration form with a parent's red seal** (her mother's; not named). Daichi introduced her. Tanaka and Noya cried ("A 2nd... manager..."). "Don't cry at her."
@@ -610,10 +610,10 @@ Tomorrow morning, against Fukurodani, or Nekoma, or whoever came 1st, Suga would
 - **Results (Friday, last day of term):** Math 94, English 98, **Classical 58** (*Subjects in the passage much improved.*). Put in the zipped inside pocket with the permission form (zipped by Dad nearly 2 weeks ago). **Tanaka: Classical 31, passed** ("Saeko-nee made us do it till 2 in the morning!" Saeko named for the 1st time). **Noya: English 34, passed.** Tanaka, on Sho's 58: "...That's private."
 - **Canon kept:** Hinata and Kageyama failed (here: English; red, circled twice). In the corridor: "...English." "English." Bus to Tokyo at 6 a.m. Saturday; make-up test at 9 a.m.
 - Hook (Sho's read): tomorrow Suga sets, no quick, 2 empty front-row places that Ukai has to fill.
-- Next: ch 32 "Flying falls" (trip 1, Fukurodani Academy, Tokyo; the morning without Hinata and Kageyama; Sho plays real minutes and gets read by Akaashi; the eye fires on Bokuto, a little soreness gone by the next game; penalty dives; Saeko drives Hinata and Kageyama, theirs).
+- Next: Ch 37 "Flying falls" (trip 1, Fukurodani Academy, Tokyo; the morning without Hinata and Kageyama; Sho plays real minutes and gets read by Akaashi; the eye fires on Bokuto, a little soreness gone by the next game; penalty dives; Saeko drives Hinata and Kageyama, theirs).
 - No status card.
 
-## Chapter 32: Flying falls
+## Chapter 37: Flying falls
 
 The bus was at the school gate at 5:40, white, with *Karasuno High School* on a card in the windscreen in Takeda's handwriting. The engine was running. The driver was a man of about 60 in a cap, reading a sports newspaper with his feet up on the dashboard.
 
@@ -955,7 +955,7 @@ There was a pause on the line while Mio worked that out.
 
 "Then don't let him," said Mio. "Goodnight. Tell me tomorrow." And she hung up.
 
-**Continuity (ch 32)**
+**Continuity (ch 37)**
 
 - Sho POV, Saturday, trip 1, day 1 at Fukurodani Academy, Tokyo. The eye fired once (on Bokuto). Cost: a faint warm sting behind the eyes for the rest of that game, gone by the next (bible "Adapting"; user direction: no drama).
 - Bus at the school gate 5:40, left 6:02, nearly 5 hours (driver about 60 in a cap). Kiyoko (first-aid box) and Yachi (clipboard, schedule) aboard. 2 empty seats near the front. Mom's bundle: 4 onigiri, frozen barley tea. Permission form and the Classical 58 in the zipped pocket. Tanaka/Noya: "Saeko-nee drives like a demon."
@@ -973,10 +973,10 @@ There was a pause on the line while Mio worked that out.
 - **Game 4, Shinzen again, lost 23-25** with Hinata and Kageyama in; still not speaking to each other; the old eyes-shut quick went in (nobody stops it yet; Lev's block is day 2). Canon: Karasuno lose every game on trip 1.
 - **Kenma** along the wall waiting for the next court, console in his lap, not playing; watched Hinata, then Sho; eyes went to Sho's feet (May handshake line callback) and stayed a while.
 - Night: 13 futons in a 2nd-floor classroom. **Mio call (9:30, courtyard bench, moths; she has the flyer):** "You lost all of them." "All 4." "So you lay on the floor 4 times." The laugh ("It was fun."). Saeko; Mio dropped the phone laughing. Eyes: "Once... stung a bit." "Where?" "Behind them. Like after you've been looking at a screen." "How long?" "Till the next game." "Less than Seijoh." "Much less." "I'm keeping score." Akaashi #5 ("It's a good number."). "He read me in 1 rally." "Is that bad?" "It's interesting." "That means bad." Kenma read him in May in 4 rallies. "So tomorrow it'll be 0." "Maybe." "Then don't let him."
-- Next: ch 33 "Read" (Kenma POV, surprise POV 1): day 2 vs Nekoma; Kenma reads Sho's stillness; Lev's block on Hinata (Lev's); loss.
+- Next: Ch 38 "Read" (Kenma POV, surprise POV 1): day 2 vs Nekoma; Kenma reads Sho's stillness; Lev's block on Hinata (Lev's); loss.
 - No status card.
 
-## Chapter 33: Read (Kenma)
+## Chapter 38: Read (Kenma)
 
 The good spot in Fukurodani's gym was the corner behind court 2, between the folded-up scoreboard and the wall, where the morning sun didn't reach and nobody walked past on the way to the toilets. Kozume Kenma had found it yesterday almost as soon as he walked in. He was in it at 7:40 on Sunday with his back against the wall and his knees up and his console resting on them, playing nothing.
 
@@ -1404,7 +1404,7 @@ Kenma would rather he fixed it. That was more interesting.
 
 He pressed the button, and the small man went on into the dark.
 
-**Continuity (ch 33)**
+**Continuity (ch 38)**
 
 - **Kenma POV (surprise POV 1 of Arc 3; close third, past tense).** Kenma's images: the save screen, the guide ("being *in* a guide... meant somebody had solved you"), the cooldown, the small man who stands and breathes when you let go of the controller. Sho is "13" in Kenma's head; Kuroo calls him "notebook"; Kenma calls Kuroo "Kuro", Yamamoto "Tora", Hinata "Shoyo". No eye from inside; from outside: the stillness, 1 impossible-early dig, 1 thumb pressed to the right eye, no cooldown found.
 - Sunday, trip 1, day 2 at Fukurodani. Kenma's corner behind court 2; game paused since he sat down. Kenma puzzled all night by #13 laughing in yesterday's penalty ("Penalties were effort you did for nothing").
@@ -1420,10 +1420,10 @@ He pressed the button, and the small man went on into the dark.
 - **Water fountains (end 1):** "When did you see it?" "Yesterday. Against Fukurodani." "Did Akaashi-san see it first?" "Probably." **"I know I stop... Somebody on my team told me. I don't know what it looks like from over there."** Kenma: "She's been filming you. All morning." (Yachi hid behind the door.) "Thank you." "That's so you'll stop looking at me." "You laughed... Twice." "It was fun." "It was a penalty." "I know." Lev: "KENMA-SAN!..."
 - **Game 2 vs Karasuno, 2:10, Nekoma won 25-20** (canon: Karasuno take 0 sets off Nekoma on trip 1). Lev touched 2 more quicks. Sho played careful, never still, never rocking, never early ("the most boring 13 had ever been").
 - **Train home at 6; Kuroo sat down at Ochanomizu:** "He stops. Before he's right." "And you made him right about the wrong guy." "He'll find it on the tape." Kenma would rather he fixed it before the Saitama camp: "That was more interesting." Kenma hasn't told Kuroo he pointed Sho at the camcorder.
-- Next: ch 34 "Tape" (Sho): Yachi's camcorder footage; Sho watches himself go still; Hinata and Kageyama's fight, Tanaka breaks it up (theirs); Mio starts her own notebook. Day 2's other games and Mio's call can be told there.
+- Next: Ch 39 "Tape" (Sho): Yachi's camcorder footage; Sho watches himself go still; Hinata and Kageyama's fight, Tanaka breaks it up (theirs); Mio starts her own notebook. Day 2's other games and Mio's call can be told there.
 - No status card.
 
-## Chapter 34: Tape
+## Chapter 39: Tape
 
 The bus left Fukurodani at 6:05 on Sunday evening, and for the 1st hour nobody said anything at all.
 
@@ -1875,7 +1875,7 @@ Then he took the cigarette from behind his ear and turned it over in his fingers
 
 Yachi switched the torch off. In the dark, the page was just a pale shape on Sho's knee, and the last line on it was too small to read, and he didn't need to read it.
 
-**Continuity (ch 34)**
+**Continuity (ch 39)**
 
 - Sho POV, Sunday evening (trip 1 ends) to Monday night. No eye. No status card.
 - **Bus home:** left Fukurodani 6:05. Hinata 3rd row right by the window; Kageyama back row left. Yamaguchi asleep on Sho's arm from the 1st traffic lights. Notebook lines from Sunday: *Kenma saw it. Yesterday. Akaashi probably 1st. / 3 in a row off the same run. I went still on Yamamoto every time. Kuroo, Kai, then the dump. / Tried to keep moving. Worse.*
@@ -1890,9 +1890,9 @@ Yachi switched the torch off. In the dark, the page was just a pale shape on Sho
 - **The fight (canon ch 82, Hinata's and Kageyama's; wording invented), 7:30 to 8:00 outside, side-door light broken since June:** Yachi holding Takeda's torch; Sho had an alarm for 8:15. Hinata: "Just once more. With my eyes open." Kageyama: "The quick works because you don't look... It's impossible... I'm not changing it." Hinata: "Then I'll never be able to fight by myself!... I want to see." "It doesn't need you to see!" Physical (shirt, shove, bike rack, ground). Sho's hand white on the strap; 2 steps off the step. **Tanaka: "OI!" at a run, then both collars: "Enough... Not with your hands... Kageyama. Go home."** Kageyama left (red mark on his cheekbone). Tanaka sat on the kerb with Hinata, hand on his neck. Sho went back to the step. Yachi: "Are they going to be okay?" "They'll both be at practice tomorrow. Still angry." "Is that good?" "It's better than 1 of them not coming."
 - **Monday tape: 13 of 14 stops right** (nobody looking for it).
 - **Ukai 8:10:** went to the kerb 1st ("Tanaka. Walk him home."; Tanaka carried both bags, talked loudly about ramen). Read Sho's margin; stopped on *So keep it. Then what?* **"Thursday. After practice. Bring that page." "Where are we going?" "My grandfather's."** Tapped *Then what?*
-- Next: ch 35 "Ikkei" (Sho): Thursday at Ukai Ikkei's (Hinata's own tempo lessons with Ikkei are canon and separate; Keishin takes Hinata). Ikkei on looking at what can't happen; the stop. Kageyama back from Oikawa: "He asked if you still squint." Hinata and Kageyama not speaking (canon: about 3 weeks).
+- Next: Ch 40 "Ikkei" (Sho): Thursday at Ukai Ikkei's (Hinata's own tempo lessons with Ikkei are canon and separate; Keishin takes Hinata). Ikkei on looking at what can't happen; the stop. Kageyama back from Oikawa: "He asked if you still squint." Hinata and Kageyama not speaking (canon: about 3 weeks).
 
-## Chapter 35: Ikkei
+## Chapter 40: Ikkei
 
 Hinata came back on Wednesday with a word.
 
@@ -2268,7 +2268,7 @@ Then, under that, because Takeda had pinned the camp letter to the club room doo
 
 Ukai leaned over and read it upside down, and grunted, and turned the roof light off.
 
-**Continuity (ch 35)**
+**Continuity (ch 40)**
 
 - Sho POV, Tuesday to Thursday of the week after trip 1. No eye. No status card. Seeds: **ruling options out** ("Look at what can't happen") and **wide gaze** (taught, not working yet). Both "slow for a month."
 - **Hinata (canon, his):** left practice early on Tuesday with Keishin in the shop's white van (to Ikkei's kids' class); came back Wednesday saying "Tempo" ("I don't know yet"); jumps a little later in spike drills; mostly misses. Kageyama also left early Tuesday, separately, 10 minutes after the van. Hinata and Kageyama still not speaking; both at every other practice.
@@ -2283,9 +2283,9 @@ Ukai leaned over and read it upside down, and grunted, and turned the roof light
 - **At the door: "Keishin. That one sees the hit before the hitter does. Bring him back after the camp. I want to see if he's done it."** Sho's full New Year bow.
 - **Drive back:** Ukai drove with both hands. "He said that to me when I was 12. About blocking. I've been working out what it means for 14 years." (Keishin 26.) "*Sees the hit before the hitter.* What's that about?" "I see things early. It's IQ." "You heard that?" "You said it to Takeda-sensei. In the gym. Before exams." (ch 30) "Annoying old man." Sho practiced ruling out on traffic (blue car, delivery van); slow; a little ache like after Classical homework; "the most fun he'd had all week." A taxi U-turned where nothing could turn: "Taxi."
 - **8:20 at the gate, roof light:** under *So keep it. Then what?*: *Look at what can't happen. Stand in what's left. / Slow for a month. (He said maybe 2.) / Saitama: 16 days.* (Takeda pinned the camp letter to the club room door.) Ukai read it upside down, grunted, turned the light off.
-- Next: ch 36 "Saitama" (Sho): the doctor's check-up before leaving ("adapted, like any muscle"); midnight bus to Shinzen; the week-long camp; begs Yaku for reps; Reception D to C (status card); serve targeting on Ubugawa; the eye holds 2 rallies without soreness for the 1st time.
+- Next: Ch 41 "Saitama" (Sho): the doctor's check-up before leaving ("adapted, like any muscle"); midnight bus to Shinzen; the week-long camp; begs Yaku for reps; Reception D to C (status card); serve targeting on Ubugawa; the eye holds 2 rallies without soreness for the 1st time.
 
-## Chapter 36: Saitama
+## Chapter 41: Saitama
 
 For 16 days Sho crossed things out.
 
@@ -2723,7 +2723,7 @@ Emperor's Eye: Partial awakening
 Meta Vision: Scanning
 ```
 
-**Continuity (ch 36)**
+**Continuity (ch 41)**
 
 - Sho POV. The 16 days before camp, the check-up, the midnight bus, Shinzen days 1 to 3. **Status card: Reception D to C (Yaku's 10).** Emperor's Eye stays *Partial awakening* on the card (the bible's "Adapting" stage is prose-only; the card jumps to Conditioned at ch 45). Meta Vision still Scanning on the card.
 - **16 days:** ruling out in the receive line (Tanaka's toss, Ennoshita square, Asahi's jump serve: Asahi started it on his own that week, 20 a day, mostly net or ceiling; his). Slow, then a little less slow in the 2nd week. Yachi films every evening; heels still come down, "in a wider place now... right for 2 balls, sometimes 3"; on tape "like somebody stepping into a doorway." Hinata went with the shop van twice more; **Kageyama stays late setting to an empty court, trying to stop the ball at the top (canon stopping toss; his)**. Mio's notebook: *6. Says "it's fine" in his normal voice when it IS fine. (Check.)* *7. Talks to the cat next door.*
@@ -2740,9 +2740,9 @@ Meta Vision: Scanning
 - **Day 3, 6:05: Yaku's 10 complete** (feet first; heels down when already there; the 9th the hardest serve of the week at his chest; the 10th rolled half a step off the tape). Lev: "WHAT? In a ROW?" **Yaku: "Again tomorrow. Or it was luck."**
 - **Night 3, the 3rd gym (canon venue; Kuroo mentioned it at the gate as bait):** Bokuto: "HEY! YOU! 13!... The 1 who got my best 1 in Tokyo!... We need a digger! Kuroo's useless at it and your tall blond 1 won't stay!... You stood in the wrong place 3 times on the 1st day, I saw!... I'll give you 50 of them!" Akaashi: "Bokuto-san. He's just had a bath." "He can have another 1!" **Sho went.**
 - Bible note: Kagemane (Kuroo's "stand in my shadow") now debuts in ch 37.
-- Next: ch 37 "Moonrise" (Sho): nights 3 to 5 in the 3rd gym; Akaashi sets, Bokuto hits, Kuroo blocks; **Sho invites the eye for the 1st time** (on Bokuto) and it comes; digs Bokuto 1, then 3, then 6 a night; Kuroo: "Stand in my shadow." The moonrise night (Tsukishima/Yamaguchi, Tsukishima's question, Bokuto's "the moment") stays theirs; Sho leaves before it.
+- Next: Ch 42 "Moonrise" (Sho): nights 3 to 5 in the 3rd gym; Akaashi sets, Bokuto hits, Kuroo blocks; **Sho invites the eye for the 1st time** (on Bokuto) and it comes; digs Bokuto 1, then 3, then 6 a night; Kuroo: "Stand in my shadow." The moonrise night (Tsukishima/Yamaguchi, Tsukishima's question, Bokuto's "the moment") stays theirs; Sho leaves before it.
 
-## Chapter 37: Moonrise
+## Chapter 42: Moonrise
 
 The 3rd gymnasium was the oldest building at Shinzen. It had a wooden floor gone gray at the edges and gold in the middle where 100,000 shoes had polished it, and windows that didn't close properly, and a stage at 1 end with a dusty red curtain nobody had drawn in years. The lights hung on long wires from the roof, and moths went round every 1 of them. Through the open windows came the cicadas, and the smell of cut grass, and the dark.
 
@@ -3074,7 +3074,7 @@ Takeda wrote it on the clipboard.
 
 "Hm," said Ukai, to nobody, and walked on.
 
-**Continuity (ch 37)**
+**Continuity (ch 42)**
 
 - Sho POV, nights 3 to 5 of the Shinzen camp (day 4 in brief). The eye: **invited on night 5, on Bokuto, and it came; no cost.** (Bible "Conditioned": "he can invite it in calm moments" begins here, early and once.) No status card.
 - **The 3rd gym (canon venue; details invented):** oldest building; gray-gold wooden floor; windows that don't close; stage with a dusty red curtain; lights on long wires; moths; cicadas. **Present nights 3 to 5: Bokuto, Akaashi, Kuroo, Lev** (Kuroo coaching Lev's blocking, canon). Tsukishima arrives only at the end of night 5. Hinata not there yet.
@@ -3088,9 +3088,9 @@ Takeda wrote it on the clipboard.
 - **Moonrise:** huge orange moon over the penalty hill. **Tsukishima on the path: "Are they still in there? Bokuto-san. And Kuroo-san." "Yes."** Sho stepped onto the grass; looked back once; Tsukishima went in. **The night inside is Tsukishima's (canon: his question, Bokuto's "the moment", Kuroo's blocking advice).**
 - **Night 5 call:** "Bokuto-san. And Kuroo-san's hands." "If you stand at the edge of where his hands are, the ball comes to you." "That doesn't make sense." "It does when you do it." "6. Out of about 60." "Still bad. Better." **"Tonight I asked... And it came." "Did it hurt?" "No." "Then ask it again tomorrow." "It might not come." "Then ask it nicely."**
 - **Ukai and Takeda pass (lighter, clipboard):** Ukai sees Sho's forearms purple to the elbow. "3rd gym?" "Yes, Coach." **"Tomorrow. 1st game. He starts. Whole set."** Takeda wrote it down. "Hm."
-- Next: ch 38 "Hand up" (**surprise Ukai POV 2**): day 6 from the bench; Ukai watches Sho play a whole set and sees a 1st year become an all-rounder (the dig, the block that waits, a 2nd-ball set, the serve at the right man, standing at the edge of the block's shadow); once, out of habit, Sho's hand twitches toward the rule: "Burning?" "...No." "Then stay on." Ukai's word: IQ. Hinata and Kageyama "back in action" around here (canon ch 90; theirs).
+- Next: Ch 43 "Hand up" (**surprise Ukai POV 2**): day 6 from the bench; Ukai watches Sho play a whole set and sees a 1st year become an all-rounder (the dig, the block that waits, a 2nd-ball set, the serve at the right man, standing at the edge of the block's shadow); once, out of habit, Sho's hand twitches toward the rule: "Burning?" "...No." "Then stay on." Ukai's word: IQ. Hinata and Kageyama "back in action" around here (canon ch 90; theirs).
 
-## Chapter 38: Hand up (Ukai)
+## Chapter 43: Hand up (Ukai)
 
 Ukai Keishin couldn't sleep on a futon. He never had. At home he slept on a proper bed above the shop, with the delivery trucks going past at 4 and the fridge compressor downstairs going on and off all night, and that was fine. On a classroom floor in Saitama, with 13 teenagers snoring and Takeda talking in his sleep about lesson plans, he lay awake from 3 and gave up at 5:30.
 
@@ -3422,7 +3422,7 @@ He'd tell the kid himself, when they got home, at Karasuno, in a room under the 
 
 "I won't," said Takeda.
 
-**Continuity (ch 38)**
+**Continuity (ch 43)**
 
 - **Ukai Keishin POV (surprise POV 2 of Arc 3; close third, past tense).** Day 6 of the Shinzen camp, 6 a.m. to night. No status card.
 - **Camp calendar (fixed): 8 days counting the arrival morning; last day = day 8** (ch 37's line corrected to "ends in 3 days"). Day 7: ch 39 and ch 40 (3v3 at night). Day 8: ch 41 (Shinzen, the flip), ch 42 (Nekoma), ch 43 to 44 (Ubugawa brief, Fukurodani final).
@@ -3437,9 +3437,9 @@ He'd tell the kid himself, when they got home, at Karasuno, in a room under the 
 - **Game 2 vs Shinzen: at 8-12, Ukai's timeout bans the new quick (canon decision; wording invented):** "It's not ready... In practice, every night... In a game, no. Not until it works in practice 7 times out of 10... normal quicks. 1st tempo... You lose a game here, you run a hill. You lose a game at the Spring High, you go home. I'd rather you ran the hill." "Yes, Coach" together, glaring. **Lost 20-25** (Karasuno still winless at camp; the 1st win is ch 41).
 - **Night, vending machines, Takeda:** "It's IQ." ... **"And an arm... He's a wing spiker, sensei. He's an ace... He needs 5 kilos... Legs, shoulders. A year of somebody putting bad balls up for him. And the weight room."** "I'll find the key." "That's on me." Ikkei's line ("*That one sees the hit before the hitter does*"), worked on for 3 weeks: "He'd have seen the arm too, from the door."
 - **Nekomata (cardigan):** "I'd like to borrow him tomorrow, after lunch. For half an hour. I have some tape." Ukai: "His doctor gives him 2 hours of screens a day. Don't use them all." "Half an hour. I promise." Nekomata stood in the 3rd gym doorway watching, like Ikkei. Ukai stayed put. **He'll tell Sho at home, in the weight room behind the 1st gym, with the key: "*You're a wing spiker. Act like it.*"** "The key. Don't forget." "I won't."
-- Next: ch 39 "All of it" (Sho): day 7: Nekomata's tape after lunch ("You'd make a fine analyst." "I'd rather play."); Akaashi teaches him hands (Set E to D, status card); the 9:30 call where he tells Mio all of it (including the hand that went halfway up on its own, "No", staying on; playing the wing). The weight-room news is Ukai's to deliver at home (not in ch 39).
+- Next: Ch 44 "All of it" (Sho): day 7: Nekomata's tape after lunch ("You'd make a fine analyst." "I'd rather play."); Akaashi teaches him hands (Set E to D, status card); the 9:30 call where he tells Mio all of it (including the hand that went halfway up on its own, "No", staying on; playing the wing). The weight-room news is Ukai's to deliver at home (not in ch 39).
 
-## Chapter 39: All of it
+## Chapter 44: All of it
 
 At lunch on the 7th day Ukai stopped beside Sho's chair with his tray.
 
@@ -3825,7 +3825,7 @@ Emperor's Eye: Partial awakening
 Meta Vision: Scanning
 ```
 
-**Continuity (ch 39)**
+**Continuity (ch 44)**
 
 - Sho POV, day 7 of the 8-day Shinzen camp. **Status card: Set E to D** (Akaashi's sets to the towel: 6/20, 11/20, 14/20 plus a redo = 15; "Your front set is ordinary now"). No eye that day.
 - **Lunch:** Ukai: "Nekomata-sensei wants you. Half an hour... He's got tape... Then you come back to me." Tanaka: "Nekoma's coach? What did you DO?"
@@ -3836,9 +3836,9 @@ Meta Vision: Scanning
 - **9:30 call, "All of it":** scores; Nekomata ("You already do that." "Is it bad?" "It's a good job. You can do it till you're 80... I said I'd rather play." "Good."); Akaashi ("ordinary"). Eyes: "Not today." **"Yesterday something happened that I didn't tell you":** the wing ("It's where I want to be. It's where I'm supposed to be... passing all summer because I'm good at passing" / Mio: "That's not a reason... You're good at maths. You don't do maths club."); stuffed then tooled; today 9 swings, 3 in. **The hand halfway up: "You told me the eye. Yesterday. You didn't tell me the hand... You promised... Or I win." "I know. You win. 5 puddings."** (ch 26 terms.) "*Then stay on.*" **Mio: "So your hand's scared... Then tell it it's fine... And if it's not fine, put it all the way up." "Promise." "I promise."** Osaka image (gym, floor wax, a setter calling his name). **Notebook: *8. Hand goes up when he's scared. (GOOD)*** Sho laughed (moth in the face). **"4 puddings... Because you told me today. Today counts a bit."** "That's all of it."
 - **Hook:** Hinata (asked Bokuto himself at dinner; canon ch 91: Hinata goes to Bokuto; Bokuto's lessons to Hinata are Hinata's): "I asked him to teach me how to fight in the air, and he said YES!... 3 on 3!" Bokuto: "HEY HEY HEY! KARASUNO'S 10! YOU CAME!" Sho's fingertips ached; he went to watch.
 - Ace path: Nekomata's "stupid or an ace"; Akaashi's "You know how to hit"; 2nd whole set on the wing (3/9); Sho to Mio: "It's where I'm supposed to be." Ukai hasn't told him yet (weight room at home).
-- Next: ch 40 "Owls and cats" (Sho): night 7, the 3rd gym; the canon 3v3 (canon lineups; Bokuto's feint and "use the block" lessons to Hinata are Hinata's); Sho watches; then (invented) a 2nd 3v3 where he plays on the map only ("3 people. I can hold 3.") and it's fun; late on things and laughs. Hinata: "What's yours?"
+- Next: Ch 45 "Owls and cats" (Sho): night 7, the 3rd gym; the canon 3v3 (canon lineups; Bokuto's feint and "use the block" lessons to Hinata are Hinata's); Sho watches; then (invented) a 2nd 3v3 where he plays on the map only ("3 people. I can hold 3.") and it's fun; late on things and laughs. Hinata: "What's yours?"
 
-## Chapter 40: Owls and cats
+## Chapter 45: Owls and cats
 
 There were 6 of them on the court when Sho came in at 9:40, and the court had been cut in half.
 
@@ -4086,7 +4086,7 @@ Near the door, in the dark, Tanaka said quite clearly in his sleep, "That's my s
 
 Sho lay with his aching fingers folded on his chest and listened to the cicadas start up again outside, and didn't count anything at all.
 
-**Continuity (ch 40)**
+**Continuity (ch 45)**
 
 - Sho POV, night 7 of the 8-day Shinzen camp, 9:40 to after 10:15. **No eye (left alone).** No status card.
 - **The canon 3v3 on a half court in the 3rd gym** (net standards dragged in): **Owls: Bokuto, Akaashi, Hinata. Cats: Kuroo, Lev, Tsukishima.** Bokuto: "OWLS versus CATS!" Lev: "Why are we cats?" Kuroo: "Because you're Nekoma. Keep up... Tonight he's a cat. Aren't you, Tsukki?" "Don't call me that." Sho on the stage edge beside the dented curtain; notebook left in his bag.
@@ -4099,9 +4099,9 @@ Sho lay with his aching fingers folded on his chest and listened to the cicadas 
 - **Daichi at 10:15: "Lights out was at 10."** Hinata: "I did a feint! A real 1! Over Tsukishima!" "Tell me tomorrow. Bed... You too, Kiyose." Walk back: Hinata's invisible feint; Tsukishima: "We saw." Tomorrow (day 8): **Shinzen, Nekoma, Ubugawa, Fukurodani last. Karasuno winless all week.**
 - **Futons:** "Tomorrow. We're going to win 1." "Shinzen's 1st." "We've never beaten Shinzen." "I know." Tanaka sleep-talking: "That's my spot... rice."
 - Ace path: "The bad ball... Somebody has to hit it." / "That's the ace's ball." Hinata wants it too (healthy rivalry). Sho's roll shot vs Bokuto.
-- Next: ch 41 "4 into 1" (Sho): day 8, game 1 vs Shinzen: **Karasuno's 1st win of the camp, 25-23 (user approved flip)**; Sho as the all-rounder (the dig, the call, the serve at the right man); eye and map agree on Shinzen's setter; **Tanaka finishes it.** 1 line of the ace.
+- Next: Ch 46 "4 into 1" (Sho): day 8, game 1 vs Shinzen: **Karasuno's 1st win of the camp, 25-23 (user approved flip)**; Sho as the all-rounder (the dig, the call, the serve at the right man); eye and map agree on Shinzen's setter; **Tanaka finishes it.** 1 line of the ace.
 
-## Chapter 41: 4 into 1
+## Chapter 46: 4 into 1
 
 On the last morning Yaku served 10 at him at 6:05, and Sho passed 10, and Yaku served the 11th at Lev's face and went on serving at Lev's face for the rest of the half hour.
 
@@ -4347,7 +4347,7 @@ Kenma kept looking at Sho's feet. Sho was standing in the doorway, easy, with hi
 
 Then he got up, and put the console in his pocket, and went in to warm up.
 
-**Continuity (ch 41)**
+**Continuity (ch 46)**
 
 - Sho POV, day 8 (last day) of the Shinzen camp, game 1. **Karasuno's 1st win of the camp: 25-23 over Shinzen (user approved; flips canon).** The eye fired once, on its own, in agreement with the map (bible: "Eye and map agree on Shinzen's setter"). No status card.
 - **Morning:** Yaku's 10 again at 6:05; Yaku served the 11th at Lev's face (approval). Hinata said "Shinzen" between bowls.
@@ -4364,9 +4364,9 @@ Then he got up, and put the console in his pocket, and went in to warm up.
 - **Hook:** Nekoma warming up (red). **Kenma on the gym step: "Next is us." "I know." "You still stop. In a circle now."**
 - Ace path: 3rd whole set on the wing (4 of 6 in, 1 tool, Shinzen double-blocking him); a stuff block; but the bad ball went to Tanaka (his).
 - **Review fixes (Oct 30):** title now "4 into 1" (digits). Ennoshita asked Shinzen's coach ("He laughed. Kindly." / Tanaka: "There's no kind way to laugh at somebody"). 0-3 rally: Daichi's "Mine" only. 3-4: Sho served the right-side hitter in the front row; Kageyama's 2nd-ball dump made 4-4; Hinata's quick 5-5. Sho blocks Shinzen's left side (their ace). 23-23 came on a Tsukishima quick (Kageyama was back row). The eye showed the ace's turn; the map supplied where it went. Shinzen ran the hill once. Sho's right hand stayed at his side all game.
-- Next: ch 42 "The lie" (Sho): game 2 vs Nekoma: the showcase: **he fakes the stillness Kenma learned to read** (the lie) and digs 2; ears + map + the eye he invites; Tanaka: "FACE LIES!"; Nekomata calls a timeout for #13; **Kenma switches to his feet and wins it 26-24 with a dump into the 1 spot the map ruled out. "You patched it." "Mostly."**
+- Next: Ch 47 "The lie" (Sho): game 2 vs Nekoma: the showcase: **he fakes the stillness Kenma learned to read** (the lie) and digs 2; ears + map + the eye he invites; Tanaka: "FACE LIES!"; Nekomata calls a timeout for #13; **Kenma switches to his feet and wins it 26-24 with a dump into the 1 spot the map ruled out. "You patched it." "Mostly."**
 
-## Chapter 42: The lie
+## Chapter 47: The lie
 
 Sho told Ukai 1st.
 
@@ -4670,7 +4670,7 @@ Down by the gym door Ukai was standing with his arms folded. He looked up the hi
 
 2 games left. Ubugawa. And then, last of all, Fukurodani.
 
-**Continuity (ch 42)**
+**Continuity (ch 47)**
 
 - Sho POV, day 8 (last day) of the Shinzen camp, game 2 vs Nekoma. **Nekoma won 26-24** (Karasuno-first: 24-26). **The lie (showcase), ears, the map (ruling out), the invited eye; the final dump into the 1 spot the map ruled out.** No status card.
 - **"Tell Coach 1st" (Den Den Mushi, 3 lines):** "Their setter reads my stop... I'm going to show him a wrong 1. A stop where I'm not." "And when he works that out?" "Then he has to look at something else. My feet, probably... Then I'll probably lose that. But he'll have had to change." Ukai: "Your old stop. The dot... You can still do that?" "I'll know after the 1st 1." **"Do it. Asahi's spot. Whole set... I'd rather lose to Nekoma trying something than lose to Nekoma the way we always lose to Nekoma." "You told me before you did it. Good."**
@@ -4687,9 +4687,9 @@ Down by the gym door Ukai was standing with his arms folded. He looked up the hi
 - **Hill:** Tanaka "FACE LIES!" every 10 meters; Hinata: "We'll beat them. At the Spring High. On the real court." "Yes." "You'll lie to him again." "He'll be ready for it." "Then lie better." Kenma on the step looking up the hill; Ukai at the gym door looking up, no wave.
 - **2 games left: Ubugawa, then Fukurodani last.**
 - **Review fixes (Oct 30):** Nekoma's front row in the endgame is Kenma, Kuroo, Yamamoto (Lev out; Yaku in for the back-row middle); lie 1's kill went off Yamamoto's wrist. At 24-23 Karasuno served and Kuroo's quick tied it. Yaku: "Nekoma doesn't leave holes." Nekomata made the T with both hands.
-- Next: ch 43 "The last game" (Sho): Ubugawa (brief), then the canon final vs Fukurodani (goal: win at least 1 set? camp games are single sets: the final is the last game); **the new quick lands (Hinata and Kageyama's, theirs)**; Sho on court every set; **the out-of-system kill (the bad ball) finally his**; 1 rally where map and eye run together. Ch 44: last ball (Fukurodani wins, canon), "You were there. All 3." (Kageyama), laughing on the floor in the penalty.
+- Next: Ch 48 "The last game" (Sho): Ubugawa (brief), then the canon final vs Fukurodani (goal: win at least 1 set? camp games are single sets: the final is the last game); **the new quick lands (Hinata and Kageyama's, theirs)**; Sho on court every set; **the out-of-system kill (the bad ball) finally his**; 1 rally where map and eye run together. Ch 44: last ball (Fukurodani wins, canon), "You were there. All 3." (Kageyama), laughing on the floor in the penalty.
 
-## Chapter 43: The last game
+## Chapter 48: The last game
 
 They lost to Ubugawa 21-25, before lunch.
 
@@ -4921,7 +4921,7 @@ Kageyama took it back and drank from it again, his eyes on Fukurodani's bench, a
 
 "Again," said Kageyama, under his breath. To the court.
 
-**Continuity (ch 43)**
+**Continuity (ch 48)**
 
 - Sho POV, day 8 (last day), games 3 and 4. **Game 3: Ubugawa won 25-21** (Karasuno-first 21-25; brief). **Game 4: the camp final vs Fukurodani, 3 sets (the camp's final match; canon: final opponent Fukurodani, goal "at least 1 set"; canon set scores not found).** **Set 1: Fukurodani 25-21. Set 2: Karasuno 25-23 (fic: hard rule 8, a set won inside a loss).** Set 3 in ch 44. No status card.
 - **Ubugawa:** #9 still hidden; no seam; Sho served the libero (passed it); **Sho passed 5 of 6 jump serves to the setter's spot (feet 1st, Yaku's long look); their big server stopped serving him.** Up the hill 3rd; grinning about day 2's "They found you in 2 serves."
@@ -4934,9 +4934,9 @@ Kageyama took it back and drank from it again, his eyes on Fukurodani's bench, a
 - **1 set all; the goal done.** Sho's hands shaking very slightly. **Kageyama held his bottle out sideways to Sho; Sho drank from it and gave it back. "Again," said Kageyama, to the court.**
 - Ace path: passed Bokuto's jump serve; hit Asahi's spot for a whole set; the bad ball, finally his (Hinata gave it). Asahi told Coach 1st (the ace's hand going up; unstated mirror).
 - **Review fixes (Oct 30):** set 1: Sho came in for Asahi after Asahi's serve (2 rotations); Tanaka hit off Sho's pass of Bokuto's serve; the new quick tried 6 times (1 in). Set 2: new quick at 9-9, 14-13, 19-19; Bokuto's sulk at 15-17, back at 15-18; Sho blocked with Hinata on the last rally (Tsukishima back row); **the eye did not fire on the bad ball: map only** (the eye shows hitters and setters). Kageyama alone says "Again."
-- Next: ch 44 "Last ball" (Sho): set 3; Fukurodani wins (canon result: Fukurodani wins the final); **"Map right on Bokuto's last ball; arms not enough"**; Kageyama: "You were there. All 3."; Bokuto, Akaashi; penalty, laughing on the floor/hill.
+- Next: Ch 49 "Last ball" (Sho): set 3; Fukurodani wins (canon result: Fukurodani wins the final); **"Map right on Bokuto's last ball; arms not enough"**; Kageyama: "You were there. All 3."; Bokuto, Akaashi; penalty, laughing on the floor/hill.
 
-## Chapter 44: Last ball
+## Chapter 49: Last ball
 
 The whistle went for set 3, and Bokuto came to the net and pointed at him.
 
@@ -5346,7 +5346,7 @@ He ran.
 
 Sho lay in the grass a little longer, with his red arms on his chest, and listened to Hinata going down the hill. Then he moved his lips around the name once, with no sound, to see what it felt like.
 
-**Continuity (ch 44)**
+**Continuity (ch 49)**
 
 - Sho POV, day 8 (last day) of the Shinzen camp, the camp final vs Fukurodani, set 3. **Fukurodani won set 3, 25-23 (Karasuno-first 23-25), and the match 2 sets to 1 (canon result: Fukurodani wins the final; canon set scores not found, all scores here are fic).** Sho played all 3 sets: set 1 back-row sub for Asahi, sets 2 and 3 Asahi's whole spot (right side) after Asahi's back. No status card.
 - **Opening (fic):** Bokuto: "13! I'M BLOCKING YOU!" (his left side faces Sho's right side; Konoha's face in his hand). "Please go easy on me, Bokuto-san." "NO!" Fukurodani served 1st. **Set 3 start: Karasuno with Sho at position 3, Fukurodani with Bokuto at position 4. Bokuto stuffed Sho's 1st swing: 0-1. "THAT'S 1 EACH, 13!"** (Sho's set-2 kill through his hands is Sho's 1). Bokuto's hands a hand's width above the top of Sho's reach; Sho's arms "swinging seriously for 4 months." Sho grinned; Bokuto grinned back. **5-6: Sho tooled Bokuto's outside (left) little finger into the chairs (Komi in the 2nd row): 6-6.** "HEY, THAT WAS GOOD!"
@@ -5363,9 +5363,9 @@ Sho lay in the grass a little longer, with his red arms on his chest, and listen
 - **The penalty: the hill (canon: Karasuno does the hill after the final).** Sho laughed from a 3rd of the way up; Tanaka: "WHY'S HE LAUGHING? WE LOST!" "I know, senpai." "HE'S BROKEN!" Noya: "He's FINE," then laughed; Tanaka too ("STOP IT, I'M TRYING TO BE UPSET"). At the top: on his back in the grass; a plane drawing a white line; charcoal smoke from the barbecue below; Bokuto shouting about meat; eyes tired like legs after a hill.
 - **Hinata in the grass: "There wasn't a bad 1. In the 3rd... So the next 1's still mine." "It's still yours." "On the bad 1. In the 2nd... Like you'd seen it before." "Who's yours?... Your Little Giant. Everybody's got 1. Somebody you saw and went, *that*."** Sho's answer in his head: a white shirt with a navy 5 in a gym in Sendai (never named in prose). Ukai: "IF YOU WANT MEAT, GET DOWN HERE BEFORE NEKOMA EATS IT!" **Hinata: "Tonight. You're telling me tonight."** Sho moved his lips around the name once, with no sound.
 - Ace path: hit at Bokuto's real block (stuffed, then tooled); back-row attack at match point; Ukai names the weight room (Arc 4 program). Mio's magnet still on August.
-- Next: ch 45 "Barbecue" (Sho), end of Arc 3: the aces talk (Bokuto on the top 3: Ushijima, Kiryu, Sakusa; speaker per 03_canon flag 3); Hinata gets his answer, once: "Matsumoto. Number 5." "Nobody's heard of him." "I'll remember him."; home: Mio names the eye "fast-forward" and moves her magnet to January; Sho pays the 4 puddings; new notebook, ace lines on page 1; status card (Block E to D, Serve D to C, Mentality B to A, Emperor's Eye: Conditioned, Meta Vision: Half map).
+- Next: Ch 50 "Barbecue" (Sho), end of Arc 3: the aces talk (Bokuto on the top 3: Ushijima, Kiryu, Sakusa; speaker per 03_canon flag 3); Hinata gets his answer, once: "Matsumoto. Number 5." "Nobody's heard of him." "I'll remember him."; home: Mio names the eye "fast-forward" and moves her magnet to January; Sho pays the 4 puddings; new notebook, ace lines on page 1; status card (Block E to D, Serve D to C, Mentality B to A, Emperor's Eye: Conditioned, Meta Vision: Half map).
 
-## Chapter 45: Barbecue
+## Chapter 50: Barbecue
 
 The coaches had built the grills out of oil drums cut in half, 4 of them in a row on the gravel behind the main gym, and by the time Karasuno came down the hill the charcoal had gone white and the 1st meat was on.
 
@@ -5759,7 +5759,7 @@ Meta Vision: Half map (from Scanning)
   Trait: Long-Term Strategic Scrutiny
 ```
 
-**Continuity (ch 45)**
+**Continuity (ch 50)**
 
 - Sho POV. **End of Arc 3.** The last night of the Shinzen camp (barbecue), then home the next day. **Status card** (bible "Status card plan"): Serve D to C, Block E to D, Mentality B to A, Emperor's Eye Partial awakening to Conditioned (Elite Observational Genius), Meta Vision Scanning to Half map (Long-Term Strategic Scrutiny); Power stays C; height 182 to 183 (Dad's pencil).
 - **Barbecue (canon: the coaches host a barbecue at the end of the camp; managers; Nekoma has no manager; Daichi makes Tsukishima eat [memory]).** Fic: 5 schools; 4 oil-drum grills; Nekomata and Fukurodani's coach arguing over turning; Ukai turning things whenever; Takeda receiving each piece "as if he were receiving a diploma"; Yamamoto in tears about managers; Lev on his 3rd plate. **Bokuto at the 3rd drum: 5 pieces on Sho's plate, "For your arms." "You need about 1000 more of those."** Akaashi rescuing burnt meat.
