@@ -2571,53 +2571,77 @@ Meta Vision: Film brain
 - Ace line: the low line through the gap under Hinata's elbow, 23-20.
 - Next: Ch 6, set 2 (canon: Hinata's side wins; Hinata as the decoy frees Tanaka), the handshake, Takeda and the Seijoh match, jackets, the notebook. Ch 6 must drop "Sho called 'line' twice", "Ball landed exactly where the ghost pointed" and "It showed me exactly where the first ball would land" (the eye shows the swing). Sho's receive cost 4 points in set 1 (ch 4: 0-2, 0-3, the 10-10 ace; ch 5: 23-22).
 
-## Chapter 6: One touch
+## Chapter 6: Jackets
 
-Set 2 went the way the end of set 1 had promised.
+Set 2 began on Kageyama's serve, and Sho spent the 1st 9 points watching Hinata with everything he had.
 
-Sho spent the first 10 points watching Hinata with everything he had. Every run-up, every jump, every swing. He stared until his eyes watered.
+Every run, every jump, every swing. He stared until his eyes watered. The gym stayed loud. Hinata stayed a small boy in the air, and the ball kept arriving in his palm from somewhere Sho couldn't follow, and the floor kept taking it.
 
-Nothing.
+At 3-6 he made himself stop. *Play the ball you can see.* He took his eyes off Hinata's face and put them where Satoshi would have put them, on the setter's hands and the hitters' feet, and played with what he had.
 
-No silence, no light, no ghost. Just a short kid jumping too high and a ball arriving in his palm from somewhere Sho couldn't follow. The eye, or the haki, or the brain glitch, or whatever it was, had clocked out for the day.
-
-So he stopped waiting for it and played with what he had.
-
-What he had was a 29-year-old's brain and a body that could jump, and at 8-10 that was enough for 2 good points. Yamaguchi set him high and loopy, Sho waited for the peak and counted 1, and he hit line past Hinata's elbow, the same gap as before. Then a roll shot over Tanaka's hands, soft, into the empty middle.
+What he had was a body that could jump, and a brain that had watched a lot of volleyball. At 8-10 that was enough for 2 good points. Yamaguchi set him high and loopy off a pass from Tsukishima, and Sho waited for the ball to stop and counted 1 and hit line past Hinata's elbow, the same gap as before. Then, on the next rally, a roll shot over Tanaka's hands, soft, into the empty middle of the court where nobody was standing.
 
 "He's reading you," Sugawara called to Tanaka from the sideline.
 
 "I KNOW HE'S READING ME, SUGA-SAN."
 
-Kageyama was reading too, though, and Kageyama was getting better by the rally.
+Kageyama was reading too, and he was getting better every rally.
 
-Sho could see it happening. Each toss to Hinata came a little cleaner than the last, the ball arriving at the top of the jump like it had been mailed there. By the middle of the set, Kageyama had started using him. Hinata would run in and drag Tsukishima and Yamaguchi toward him like a magnet, and Kageyama would turn and send the ball the other way to Tanaka, who had a whole open court and a big grin.
+Sho could see it from the back court. Each set to Hinata came a little cleaner than the last, the ball arriving right at the top of the jump. And by the middle of the set, Kageyama had started using him.
 
-15-17.
+Hinata's side took the next 3, and at 10-13 Tsukishima stuffed a tired Tanaka, and at 11-13 Tsukishima served. Tanaka passed it high. Hinata came in from the left at full speed, and Tsukishima and Yamaguchi went with him, both of them, because they'd seen what happened if they didn't, and they were up in the air in front of him with all 4 hands out before Kageyama had touched the ball. Kageyama turned his shoulders the other way and sent a high, easy set to the right, where Tanaka was coming in on his own with the whole court in front of him and nobody up to meet him. Tanaka hit it into the floor beside Sho's foot.
 
-"Tsukki, what do we do?" Yamaguchi whispered.
+11-14.
 
-Tsukishima didn't answer for a second. He was looking at Hinata, and his face had none of the usual boredom in it.
+Hinata had run, and taken 2 blockers with him, and never touched the ball.
 
-"We can't block both," he said finally. "So we pick."
+"Tsukki," Yamaguchi said. "What do we do?"
 
-"Which one?"
+Tsukishima stood at the net with his hands on his hips, looking at Hinata, and the usual boredom had gone out of his face.
 
-"The one we can actually touch."
+"We can't block both," he said. "So we pick."
 
-So they went for Tanaka, and Hinata scored. They went for Hinata, and Tanaka scored. Sho called "line" twice and "cross" once, and Tsukishima moved on 2 of the 3 without a word, and they got one stuff block that made Yamaguchi squeak with joy. It wasn't enough.
+"Which 1?"
 
-21-24.
+"The 1 we can actually touch."
 
-Match point.
+So they went for Tanaka.
 
-Sho stood in the back court and watched Hinata line up beside Kageyama, bouncing on his toes, and thought very clearly: come on. Come on. Show me again.
+On the next rally Tsukishima planted himself in front of Tanaka's approach and left Hinata to Yamaguchi. Kageyama saw it. He set Hinata, fast, and Yamaguchi went up alone in front of the orange blur, a beat late and half a meter short, and Hinata hit it over the top of his hands. Yamaguchi landed and stood looking at his own fingers as if the ball had gone through them.
 
-Hinata ran. Kageyama set. Sho's eyes did nothing at all.
+11-15.
 
-The ball hit the floor a meter to his left.
+They went for Hinata, and Kageyama set Tanaka, and Tanaka hit it off the antenna. 12-15.
+
+Sho kept his mouth shut. He could see Tanaka's shoulders open or square from the back court as well as he'd seen them in set 1, and twice he had *line* in his mouth, and twice he kept it there. Tsukishima picked his own way. He got a stuff block on Tanaka at 14-17, both hands, straight down, and Yamaguchi made a sound like a kettle and then put his hand over his mouth.
+
+At 16-19 Kageyama set Tanaka again, and Sho, in the back left, read the shoulders square and took 2 steps to his left before Tanaka hit it. He was there. The ball came into his arms hard, and his platform was flat, and it went up, high, toward the net.
+
+He'd watched a hitter's shoulders and gone, and got there on his own.
+
+Yamaguchi set Tsukishima, and Tsukishima tipped it short into the space Hinata had left, and it was 17-19, and Tsukishima, landing, looked back at Sho over his shoulder, a short look, and turned round again.
+
+Kageyama kept choosing, and almost every time he chose, Tsukishima had picked the other 1.
+
+---
+
+At 21-24, it was match point.
+
+Tanaka served, a hard float that Tsukishima took. Yamaguchi set Sho, and Sho hit it off Hinata's hands, and Tanaka dug it up, and the ball went to Kageyama.
+
+Sho stood in the back court and watched Hinata line up beside Kageyama, bouncing on his toes, and thought very clearly: *Come on. Come on. Show me again.*
+
+He asked it. He stood there with his weight on the balls of his feet and his whole head turned toward Hinata, and asked.
+
+Hinata ran. Kageyama set. Sho's eyes stayed what they were, a pair of 15-year-old eyes in a gym, and the gym stayed loud.
+
+He moved anyway. A little left, a little right, ready for both, the way a defender does who's been told nothing. He was a step short both ways.
+
+Hinata hit it with his eyes shut, hard and cross, the same long swing from set 1, and the ball hit the floor a meter to Sho's left while Sho was still deciding which way to fall.
 
 21-25.
+
+He stood there with his arms half out and looked at the ball rolling away toward the stage. Then he turned round and went to the net, because that was what you did.
 
 ---
 
@@ -2625,9 +2649,9 @@ They lined up at the net and bowed. "Arigatou gozaimashita!"
 
 Then Hinata ducked under the net and walked straight up to Tsukishima with his hand out.
 
-"Good game!" he said. "Let's get along! The seniors kick people out if they don't get along!"
+"Good game!" he said. "Let's get along! Daichi-san kicks people out if they don't get along!"
 
-Tsukishima looked at the hand like something had died on it. "You 2 got kicked out because you ignored the captain, started your own match, and knocked off the vice principal's wig. That's on you."
+Tsukishima looked at the hand as if it had been left on a train. "You 2 got kicked out because you ignored the captain, started your own match, and knocked the vice principal's wig off. That's on you."
 
 "That's... true, but..."
 
@@ -2639,11 +2663,11 @@ Hinata lunged, grabbed his hand with both of his, and shook it hard. "GOOD GAME!
 
 "No!"
 
-"Tsukki!" Yamaguchi hovered, horrified, unsure whose side to be on.
+"Tsukki!" Yamaguchi hovered beside them, looking from 1 to the other.
 
-Sho stood beside them and laughed until his stomach hurt. It was the first time since 20-16 that his eyes felt normal.
+Sho stood there and laughed until his stomach hurt. It was the 1st time since 20-16 in set 1 that his eyes felt normal.
 
-Daichi walked over from the sideline and looked at Tsukishima, who'd finally pried his hand free and was wiping it on his shorts.
+Daichi walked over from the sideline and looked at Tsukishima, who'd got his hand back and was wiping it on his shorts.
 
 "So," Daichi said. "How did that feel?"
 
@@ -2651,7 +2675,7 @@ Tsukishima shrugged. "I didn't really care. I figured we'd lose to the King anyw
 
 Daichi smiled. "You got pretty serious out there, though."
 
-Tsukishima's mouth closed. He pushed his glasses up and looked at the far wall, and the tips of his ears went a faint, traitorous pink.
+Tsukishima's mouth closed. He pushed his glasses up and looked at the far wall, and the tops of his ears went pink.
 
 Then Daichi turned his head. "Kiyose."
 
@@ -2659,99 +2683,97 @@ Then Daichi turned his head. "Kiyose."
 
 "How about you?"
 
-Sho thought about it. The honest answer was long and strange and involved a dead man in Osaka. He gave the short one.
+Sho thought about it. The true answer had a dead man in it, and a room in Osaka, and something that happened behind his eyes that he couldn't explain to anybody. He gave Daichi the part of it he could.
 
-"I lost to a monster combo on my 8th day of volleyball," he said. "So technically I'm undefeated."
+"I wanted to win," he said. "More than I thought I would."
 
-"That's not how that works," said Tsukishima, without turning around.
+Daichi waited.
 
-"It is in my heart."
+"I was late on every quick but 1," Sho said. "And I couldn't pass Kageyama's serve."
 
-Daichi laughed, the real one this time. Then he looked at Sho a second longer than he needed to, and the laugh faded into something quieter.
-
-"3 of their points in set 1 came off your receive," he said.
+"3 of their points in set 1 came off your receive."
 
 "4," said Sho. "You're being generous."
 
-"Mm." Daichi nodded once, like a man ticking a box. "Good."
+Daichi looked at him a bit longer than he needed to. He'd asked a question with 2 answers and been handed 1 of them, and Sho could see him put the other 1 away for later.
 
-He walked off. Sho had no idea what test he'd just passed.
+"Mm," he said. "Good."
+
+He went to talk to Tanaka.
 
 ---
 
-Yamaguchi took it harder than anyone.
-
-He sat on the bench holding his towel, not wiping anything with it. He kept looking at Tsukishima and then away.
+Yamaguchi was sitting on the bench holding his towel in both hands, dry. He kept looking at Tsukishima and then away.
 
 Sho sat down beside him.
 
-"I set badly," Yamaguchi told the towel. "You kept having to wait. If I'd been better, you'd have..."
+"I set badly," Yamaguchi said to the towel. "You kept having to wait. If I'd been better..."
 
-"You set 30 balls today, and nobody's ever asked you to set in your life," Sho said. "2 of my kills came off them. That's a new job and an okay first day."
+"Nobody asked you to set before Friday."
 
-Yamaguchi glanced at him.
+"...No."
 
-"Also," Sho added, "you won the mop race on Tuesday, and I think about it every day. I'll beat you next week. Prepare yourself."
+"Every point I scored today came off your sets. All 5."
 
-Yamaguchi stared, then laughed, a small surprised snort. "You're so weird."
+Yamaguchi turned the towel over in his hands, his eyes on it.
 
-"Shamelessly weird."
+"I'm not good at anything," he said, fast and low, to the towel. "Tsukki's good at blocking. He's always been good. I'm just... there."
 
-At the end of the bench, Tsukishima had his headphones on. He didn't look over. He had turned the volume down, though, because Sho couldn't hear the music leaking out anymore.
+Sho thought about what to say to that. A coach would have had a speech. Satoshi had heard every speech there was, and none of them had ever helped.
+
+"You were good at mopping," he said.
+
+Yamaguchi made a sound that was nearly a laugh.
+
+"I'm serious. You beat me by 4 meters on Wednesday. I think about it every day."
+
+"You're so weird."
+
+"You set 30 balls on Friday night," Sho said. "The 30th was better than the 1st."
+
+Yamaguchi looked at him then. He opened his mouth, and shut it, and looked at Tsukishima at the end of the bench.
+
+Tsukishima had his headphones on. He was looking at the floor. The volume had gone down, though, because Sho couldn't hear the music leaking out of them anymore.
 
 ---
 
-On the other side of the gym, Tanaka was badgering Daichi and Sugawara.
+On the other side of the gym, Tanaka had Daichi and Sugawara cornered by the ball cart.
 
-"Did you know?! Did you know they could do that?! Was that the plan the whole time?!"
+"Did you know? Did you know they could do that? Was that the plan the whole time?"
 
-"No," Daichi said. "We hoped they'd learn to work together as equals. 10 plus 10. Make 20."
+"No," said Daichi. "We hoped they'd learn to work together. 10 plus 10. Make 20."
 
 "And?"
 
 "And Kageyama took everything Hinata had and multiplied it." Daichi shook his head, smiling. "10 times 10."
 
-Sho, wiping down a ball by the cart, heard it and did the math without meaning to.
+Sho, wiping down a ball at the cart, heard it and did the sum without meaning to. 10 times 10 was 100. He'd got 1 dig in set 1 that changed nothing, and 1 dig in set 2 that changed 1 point, and both of them had been his own.
 
-10 times 10 was 100. He was 1 guy with a good body, a dead man's notes, and a pair of eyes that worked when they felt like it. On Karasuno's scoreboard today, that added up to 1 dig that didn't change anything.
-
-Fine.
-
-1 was more than 0.
+He put the ball in the cart.
 
 ---
 
 Then Kiyoko came in with a cardboard box.
 
-"Shimizu," Daichi said. "Did those come?"
+"Shimizu," said Daichi. "Did those come?"
 
-She nodded once, set the box on the bench, and opened it without a word. Inside, folded neatly, were black jackets.
+She nodded, set the box on the bench, and opened it. Inside, folded flat, were black jackets.
 
-Hinata made the kettle sound again.
+Hinata made a sound like a kettle.
 
-She handed them out one by one. Hinata. Kageyama. Tsukishima. Yamaguchi. Then she held the last one out to Sho, and he took it in both hands.
+She handed them out 1 by 1. Hinata. Kageyama. Tsukishima. Yamaguchi. Then she held the last 1 out to Sho, and he took it in both hands.
+
+"Kiyose," she said.
+
+"Thank you, Shimizu-senpai."
 
 It was heavier than he expected. Black, with KARASUNO across the back in white.
 
-Satoshi had owned a jacket like this once. A university one, navy, with his name stitched on the sleeve. He'd worn it to every match for 2 years, and then to the hospital for the knee, and then for a while after that, until one day he couldn't look at it anymore and put it in a box.
+Satoshi had owned a jacket like this once. A university 1, navy, with his name stitched on the sleeve. He'd worn it to every match for 2 years, and then to the hospital for the knee, and then for months after that, until 1 day he couldn't look at it anymore and folded it into a box at the back of a cupboard.
 
-Sho folded the new one carefully over his arm.
+Sho put the new 1 on. It fit.
 
-"It's a jacket," Kiyoko said. Quiet, matter-of-fact. "You can wear it."
-
-He looked up. She was already turning away to the next thing on her clipboard.
-
-"Right," Sho said. "Thank you, Shimizu-senpai."
-
-He put it on. It fit.
-
-Hinata already had his on and was running laps around the gym with his arms out like a plane while Tanaka shouted advice about posing. Kageyama stood very still in his, looking down at the sleeves as if they might fall off if he moved.
-
-"Good," Daichi said to Sugawara, with a long breath out. "That's settled."
-
-Sugawara went white. "Settled? What's settled? I didn't do anything. Nobody did anything in the mornings."
-
-Daichi just looked at him.
+Hinata already had his on and was running laps of the gym with his arms out like a plane while Tanaka shouted advice about posing. Kageyama stood in his with his arms held a little away from his body, looking down at the sleeves as if they might come off if he moved.
 
 ---
 
@@ -2761,100 +2783,169 @@ A small man in glasses and a green track jacket over a shirt and tie came in at 
 
 "Everyone! I have news!"
 
-"Takeda-sensei," Daichi said. "Our advisor," he added, for the first years.
+"Takeda-sensei," said Daichi. "Our advisor," he added, to the 1st years.
 
-Takeda stopped in front of them, out of breath, beaming. He bowed. Then he bowed again, for some reason.
+Takeda stopped in front of them, out of breath, beaming. He bowed. Then he bowed again, as if the 1st 1 hadn't counted.
 
 "A practice match," he said. "Against Aoba Johsai. Next Tuesday!"
 
-The second years went quiet. Even Tanaka stopped posing.
+The 2nd years went quiet. Even Tanaka stopped posing.
 
-"Seijoh?" Sugawara said. "One of the top 4 in the prefecture?"
+"Seijoh?" said Sugawara. "They're 1 of the top 4 in the prefecture."
 
-"They agreed!" Takeda looked so happy about it that it was hard to look at him directly. "I asked several times. Quite a few times. But they agreed! There's just one condition."
+"They agreed!" Takeda looked so happy about it that it was hard to look at him straight on. "I asked several times. Quite a few times. But they agreed! There's 1 condition."
 
 He looked down at his paper.
 
 "Kageyama-kun has to play setter. For the whole match."
 
-Everyone turned to look at Kageyama.
+Everybody turned to look at Kageyama.
 
 Kageyama had gone stiff inside his new jacket.
 
-Sho watched his face and filed it. Seijoh was top 4. Kageyama had come from a strong middle school. If half his old team had gone on to the same high school, and that school had asked for the King by name, for the whole match...
+Sho looked at his face, and then at the paper in Takeda's hand. Seijoh was a strong school. Kageyama had come from a strong junior high. If a strong school asked for a 1st-year setter by name, for a whole match, somebody over there knew exactly who he was.
 
-There was history there, and it had teeth.
+Hinata spoke 1st. "A real match," he said slowly. "With the whole team." Then, louder: "A REAL MATCH!"
 
-Hinata spoke first. "A real match," he said slowly. "With the whole team." Then, louder: "A REAL MATCH!"
+Sugawara was the 1st to speak after him.
 
-Sugawara smiled and said it was fine. He said it like it was nothing, and he meant it, and Sho noticed that Kageyama couldn't look at him.
+"That's fine," he said, and smiled. "That's good, actually. It's Seijoh. They want our best setter." He put his hand on Kageyama's shoulder, briefly, and took it away. "So they'll get him."
 
-Later, while they were packing up, Sho saw Kageyama find Sugawara by the door. He saw Kageyama bow, low. He didn't hear what was said, and he walked the other way so he wouldn't.
+He meant it. Sho could hear that he meant it. Kageyama stood under the hand and then without it, looking at the floor, and couldn't lift his eyes to Sugawara's face.
 
----
+Takeda looked from 1 to the other, and lowered his paper. "I've been reading," he said, "about how a team is built. It said a team isn't decided on the day it plays. It's decided in all the days before, by who turns up. You've all been turning up at 5 in the morning." He blinked. "Haven't you? Sawamura-kun told me."
 
-At dinner, his father asked if they'd won.
-
-"Lost," said Sho.
-
-"Ah," said his father. He chewed for a while. "Red car still on?"
-
-"Still on."
-
-"Good."
-
-His mother put an extra piece of grilled mackerel on his plate without saying anything. Mio watched him eat it with narrowed eyes, which meant she'd noticed the new jacket hanging on his chair and was deciding whether to be impressed.
+Later, while they were packing up, Sho saw Kageyama find Sugawara by the door and bow, low, and stay bowed. He couldn't hear what was said, and he walked the other way so he wouldn't.
 
 ---
 
-Up in his room, with the door shut, Sho let himself be rattled for exactly 1 minute.
+Practice ran on till half past 5. His father was waiting at the school gate at 5:40, in his weekend jacket, with his hands in his pockets.
 
-He held his hands out over the desk and watched them. Steady. His eyes felt fine now, just tired. He thought about the gym going silent. About Hinata turning into points of light. About moving before the ball was hit and being right.
+He looked at the new black jacket. He looked at Sho's arms under it, the purple coming out past the cuffs. He said, "Mm," and they walked to the station.
 
-Something had happened inside his head that shouldn't be possible.
+The sports shop was on the 2nd floor over a pharmacy, up a narrow staircase with posters of baseball players on the wall. It smelled of new rubber. There was a wall of shoes at the back, and a man of about 60 behind the counter reading a newspaper, who folded it when they came in.
 
-He waited for the fear to show up.
+"Volleyball," said Sho's father, before anybody could ask.
 
-What showed up was the old feeling from the analyst room at 2 a.m., the one Satoshi had chased for 9 years: a pattern on the screen that nobody else had noticed yet.
+The man looked at Sho, up and down, the way a tailor looks at somebody. "Size?"
 
-Okay, he thought. Weird. Weird is just data nobody's logged yet.
+"28."
 
-He opened a new notebook and wrote the date at the top.
+"Position?"
 
-> **Event 1.** Set 1, 20-16. Hinata, freak quick, first time. Gym went silent. Saw the hitter as joints, hitting forearm brightest. Ghost of the swing about 1 blink early. Body moved, too slow. Ball landed exactly where the ghost pointed.
+Sho opened his mouth. *Ace,* he'd written on the form. He'd only said it out loud on his 2nd day, to people who'd laughed or turned to face a wall.
+
+"Wing spiker," he said. "I want to be. I jump a lot."
+
+The man brought down 3 boxes. Sho tried on all of them, and walked up and down between the shelves, and did a small jump in the aisle that made the man say "Not in here," and stood with his weight on the balls of his feet and rocked. The 3rd pair held his ankles like hands. When he landed in them, the floor came up to meet him a little later and a little softer than it had in his school indoor shoes.
+
+"These," he said.
+
+His father looked at the price on the box. He took his wallet out and counted it out on the counter, slowly, in notes, and the man put the shoes back in the box and the box in a bag.
+
+"Knee pads," said his father.
+
+"I've got the money for those," said Sho. "From New Year's."
+
+"Knee pads," said his father again, to the man, and the man brought down a pair in black.
+
+On the way home, at the konbini by the shrine, Sho stopped. "1 minute," he said, and went in, and came out with a cheap gray notebook with a plain cover, 120 yen. His father didn't ask.
+
+They walked the rest of the way with the bag between them. At the top of the hill, outside the house with the dog, his father said, "Did you win?"
+
+"Lost."
+
+"Ah." The dog barked. They walked on. "By how much?"
+
+"21 to 25. In the 2nd set. We lost the 1st 1 too."
+
+"Mm. That's 4." His father thought about it. "More than 2."
+
+"It is."
+
+"Mm."
+
+At the gate his father stopped and looked at the bag in Sho's hand. "Thank you, Dad," said Sho. "For the shoes."
+
+His father nodded at the gate. Then he went in.
+
+---
+
+His mother put an extra piece of grilled mackerel on his plate at dinner. Mio watched him eat it with narrowed eyes. She'd seen the new jacket on the back of his chair and the shoe bag by the door, and she was working something out.
+
+She came into his room at 9 without knocking, in her pajamas, with a pudding cup she was clearly planning to eat in front of him.
+
+He was at his desk. The jacket was hanging on his chair. She looked at it.
+
+"Is that yours?"
+
+"Yes."
+
+"For the club?"
+
+"Yes."
+
+She came and touched the sleeve, as if checking it was real. She turned the cuff over and looked at the inside, at the white tag with *KARASUNO VBC* printed on it.
+
+"Do they take it back," she said, "if you quit?"
+
+Sho looked at her. She was looking at the tag.
+
+"I don't know," he said. "Probably."
+
+"Hm." She let go of the sleeve. She peeled the lid off her pudding and licked it. "So you have to keep it."
+
+"I'm going to keep it."
+
+"Golden Week's in 2 weeks," said Mio, and went out with her pudding.
+
+---
+
+When she'd gone, he sat at the desk with his hands flat on it and looked at them.
+
+They were steady. His eyes felt fine now, just tired. He thought about the gym going quiet, and Hinata turning into points of light, and his legs moving before the ball was hit, and his own eyes, which he'd asked at match point and which had given him nothing.
+
+His heart went fast, once, hard, against his ribs. He let it.
+
+Then something older came up under it, from the analyst room at 2 a.m., the thing Satoshi had chased for 9 years: a pattern on the screen that nobody had noticed yet.
+
+*Okay,* he thought. *Weird. Weird is data nobody's logged yet.*
+
+He opened the gray notebook and wrote the date at the top of the 1st page. Under it he started to write a name, and wrote it in the wrong characters, 日名田, because he'd only ever heard it shouted, and crossed it out and wrote it again in kana. Under that he drew Hinata's run-up in arrows, 3 of them, the last 2 almost on top of each other.
+
+> **Event 1.** Set 1, 20-16. *Hinata*, freak quick, 1st time. Gym went silent. Saw the hitter as joints, hitting forearm brightest. Ghost of the swing about 1 blink early. Body moved, too slow. Swing went deep left.
 >
-> **Event 2.** Set 1, 23-20. Hinata, cut-across freak quick. Same thing. Moved before contact. Dug it.
+> **Event 2.** Set 1, 23-20. *Hinata*, cut-across freak quick. Same thing. Moved before contact. Dug it.
 >
-> **Cost.** Eyes dry and burning. Pressure behind them. Depth perception gone about 3 minutes. Misread an easy serve (point lost).
+> **Cost.** Eyes dry and burning. Pressure behind them. Depth gone about 3 minutes. Misread an easy serve (point lost), late on 1 set, didn't move for 1 quick.
 >
-> **Never fired:** set 2, at all, including when I tried hardest.
+> **Never fired:** set 2, at all, including match point, when I asked it.
 >
-> **Pattern:** both times on Hinata. Both times on a play faster than my model of the game. Both times I wasn't trying.
+> **Pattern:** both times on Hinata. Both times on a play faster than my model of the game. Both times after I'd stopped watching for it.
 
 He sat back and looked at it.
 
-Hypothesis: it fired when something outran his brain. When a play was too fast for Satoshi's 10,000 rallies of pattern-matching, something else took over for a fraction of a second. Something that didn't care what Sho wanted.
-
-So he couldn't train it directly. Fine. He'd train everything around it.
+So it came when something outran his head. When a play was too fast for 9 years of tape, something else took over for a blink, something that didn't care what Sho wanted. He couldn't train it directly. Fine. He'd train everything round it.
 
 > **Plan.**
 >
-> 1. **The eye shows where. The body has to get there.** It showed me exactly where the first ball would land and I was still 2m short. Receiving: 300 wall passes a day. Footwork: last 2 steps, 100 reps. Before school and after.
-> 2. **Read without it.** The old way: when they have the ball, watch people. Approach angle, shoulders, the hitting hand. If the hand disappears, it's a full swing. Chart 1 hitter every practice.
-> 3. **Make the model faster,** so less outruns it. Film: old V.League recordings on the family PC. 10 minutes off every hour, for the eyes.
+> 1. **It shows the swing. The body has to get there.** Receiving: 300 wall passes a day. Footwork: last 2 steps, 100 reps. Before school and after.
+> 2. **Read without it.** Watch the setter's hands, then the hitters' shoulders and feet. Played the ball I could see at 22-19 and 16-19. Chart 1 hitter every practice.
+> 3. **Make the model faster,** so less outruns it. Old V.League recordings on the family PC. 10 minutes off every hour, for the eyes.
 > 4. **Recovery is training.** 8 hours of sleep. Eat. 1 rest day a week.
+> 5. **Approach.** Wait for the ball to stop. Count 1. 50 swings at the side wall every night.
 
-He stopped at number 4 and looked at it for a long time.
+He stopped at number 4 and looked at it.
 
-Satoshi's knee had gone at 20. It had gone because a 20-year-old ace who thought he was invincible trained through 3 months of a sore knee and told nobody. Satoshi had done everything twice as hard and nothing twice as smart.
+Satoshi's knee had gone at 20. It had gone because a 20-year-old ace who thought he couldn't break trained through 3 months of a sore knee and told nobody, and did everything twice as hard and nothing twice as smart.
 
 Sho underlined number 4. Twice.
 
-Then, at the bottom, he wrote:
+At the bottom he wrote:
 
-> Aoba Johsai. Tuesday. Kageyama's old team.
+> Aoba Johsai. Tuesday. They asked for Kageyama by name.
 
-The door opened without a knock. Mio, in pajamas, holding a pudding cup she was clearly planning to eat in front of him.
+The door opened again. Mio, empty pudding cup in hand.
 
 "What's that?" She pointed at the notebook.
 
@@ -2868,25 +2959,26 @@ She considered this. "Am I in it?"
 
 "Page 1."
 
-"Good," she said, satisfied, and left. He heard her laughing all the way down the hall.
+"Good," she said, and went. He heard her laughing all the way down the hall.
 
-Sho set his alarm for 4:15. Then he turned off the light.
-
-The jacket hung on the back of his chair, and the streetlight through the curtain caught the white letters across its back. He lay there looking at them until he fell asleep.
+Tomorrow was Sunday. He set his alarm for 4:15 anyway, and looked at number 4 in the notebook, and moved the alarm to Monday. He put the new shoes, still in their box, at the end of the bed, where he'd see them. The jacket hung on the back of his chair, and the streetlight through the curtain caught the white letters across its back.
 
 **Continuity (ch 6)**
 
-- Canon covered: set 2 lost 21-25 (Kageyama getting more accurate, using Hinata to drag the block and freeing Tanaka), the forced handshake and Tsukishima's list of why they got kicked out, Daichi's "you got pretty serious", 10+10 vs 10x10, team jackets from Kiyoko, Daichi's "that's settled" and Suga's panic, Takeda's entrance, the Seijoh practice match next Tuesday with the Kageyama-plays-setter condition, Kageyama bowing to Suga (unheard).
-- Changes: Daichi also asks Sho how it felt. Sho owns 4 of the set 1 points lost on his receive; Daichi says "Good" (an honesty test Sho doesn't know he passed).
-- Emperor's Eye: did not fire in set 2, even when Sho tried. Sho's hypothesis: it fires when a play outruns his brain's pattern model, never on command.
-- Bounce-back: rattled for 1 minute, no fear. New notebook with an event log and a 4-point plan: 300 wall passes a day, 100 footwork reps, chart 1 hitter per practice, film with a 10-minute eye break every hour, 8 hours of sleep, 1 rest day a week. Alarm now 4:15.
-- New backstory: Satoshi's ACL tear came from overuse (trained through 3 months of knee pain and told nobody). That's why Sho trains twice as hard and twice as smart.
-- Kiyoko's first words to Sho. He calls her Shimizu-senpai.
-- Yamaguchi: Sho comforted him after the loss; mop race rematch next week. Tsukishima turned his music down to listen.
-- Jackets only. No jersey numbers yet (canon hands out numbers before the Nekoma match).
-- Family: dad's "Red car still on?"; mom's extra mackerel; Mio is on page 1 of the "enemies diary".
-- No status card (no rank changed).
-- Next: ch 7, the Seijoh practice match, sets 1 and 2 (Hinata's nerves, the bus). Sho starts in Ennoshita's spot.
+- Revised Nov 14 (revision pass of ch 1 to 29). Title changed from "One touch". No status card.
+- Canon: set 2 to Hinata's side 25-21 (3v3 won 2-0, 25-23 and 25-21); Kageyama uses Hinata to drag the block and frees Tanaka; Tsukishima: "We can't block both. So we pick." [memory, unverified]; the forced handshake and Tsukishima's list (ignored the captain, started their own match, knocked off the wig); Daichi to Tsukishima: "You got pretty serious out there, though."; 10 plus 10 vs 10 times 10 [memory, unverified wording]; team jackets from Kiyoko; Takeda's entrance and the Seijoh practice match next Tuesday, with the condition that Kageyama sets the whole match; Kageyama bows to Sugawara (unheard).
+- Divergence (ours): Daichi asks Sho too. Sho: "I wanted to win. More than I thought I would." "I was late on every quick but 1. And I couldn't pass Kageyama's serve." "4. You're being generous." "Mm. Good." (Daichi notices the missing half and lets it go.) Set 2 rallies are the fic's own: 8-10 to 10-10 (Sho's line, roll shot); 10-13 Tsukishima stuffs Tanaka; 11-13 Tsukishima serves, the decoy, 11-14; "we pick"; 11-15 Hinata over Yamaguchi; 12-15 antenna; 14-17 Tsukishima stuffs Tanaka; 16-19 Sho digs Tanaka's line on a read, 17-19; 21-24 match point on Tanaka's serve, Hinata cross, 21-25.
+- The eye: never fires in set 2; at match point (21-24) Sho asks it and gets nothing (a3: "begged it to come, and it never had"). He moves "ready for both", a step short both ways. Sho never calls Tsukishima's blocks (ch 4); he reads Tanaka on his own and digs him at 16-19.
+- Yamaguchi on the bench: "I set badly." "Nobody asked you to set before Friday." "Every point I scored today came off your sets. All 5." "I'm not good at anything. Tsukki's good at blocking... I'm just... there." "You were good at mopping." "You beat me by 4 meters on Wednesday." "You're so weird." "The 30th was better than the 1st." Tsukishima turns his music down.
+- Seijoh news: Sugawara: "That's fine. That's good, actually. It's Seijoh. They want our best setter. So they'll get him." (hand on Kageyama's shoulder; Kageyama can't look at him). Takeda: a team "is decided in all the days before, by who turns up... You've all been turning up at 5 in the morning... Sawamura-kun told me."
+- Kiyoko: "Kiyose." "Thank you, Shimizu-senpai." (He says "Kiyoko-san" by arc 3.) Satoshi's navy university jacket, name on the sleeve, 2 years, then the hospital, then a box at the back of a cupboard (ch 32's #5 navy on white).
+- Dad keeps the shoe promise: waits at the gate at 5:40; the sports shop on the 2nd floor over a pharmacy by the station; size 28; "Wing spiker. I want to be. I jump a lot."; Dad pays in notes, buys the knee pads too ("Knee pads," twice). "Did you win?" "Lost." "By how much?" "21 to 25." "That's 4. More than 2." (he's been reading the rules). Practice ran till 5:30. "Thank you, Dad. For the shoes."
+- The notebook: cheap gray, 120 yen, the konbini by the shrine (ch 22, ch 28). Page 1: the date; Hinata's name 1st written in the wrong characters (日名田), crossed out, then kana (a3:5704). Event 1, Event 2, Cost (about 3 minutes of depth), Never fired (including when asked at match point), Pattern (both on Hinata; faster than his model; after he'd stopped watching for it), the Plan: 1 receiving (300 wall passes, 100 footwork reps), 2 read without it, 3 film with 10-minute eye breaks, 4 "Recovery is training" underlined twice, 5 approach (count 1, 50 swings a night). *Aoba Johsai. Tuesday. They asked for Kageyama by name.* (5 plan items; the ledger's 4 is not cited later.) Run-up arrows on page 1 (ch 28). Alarm 4:15 set for Monday (Sunday off, per item 4).
+- Satoshi's knee: trained through 3 months of pain and told nobody (Soul sheet; ch 22).
+- Mio: "Do they take it back if you quit?" "Probably." "So you have to keep it." "Golden Week's in 3 weeks." The diary: "Of my enemies." "Am I in it?" "Page 1." "Good."
+- Alarm now 4:15 (Arc 2, Arc 3).
+- Ace line: "Wing spiker. I want to be." at the shoe shop; plan item 5.
+- Next: Ch 7, Sakanoshita and the Seijoh practice match (Sho starts in Ennoshita's spot, on the wing). Before ch 7: freeze the chapter map and split old ch 7 per Option B.
 
 ## Chapter 7: Blue castle
 
