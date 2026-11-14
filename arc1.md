@@ -1952,7 +1952,7 @@ He did it again at 6-7, the same way: Hinata up, Tsukishima waiting, Tsukishima 
 
 At 7-8, while Yamaguchi chased a stray ball into the corner, Tsukishima turned to Hinata at the net as if they'd been chatting.
 
-"You know why they call him King?" he said. "His own teammates gave him that name. In junior high. And in his last match, they stopped jumping for his tosses. He set the ball, and nobody went. They just let it fall." He smiled. "I heard about it from someone who was there."
+"You know why they call him King?" he said. "His own teammates gave him that name. In junior high. He shouted at them every rally. *Faster. Higher. Why can't you keep up.* And in his last match, they stopped jumping for his tosses. He set the ball, and nobody went. They just let it fall." He smiled. "I heard about it from someone who was there."
 
 Hinata looked at Kageyama.
 
@@ -2116,15 +2116,19 @@ Yamaguchi served. Kageyama set Hinata again, faster. Hinata missed it by more. 1
 
 "YOU'RE TOO FAST!"
 
-"If you'd just..."
+"If you'd just keep up, I wouldn't have to..."
 
-Kageyama stopped. His mouth was still open. He'd been about to say something long and hard, and it had stopped in the middle, and he stood there with it in his mouth and his hands in the air. Sho, at the net, saw his face and knew what had stopped it. He'd heard himself.
+Kageyama stopped in the middle of it, with his mouth still open and his hands up in the air.
 
-The match had more or less stopped round them. Tanaka stood between them with his hands up, saying "Oi, oi, oi."
+*Faster. Higher. Why can't you keep up.* Tsukishima had said those words across this net 10 minutes ago, telling the story of the King and the junior high team that got shouted at until they stopped jumping. Kageyama had just heard himself start shouting them again. Sho saw it land on his face.
 
-Sho could see the whole of it, the setter setting for a hitter who didn't exist yet. He breathed in, and held it, and let it out. They were on the other side of the net. He'd promised to try his hardest to make them lose.
+The match had more or less stopped round them. Tanaka stood between the 2 of them with his hands up, saying "Oi, oi, oi."
 
-Sugawara said it.
+Sho could see what was wrong. Kageyama was putting the ball where a finished hitter would be, a hitter with 5 years of timing, and Hinata had a week of it and twice anybody's speed. Kageyama was setting for the hitter in his head and yelling at the real 1 for being somebody else. Sho could have said so in 2 sentences.
+
+He breathed in, and held it, and let it out. They were on the other side of the net. He'd promised to try his hardest to make them lose.
+
+Sugawara said it for him.
 
 ---
 
