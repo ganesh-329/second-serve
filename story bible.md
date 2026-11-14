@@ -64,7 +64,7 @@ HARD RULES
 9. Every chapter carries the soul of its characters (see "Soul
    sheet"). Each chapter ends on something a reader wants answered,
    and that question comes out of a character's soul.
-10. After ch 22, POV chapters from other characters are sprinkled
+10. After ch 27, POV chapters from other characters are sprinkled
    between Sho's chapters, one character each (see "POV chapters").
  
 CHAPTER FORMAT
@@ -130,7 +130,7 @@ The old version of this guide was a list of comedy templates and scene formulas.
 - The same joke shape repeated across scenes (A says X, B says "that's not X", A doubles down).
 ### Before and after
  
-Artificial (ch 18 draft, cut):
+Artificial (ch 22 draft, cut):
  
 > "Information has a cost, Kageyama-kun." "What cost." "The milk in your jacket." ... "Your serve's still bad." "That's off topic." "It's always on topic."
  
@@ -182,7 +182,7 @@ After the eye awakens at Nationals, Sho's minutes grow. Whether he becomes a sta
 - The competition stays healthy: no sabotage, no bitterness, and nobody gets written down to make Sho look good. Sho's shamelessness is aimed at himself, never at teammates.
 - Asahi's big moments (beating Date Tech's wall, his return) stay his. Sho can be on court beside him or on the bench, never in place of him.
 - A back-row sub for Asahi to receive a serve run is ordinary volleyball and doesn't take anything from Asahi. Ukai makes that call.
-- From ch 22 Ukai listens to Sho's notebook. Sho tells him what he saw in plain words; Ukai checks it and decides. That keeps the coach the coach and lets Sho change things.
+- From ch 26 Ukai listens to Sho's notebook. Sho tells him what he saw in plain words; Ukai checks it and decides. That keeps the coach the coach and lets Sho change things.
 ### All-rounder and the libero role
  
 Emperor's Eye and Meta Vision make Sho a natural back-row defender. In matches he plays as a receiving outside hitter: he takes serve receive with Noya and Daichi, then attacks.
@@ -209,9 +209,9 @@ Long term, Sho becomes Karasuno's ace once Asahi graduates, with Tanaka as the w
  
 **Open question:** Sho wears #13. Whether a 13th player forces a roster cut for official tournaments couldn't be confirmed on the wiki. If it does, that's a ready-made conflict with Kinoshita or Yamaguchi.
  
-## Arc 1 outline (chapters 1 to 15)
+## Arc 1 outline (chapters 1 to 18)
  
-Arc 1 covers canon Ch 1 to 34 in 15 chapters and ends with the Nekoma loss. Sho knows nothing about Haikyuu's plot. He just loves volleyball, so every canon event is new to him. Chapter titles are working titles.
+Arc 1 covers canon Ch 1 to 34 in 18 chapters and ends with the Nekoma loss. Sho knows nothing about Haikyuu's plot. He just loves volleyball, so every canon event is new to him. Chapter titles are working titles.
  
 **The 3v3 swap:** Sho takes Daichi's spot on Tsukishima and Yamaguchi's side, and Daichi watches as captain. When Hinata's first freak quick comes, Emperor's Eye partially awakens and Sho digs it on instinct. **Hinata's side still wins.** If Sho's side won, Kageyama would lose the setter spot and canon would fall apart. The eye doesn't fire again that match, and Sho can't make it.
  
@@ -222,16 +222,19 @@ Arc 1 covers canon Ch 1 to 34 in 15 chapters and ends with the Nekoma loss. Sho 
 | 3 | Dawn reps | 3 to 4 | Hinata and Kageyama practice at dawn with Suga's and Tanaka's help; Tsukishima and Yamaguchi mock them | Sho trains in the same gym and talks Suga into tossing for him too. Daichi puts him on Tsukishima's side for the 3v3 |
 | 4 | The King | 5 to 7 | 3v3 starts; Tsukishima needles Kageyama with "King of the Court" | Sho vs Tanaka at the net, first healthy rivalry beat. The ace instincts are there, the technique isn't |
 | 5 | Eyes closed | 7 to 8 | The freak quick is born | Emperor's Eye partially awakens: Sho sees Hinata's next swing a blink early; misses the 1st quick, digs the cut-across. In his head (never aloud) he wonders if it's Observation Haki |
-| 6 | One touch | 9 | Hinata's side wins; all 4 first years join; jerseys handed out; Seijoh match announced | The eye won't fire again. Sho's first loss in this life; team jackets only (jersey numbers come before the Nekoma match). Rattled for a minute, then the notebook and a plan to train twice as hard |
-| 7 | Blue castle | 10 to 13 | Seijoh practice match, sets 1 and 2; Hinata's nerves, serve to Kageyama's head | Sho starts in the 6th spot (Ennoshita's in canon) beside Daichi, Tanaka, Tsukishima, Hinata, Kageyama. Asahi and Noya aren't back yet |
-| 8 | Grand King | 14 | Set 3; Oikawa pinch serves at 24-21; Karasuno wins 25-23 | Oikawa clocks something in Sho's eyes. Sho asks Oikawa to teach him that serve, to his face |
-| 9 | Guardian deity | 16 | Nishinoya returns from suspension and receives everything | Sho can't hit through Noya, so he begs Noya to teach him receiving |
-| 10 | The ace who left | 18 to 19 | Asahi's backstory; Ukai Keishin agrees to coach | Satoshi knows what it's like to get blocked until you quit. Ukai notices Sho's footwork; Sho haggles for meat buns |
-| 11 | Neighborhood | 20 to 22 | Match vs the Neighborhood Association; Suga steps aside; Asahi on the other side | Sho and Asahi face off, ace against ace |
-| 12 | Call for the ball | 23 to 24 | Asahi's spike gets blocked, Noya saves it, Asahi calls for it again and scores; Asahi and Noya rejoin. Neighborhood wins 2-0 | Asahi's moment stays his. Sho watches from across the net |
-| 13 | Golden Week | 25 to 28 | Camp; Hinata gets #10; stories of Ikkei's old training | Training grind. Status card: Reception E to D, Meta Vision to Scanning. Neck-check drills (the Meta Vision seed). Gets #13; bench for Nekoma |
-| 14 | Garbage dump | 29 to 32 | Nekoma practice match; Inuoka learns to block the quick | Kenma reads Sho. Scanning overloads and Sho freezes mid-rally |
-| 15 | Not a team yet | 33 to 34 | Nekoma wins 25-22, 25-23 and every rematch; Ukai: strong individuals, no team; promise to meet at Nationals | Hook: Inter-High is coming, and the eye fires when it wants, never when he asks |
+| 6 | Jackets | 9 | Hinata's side wins; all 4 first years join; jerseys handed out; Seijoh match announced | The eye won't fire again. Sho's first loss in this life; team jackets only (jersey numbers come before the Nekoma match). Rattled for a minute, then the notebook and a plan to train twice as hard |
+| 7 | Blue castle | 10 to 13 | Seijoh practice match: Sakanoshita, the bus, set 1 (lost); Hinata's nerves, serve to Kageyama's head | Sho starts in the 6th spot (Ennoshita's in canon) beside Daichi, Tanaka, Tsukishima, Hinata, Kageyama. Asahi and Noya aren't back yet |
+| 8 | Bottle cap | 10 to 13 | Set 2 | Sho on the wing; Ennoshita's read on Kindaichi drifting toward Kageyama; Sho uses it to score off Kunimi |
+| 9 | Grand King | 14 | Set 3; Oikawa pinch serves at 24-21; Karasuno wins 25-23 | Oikawa clocks something in Sho's eyes. Sho asks Oikawa to teach him that serve, to his face |
+| 10 | Guardian deity | 16 | Nishinoya returns from suspension and receives everything | Sho can't hit through Noya, so he begs Noya to teach him receiving |
+| 11 | The ace who left | 18 to 19 | Takeda courts Ukai; Asahi's backstory (Suga's story) | Satoshi knows what it's like to get blocked until you quit. Sho haggles for meat buns |
+| 12 | 40 yen | 18 to 19 | Ukai Keishin agrees to coach; his 1st practice; the Neighborhood guys arrive | Ukai notices Sho's footwork (the left-foot tell) |
+| 13 | Neighborhood | 20 to 22 | Match vs the Neighborhood Association; Suga steps aside; Asahi on the other side | Sho and Asahi face off, ace against ace |
+| 14 | Call for the ball | 23 to 24 | Asahi's spike gets blocked, Noya saves it, Asahi calls for it again and scores; Asahi and Noya rejoin. Neighborhood wins 2-0 | Asahi's moment stays his. Sho watches from across the net |
+| 15 | Rice cooker | 25 to 28 | Golden Week camp, days 1 to 3; stories of Ikkei's old training | Training grind. Neck-check drills (the Meta Vision seed) |
+| 16 | Prime number | 25 to 28 | Last camp day; Hinata gets #10; Nekoma arrives | Status card: Reception E to D, Meta Vision to Scanning. Gets #13; bench for Nekoma |
+| 17 | Garbage Dump | 29 to 32 | Nekoma practice match; Inuoka learns to block the quick | Kenma reads Sho. Scanning overloads and Sho freezes mid-rally |
+| 18 | Not a Team Yet | 33 to 34 | Nekoma wins 25-22, 25-23 and every rematch; Ukai: strong individuals, no team; promise to meet at Nationals | Hook: Inter-High is coming, and the eye fires when it wants, never when he asks |
  
 **Settled:** In canon, Ennoshita filled the 6th spot against Seijoh ([wiki](<https://haikyuu.fandom.com/wiki/Karasuno_vs_Aoba_Johsai_(Practice_Match)>)). Sho takes it instead. Ennoshita's real arc comes later at Wakutani South, so nothing he loses here matters.
  
@@ -550,9 +553,9 @@ Meta Vision is learned, grown from Satoshi's analyst habits, with no awakening. 
 | Predictive map (Lv2) | Nationals | The map plus where each player is about to go | Mental fatigue by the 3rd set |
 | Dual (eye inside the map) | Pro era | The eye's exact read placed inside the full map | Forced early: migraine and nosebleed |
 
-**Forced fusion, once (ch 22, set 2 vs Seijoh).** The eye fires on its own on Oikawa's serve, and Sho, already running his notebook lines as a crude map, holds on to it and keeps forcing it rally after rally. For 11 rallies (18-20 to 25-23) he plays like a much better player: early on serve receive, early on digs, and he calls Seijoh's attacks for his blockers. He doesn't keep it. The cost is the old cost pushed past its limit: burning eyes, a thumb of pressure behind them that grows into a migraine, depth perception sliding in and out, and a nosebleed after the last point. He's out for the rest of the match, and the depth comes and goes for days and is only properly back by the Wednesday clinic (ch 28). The eye goes back to firing on its own, at 0.2s, never on command, and Sho knows he can't do it again until something about him changes. The real fusion stays in the pro era.
+**Forced fusion, once (ch 27, set 2 vs Seijoh).** The eye fires on its own on Oikawa's serve, and Sho, already running his notebook lines as a crude map, holds on to it and keeps forcing it rally after rally. For 11 rallies (18-20 to 25-23) he plays like a much better player: early on serve receive, early on digs, and he calls Seijoh's attacks for his blockers. He doesn't keep it. The cost is the old cost pushed past its limit: burning eyes, a thumb of pressure behind them that grows into a migraine, depth perception sliding in and out, and a nosebleed after the last point. He's out for the rest of the match, and the depth comes and goes for days and is only properly back by the Wednesday clinic (ch 33). The eye goes back to firing on its own, at 0.2s, never on command, and Sho knows he can't do it again until something about him changes. The real fusion stays in the pro era.
 
-**Why he forces it:** Satoshi lost his knee by training through 3 months of pain and telling nobody. Sho knows that. In ch 22 he does the same thing on a smaller scale, on purpose, for 1 set, with his eyes open. The story never says whether that was right. Mio, Ukai and Sho himself each answer it differently in the chapters after.
+**Why he forces it:** Satoshi lost his knee by training through 3 months of pain and telling nobody. Sho knows that. In ch 27 he does the same thing on a smaller scale, on purpose, for 1 set, with his eyes open. The story never says whether that was right. Mio, Ukai and Sho himself each answer it differently in the chapters after.
  
 ### Status cards (for readers only)
  
@@ -588,21 +591,21 @@ Emperor's Eye: Partial awakening
 Meta Vision: Film brain
 ```
  
-## Revision of ch 1 to 29 (user decisions, Nov 13)
+## Revision of ch 1 to 34 (old 1 to 29) (user decisions, Nov 13)
 
-Ch 1 to 29 are being rebuilt one at a time, from ch 1, before Arc 4 is written. Planning reports: `planning/revision/` (01 to 05 audits, 06 canon, 07 and 08 soul and conversations, 09 structure, 10 fact ledger). The old rule "Don't edit ch 1 and 2" is lifted.
+Ch 1 to 34 (old 1 to 29) are being rebuilt one at a time, from ch 1, before Arc 4 is written. Planning reports: `planning/revision/` (01 to 05 audits, 06 canon, 07 and 08 soul and conversations, 09 structure, 10 fact ledger). The old rule "Don't edit ch 1 and 2" is lifted.
 
 **User, Nov 13:** "The conversations are the soul of chapters. Orchestrate the chapters beautifully." Every interaction has a purpose, a distinct voice and a reason to engage. Relationships grow through what people say, what they avoid saying, their disagreements, their humour and the small ways they answer each other. Surprise POVs where they add a view Sho's narration can't. Chapters breathe; every ending's hook grows out of what happened.
 
 **Decided (user, Nov 13: "Yes to all"):**
 
-- **Chapter count: Option B (+5).** Splits: old 7 (into "Blue castle" and "Bottle cap"), old 10 (into "The ace who left" and "40 yen"), old 13 (into "Rice cooker" and "Prime number"), old 16 (into "Bracket" and "Fly"), old 22 (into "1 finger" and "Set 2"). Arc 1 becomes ch 1 to 18, Arc 2 ch 19 to 34, Arc 3 ch 35 to 50, Arc 4 ch 51 to 72. The old-to-new map is in `planning/revision/09_structure.md` section 2.3; it gets frozen as `planning/revision/CHAPTER_MAP.md` before ch 7 is revised, and the renumbering follows that report's section 3.3 method. Historical planning reports keep their old numbers. Until the renumbering is done, chapter numbers everywhere are the old ones.
-- **POVs before ch 23 are allowed.** Old ch 12 "Call for the ball" (new ch 14) becomes a **Suga POV**. A Daichi POV during Golden Week stays optional.
-- **Exam pass line stays 30** (canon is 40). It's the fic's line; ch 29 to 31 rely on it.
-- **Aone stuffs Sho twice in ch 19**, and Sho tools a block with Aone in it, to match ch 38 and the Arc 4 plan.
-- **Nekoma practice match: 3 games** (canon: 25-22, 25-23 / 25-22, 26-24 / 27-25, 32-30), fixed in ch 15.
-- **Sho plays the wing (outside hitter)** in the Seijoh practice match and after, never a hidden opposite (ch 7 to 10).
-- **Canon fixes:** Seijoh plays 2 more matches the same afternoon after beating Karasuno (ch 25, 26 lose "Ushiwaka next"); the Inter-High final is 22-25, 23-25 with no deuce (ch 28).
+- **Chapter count: Option B (+5).** Splits: old 7 (into "Blue castle" and "Bottle cap"), old 10 (into "The ace who left" and "40 yen"), old 13 (into "Rice cooker" and "Prime number"), old 16 (into "Bracket" and "Fly"), old 22 (into "1 finger" and "Set 2"). Arc 1 becomes ch 1 to 18, Arc 2 ch 19 to 34, Arc 3 ch 35 to 50, Arc 4 ch 51 to 72. The old-to-new map is in `planning/revision/09_structure.md` section 2.3; it gets frozen as `planning/revision/CHAPTER_MAP.md` before ch 7 is revised, and the renumbering follows that report's section 3.3 method. Historical planning reports keep their old numbers. The renumbering was done Nov 14 (`planning/revision/CHAPTER_MAP.md`); chapter numbers in this bible are the new ones unless marked "old".
+- **POVs before ch 28 are allowed.** Old ch 12 "Call for the ball" (new ch 14) becomes a **Suga POV**. A Daichi POV during Golden Week stays optional.
+- **Exam pass line stays 30** (canon is 40). It's the fic's line; ch 34 to 36 rely on it.
+- **Aone stuffs Sho twice in ch 23**, and Sho tools a block with Aone in it, to match ch 43 and the Arc 4 plan.
+- **Nekoma practice match: 3 games** (canon: 25-22, 25-23 / 25-22, 26-24 / 27-25, 32-30), fixed in ch 18.
+- **Sho plays the wing (outside hitter)** in the Seijoh practice match and after, never a hidden opposite (ch 7 to 12).
+- **Canon fixes:** Seijoh plays 2 more matches the same afternoon after beating Karasuno (ch 30, 31 lose "Ushiwaka next"); the Inter-High final is 22-25, 23-25 with no deuce (ch 33).
 - **Ch 1:** the red-car bit is cut, so ch 6 drops "Red car still on?".
 
 ## Canon and divergence (Oct 30, second pass)
@@ -614,8 +617,8 @@ The user's call: the fic had turned into canon with a guy on the bench. Every ch
 - Who people are: personality, voice, history, relationships.
 - The big results the user picks. Arc 2: Karasuno beats Tokonami and Date Tech, then loses to Seijoh in 3 sets. Shiratorizawa wins Miyagi.
 - A short protected list of moments that define someone else. They happen, and they stay with that person:
-  - Asahi breaking Date Tech's wall (done, ch 19).
-  - Tanaka's arc: the slump against Oikawa's serve, the self-slap, the comeback (done, ch 21), and later Inarizaki.
+  - Asahi breaking Date Tech's wall (done, ch 23).
+  - Tanaka's arc: the slump against Oikawa's serve, the self-slap, the comeback (done, ch 25), and later Inarizaki.
   - Kageyama coming back in set 2 changed by watching Suga, and asking his hitters what they want from his sets (canon, ep 22 "Evolution": "Kageyama begins to try to communicate with each of his teammates" and "tries to get a bit closer to Tsukishima").
   - Yamaguchi's pinch serve in set 3.
   - The final quick getting blocked at the end of set 3.
@@ -624,7 +627,7 @@ The user's call: the fic had turned into canon with a guy on the bench. Every ch
 **What bends**
 
 - Anything Sho touches. Scores, rally order, who scores, timeouts, what an opponent changes. If Sho is there, the match is different, and the story shows how.
-- Opponents react to Sho. Oikawa especially: he noticed Sho on day 1, and from ch 22 he plays against him.
+- Opponents react to Sho. Oikawa especially: he noticed Sho on day 1, and from ch 26 he plays against him.
 - Ukai listens to Sho. Sho says what he saw; Ukai checks and decides.
 
 **How a chapter gets built now**
@@ -644,12 +647,12 @@ Each entry is the thing under the voice: what the person wants, what hurts, what
 
 - **Wants:** to be on the court. Satoshi spent 9 years watching other people play through a monitor, rewinding their rallies at quarter speed, and died at his desk at 3:14 a.m. doing it. Sho got a second life with a body that works. Every minute on a bench feels like that room.
 - **Wound:** the knee. Satoshi trained through 3 months of knee pain at 20, told nobody, and lost it. Sho knows the lesson (twice as hard, and twice as smart) and believes it.
-- **Shadow:** the notebook. It's the analyst life, and it's useful, and it's also where he hides. Writing something down and telling nobody is exactly what Satoshi did with the knee. In ch 21 he did it with Seijoh's tells.
+- **Shadow:** the notebook. It's the analyst life, and it's useful, and it's also where he hides. Writing something down and telling nobody is exactly what Satoshi did with the knee. In ch 25 he did it with Seijoh's tells.
 - **Shamelessness, underneath:** a man who has already lost everything once has nothing left to protect. Asking for a toss costs nothing compared to dying at a desk. That's why it never looks like bravado.
 - **Cold, underneath:** he counts time like money. He knows careers end, knees go, and a 3rd year has a few months left. He sees Suga's last summer more clearly than Suga does.
 - **Never says:** anything about Satoshi. Anything about being scared of the bench.
 - **Shows it:** he's always holding something (bottles, a jacket, a towel, the notebook) when he's not playing. His hands go still when he's reading a court. When he wants something badly, he gets more polite.
-- **Arc 2 question:** will he stop watching and speak? (ch 22: yes, and he pays for it.) Arc 2 after that: was it smart, or was it the knee again?
+- **Arc 2 question:** will he stop watching and speak? (ch 26 and 27: yes, and he pays for it.) Arc 2 after that: was it smart, or was it the knee again?
 
 ### Hinata Shoyo (canon)
 
@@ -694,7 +697,7 @@ Each entry is the thing under the voice: what the person wants, what hurts, what
 
 - **Wants:** to be the ace who gets the ball and doesn't flinch.
 - **Wound:** the Date Tech wall last year. He quit for a while.
-- **Shows it:** apologizes first, holds a bottle with the cap on. Since ch 19 he stands a little straighter.
+- **Shows it:** apologizes first, holds a bottle with the cap on. Since ch 23 he stands a little straighter.
 - **Sho to him:** Satoshi stopped asking for the ball once too. Sho never told him.
 
 ### Nishinoya Yu, Tsukishima Kei, Yamaguchi Tadashi, Ennoshita Chikara (canon, short)
@@ -745,9 +748,9 @@ Each entry is the thing under the voice: what the person wants, what hurts, what
 
 ## POV chapters
 
-**User, Nov 13:** surprise POVs may now come before ch 23 too (old ch 12 becomes a Suga POV). Give each POV its own motive and a perspective the main narration can't provide.
+**User, Nov 13:** surprise POVs may now come before ch 28 too (old ch 12, now ch 14, becomes a Suga POV). Give each POV its own motive and a perspective the main narration can't provide.
 
-**User, Oct 30 (after ch 24):** no fixed schedule. POV chapters come as surprises, only when a moment really needs someone else's eyes, sprinkled along the way. Most chapters stay with Sho. Never 2 POV chapters in a row. Ch 23 (Mio) is the model.
+**User, Oct 30 (after ch 29):** no fixed schedule. POV chapters come as surprises, only when a moment really needs someone else's eyes, sprinkled along the way. Most chapters stay with Sho. Never 2 POV chapters in a row. Ch 28 (Mio) is the model.
 
 - **One character per POV chapter.** Never a group, never a rotating head-hop.
 - **Close third on that person, past tense.** Their vocabulary, their eyes, what they notice. Mio notices different things from Oikawa. Nobody narrates like Sho.
@@ -757,21 +760,22 @@ Each entry is the thing under the voice: what the person wants, what hurts, what
 - **Same rules:** pace, dialogue, no tics, no named feelings in narration, the hook at the end.
 - **Title format:** "Chapter N: <title> (<character>)".
 
-## Arc 2 outline: Inter-High prelims (ch 16 to 30, rewritten Oct 30)
+## Arc 2 outline: Inter-High prelims (ch 19 to 34, rewritten Oct 30)
 
-Ends with the Seijoh loss and the Tokyo invite. Sho's thread from ch 22: he stops watching and speaks, carries set 2 by forcing the eye inside his notebook map, and pays for it. The rest of the arc asks whether that was smart or whether it was Satoshi's knee again, and gives the family their own chapter in it.
+Ends with the Seijoh loss and the Tokyo invite. Sho's thread from ch 26 to 27: he stops watching and speaks, carries set 2 by forcing the eye inside his notebook map, and pays for it. The rest of the arc asks whether that was smart or whether it was Satoshi's knee again, and gives the family their own chapter in it.
 
 | Ch | Title | POV | What happens | Soul thread |
 | --- | --- | --- | --- | --- |
-| 16 to 21 | (written) | Sho | Tokonami, Date Tech, Seijoh set 1 | |
-| 22 | Set 2 | Sho | Set break: Sho takes his notebook to Ukai (Seijoh hears the spoken quick calls; hand signals fix it). Kageyama back, asks his hitters what they want (canon). Set 2 opens with the silent quick working. Oikawa sees where it came from. At 17-20, on Oikawa's serve run, Ukai sends Sho in for Asahi to receive. The eye fires on its own; Sho holds it inside the notebook map and keeps forcing it. He takes Oikawa's serve, hits the line past Iwaizumi using the chin trick as bait, reads Seijoh's attacks for his blockers, tools Oikawa's block at 24-23, serves at set point and digs the last ball. Daichi kills it. 25-23. Then the nosebleed, depth gone, out for the match. Mio's voice from the rail | Sho speaks instead of writing it down. Twice as hard, and was it twice as smart? |
-| 23 | The rail | Mio | From the stands: watching her brother play set 2 without knowing volleyball; the blood; Dad; wanting to go down; set 3 starts | What Mio has been afraid of since spring, and what she does about it |
-| 24 | Set 3 | Sho | On the bench, eyes half useless, hearing more than seeing. Oikawa adjusts. Yamaguchi's pinch serve. Deuce. The final quick blocked. 31-33 (canon score; Sho isn't on court for it) | Sitting behind glass again, the exact thing he swore off |
-| 25 | Tall-kun | Sho | The sink: Sho speaks first; a trade (Oikawa's look-at-the-gap tell for what Oikawa saw in Sho); Oikawa's knee brace; Iwaizumi. Eye clinic with Dad and Mio: the fly test, "4 times since April", the MRI warning. Dad: "Tell her 4." "You were good." Arrives at the team dinner | The knee, seen from outside for the 1st time |
-| 26 | Dinner | Sho | Ukai's dinner, Takeda's speech, the team crying over the food. Ukai's talk. Home: Mom, "4", and Sho's real answer to Mio | What Satoshi never had after a loss |
-| 27 | (open) | Sho or a surprise POV | The days after: 3 days off volleyball, the Wednesday clinic. Tanaka's 8th morning | |
-| 28 | Stay | Sho | Wednesday clinic with Mom: depth back, no MRI, "stop at the burning". 3rd years stay (Daichi). The notebook's new 1st page. Takeda's late message: Nekoma | What he'll do differently with the eye |
-| 29 | Invitation | Sho | Nekoma's Tokyo camp invite, and the catch: pass the exams or stay home. Mio's Saturday. End of arc 2, no status card (see "Eyes as a weapon") | |
+| 19 to 25 | (written) | Sho | Tokonami, Date Tech, Seijoh set 1 | |
+| 26 | 1 finger | Sho | Set break: Sho takes his notebook to Ukai (Seijoh hears the spoken quick calls; hand signals fix it). Kageyama back, asks his hitters what they want (canon). Set 2 opens with the silent quick working. Oikawa sees where it came from. | Sho speaks instead of writing it down. |
+| 27 | Set 2 | Sho | At 17-20, on Oikawa's serve run, Ukai sends Sho in for Asahi to receive. The eye fires on its own; Sho holds it inside the notebook map and keeps forcing it. He takes Oikawa's serve, hits the line past Iwaizumi using the chin trick as bait, reads Seijoh's attacks for his blockers, tools Oikawa's block at 24-23, serves at set point and digs the last ball. Daichi kills it. 25-23. Then the nosebleed, depth gone, out for the match. Mio's voice from the rail | Twice as hard, and was it twice as smart? |
+| 28 | The rail | Mio | From the stands: watching her brother play set 2 without knowing volleyball; the blood; Dad; wanting to go down; set 3 starts | What Mio has been afraid of since spring, and what she does about it |
+| 29 | Set 3 | Sho | On the bench, eyes half useless, hearing more than seeing. Oikawa adjusts. Yamaguchi's pinch serve. Deuce. The final quick blocked. 31-33 (canon score; Sho isn't on court for it) | Sitting behind glass again, the exact thing he swore off |
+| 30 | Tall-kun | Sho | The sink: Sho speaks first; a trade (Oikawa's look-at-the-gap tell for what Oikawa saw in Sho); Oikawa's knee brace; Iwaizumi. Eye clinic with Dad and Mio: the fly test, "4 times since April", the MRI warning. Dad: "Tell her 4." "You were good." Arrives at the team dinner | The knee, seen from outside for the 1st time |
+| 31 | Dinner | Sho | Ukai's dinner, Takeda's speech, the team crying over the food. Ukai's talk. Home: Mom, "4", and Sho's real answer to Mio | What Satoshi never had after a loss |
+| 32 | The key | Tanaka (surprise POV) | The days after: 3 days off volleyball, the Wednesday clinic. Tanaka's 8th morning | |
+| 33 | Stay | Sho | Wednesday clinic with Mom: depth back, no MRI, "stop at the burning". 3rd years stay (Daichi). The notebook's new 1st page. Takeda's late message: Nekoma | What he'll do differently with the eye |
+| 34 | Invitation | Sho | Nekoma's Tokyo camp invite, and the catch: pass the exams or stay home. Mio's Saturday. End of arc 2, no status card (see "Eyes as a weapon") | |
 
 POV chapters are not scheduled (see "POV chapters"). Use one when a moment needs it.
 
@@ -804,14 +808,14 @@ Built from 10 planning reports (science, source powers, canon, tactics, power sy
 
 | Stage | When | What it does | What it costs |
 | --- | --- | --- | --- |
-| Partial awakening | Ch 5 to 28 | Fires on its own, rarely; holding it was beyond his body (ch 22) | Burning; depth loss when held |
+| Partial awakening | Ch 5 to 33 | Fires on its own, rarely; holding it was beyond his body (ch 27) | Burning; depth loss when held |
 | **Adapting** | Arc 3, first trip to the middle of the Saitama week | Fires more often, mostly on studied players; he can hold it 2 or 3 rallies | Soreness that fades by the next morning, then by the next set |
 | **Conditioned** | End of Arc 3 (status card) | Fires most rallies he's settled and the player is studied; he can **invite** it in calm moments (between serves, on a known setter) and it often comes | Tired eyes after a long day, like tired legs. Nothing more |
 | Full awakening (Lv1) | Nationals, vs Inarizaki (unchanged) | On command, 1 player, about 0.5s ahead | As in the original ladder, now as fatigue rather than injury |
 
-- **The doctor thread closes quietly:** at a check-up before the Saitama week, the fly test is clean and the convergence numbers are better than in June. "Your eyes have adapted. Like any muscle you train." No MRI. The hand-up rule from ch 26 stays on the books and is barely used (see ch 38).
+- **The doctor thread closes quietly:** at a check-up before the Saitama week, the fly test is clean and the convergence numbers are better than in June. "Your eyes have adapted. Like any muscle you train." No MRI. The hand-up rule from ch 31 stays on the books and is barely used (see ch 43).
 - **The secret stays a secret because nobody needs to ask:** Ukai, Takeda, the team and the Tokyo coaches see reading, anticipation, reflexes. Oikawa's "strange one" becomes, to Kageyama, "he sees it early". Only Ikkei comes close, and he never names it.
-- **The 25-23 re-grab in ch 22** is the 1st sign the eye can be held; Sho knows, keeps it out of the notebook, and in Arc 3 it stops being a secret worry and becomes a skill he trains.
+- **The 25-23 re-grab in ch 27** is the 1st sign the eye can be held; Sho knows, keeps it out of the notebook, and in Arc 3 it stops being a secret worry and becomes a skill he trains.
 - **Where it helps most:** defense (a spike reaches a digger in about 0.3 s, so a blink early nearly doubles his time), then serve receive, then reading setters for his blockers and teammates. It barely changes his own attack. Early on it makes his blocking jumpy (Oikawa saw "blocks too early"); learning to wait is one of his Arc 3 growth beats.
 
 ### Meta Vision (Long-Term Strategic Scrutiny): Arc 3 substages
@@ -842,16 +846,16 @@ By Spring High prelims, Ukai has a 1st year he can put in for anyone in the back
 
 | Weapon | What it is | Debut |
 | --- | --- | --- |
-| Suzumushi | Receive and cover by sound | ch 29 to 32 |
-| Byakugan, budget | 1-look snapshot of every player before the serve | ch 31 |
-| Kagemane | Dig in his own block's shadow, behind an honest block | ch 37 (Kuroo) |
-| Hawk-Eye calls | Back-row 1-word calls ("Two!", "Short!", "Feint!"); never calls Tsukishima's blocks | ch 32 |
+| Suzumushi | Receive and cover by sound | ch 34 to 37 |
+| Byakugan, budget | 1-look snapshot of every player before the serve | ch 36 |
+| Kagemane | Dig in his own block's shadow, behind an honest block | ch 42 (Kuroo) |
+| Hawk-Eye calls | Back-row 1-word calls ("Two!", "Short!", "Feint!"); never calls Tsukishima's blocks | ch 37 |
 | Kawarimi (chin bait) | Known now (Iwaizumi, Kuroo); Tanaka owns the face lie | used up |
-| Blind Spot | Off-speed into the space the map shows empty | ch 40 |
-| Sogeking | Serve targeting | ch 36 |
-| Den Den Mushi | 3 lines to Ukai at timeouts | ch 32 |
-| **The lie** | Fake the stillness so readers send the ball where his ears and map already are | **ch 42 showcase** |
-| Kai | The switch: drop the map, take the ghost, rebuild by ear | ch 42 |
+| Blind Spot | Off-speed into the space the map shows empty | ch 45 |
+| Sogeking | Serve targeting | ch 41 |
+| Den Den Mushi | 3 lines to Ukai at timeouts | ch 37 |
+| **The lie** | Fake the stillness so readers send the ball where his ears and map already are | **ch 47 showcase** |
+| Kai | The switch: drop the map, take the ghost, rebuild by ear | ch 47 |
 
 ### Who reads Sho, and what they think it is
 
@@ -873,7 +877,7 @@ Nobody names the eye. Everybody explains it as something else:
 
 ### Training (June to August)
 
-The doctor's limits from ch 28 lift as the eyes adapt: Brock string with Dad holding the far end and Mio's beads; screens 1 hour a day (no match tape for the ex-analyst, so the map is built live); 5 a.m. eyes-shut sound reads with Tanaka (chalk scores); English with Suga on Wednesdays (traded for occlusion calls); Sunday walks with Dad. At camp, 4 to 6 sets a day on court. **Progress markers someone counts on the page:** players held in 1 look (4, then 6, then 8), Tanaka's chalk sound reads (7/10 to 9/10), Suga's occlusion calls (5/10 to 8/10), clean passes off jump serves (3/10 to 7/10), Bokuto digs a night (1, 3, 6), Akaashi's sets read (6/20, then 13/20 once he reads the hitters instead).
+The doctor's limits from ch 33 lift as the eyes adapt: Brock string with Dad holding the far end and Mio's beads; screens 1 hour a day (no match tape for the ex-analyst, so the map is built live); 5 a.m. eyes-shut sound reads with Tanaka (chalk scores); English with Suga on Wednesdays (traded for occlusion calls); Sunday walks with Dad. At camp, 4 to 6 sets a day on court. **Progress markers someone counts on the page:** players held in 1 look (4, then 6, then 8), Tanaka's chalk sound reads (7/10 to 9/10), Suga's occlusion calls (5/10 to 8/10), clean passes off jump serves (3/10 to 7/10), Bokuto digs a night (1, 3, 6), Akaashi's sets read (6/20, then 13/20 once he reads the hitters instead).
 
 ### The ace path (user direction, Oct 30: never forget)
 
@@ -908,7 +912,7 @@ The doctor's limits from ch 28 lift as the eyes adapt: Brock string with Dad hol
 - **Dad:** builds a plyo box out of scrap wood in the yard without being asked; says "Mm". **Mio:** counts reps, keeps the *REACH* page, marks his height. **Mom:** food.
 
 **Timeline.**
-- **Arc 3 (rest of it, ch 38 to 45): seed only, lightly.** Ch 38 (Ukai POV): Ukai watches his arm swing in warm-up and admits he's been using an ace as a passer with a serve; asks Takeda about a weight room. Ch 43 to 44: on the last day Sho plays wing and gets the high bad ball at least once (1 kill, 1 blocked). Ch 45 (barbecue): the aces talk (top 3 aces), Satoshi's reaction is an ace's; the new notebook's 1st page carries ace lines (reach, the knee rule, "1 more").
+- **Arc 3 (rest of it, ch 43 to 50): seed only, lightly.** Ch 43 (Ukai POV): Ukai watches his arm swing in warm-up and admits he's been using an ace as a passer with a serve; asks Takeda about a weight room. Ch 48 to 49: on the last day Sho plays wing and gets the high bad ball at least once (1 kill, 1 blocked). Ch 50 (barbecue): the aces talk (top 3 aces), Satoshi's reaction is an ace's; the new notebook's 1st page carries ace lines (reach, the knee rule, "1 more").
 - **Arc 4 (Spring High prelims):** the program on the page: weight room 3 times a week; approach and reach marks; jump float; the knee moment (tells Coach 1st); plays wing for Tanaka and Asahi more; back-row attack becomes a weapon; **the 1st "1 more"**. Power C to B by the end of Arc 4; Serve C to B.
 - **Arc 5 (Spring High nationals):** sub ace who matters; Inarizaki: the eye on command, possibly on the block.
 - **2nd year:** Karasuno's ace. Power B to A, Jump B to A.
@@ -927,38 +931,38 @@ The doctor's limits from ch 28 lift as the eyes adapt: Brock string with Dad hol
 
 Sho never gives notes on the new quick (at most: "What do you see?" "Too much."). He never calls Tsukishima's blocks. The moonrise night is Tsukishima's. Asahi's jump serve, Yamaguchi's float (Sho's is visibly worse), Hinata's Ikkei lessons, Bokuto's "use the block" lesson to Hinata, and Kuroo teaching Tsukishima stay with their owners. Canon camp losses stand except the Shinzen flip (user approved).
 
-## Arc 3 outline: Tokyo expedition and summer camp (ch 29 bridge, ch 30 to 45)
+## Arc 3 outline: Tokyo expedition and summer camp (ch 34 bridge, ch 35 to 50)
 
 Canon venues (03_canon): trip 1 is a weekend of away games at **Fukurodani Academy, Tokyo** (Hinata and Kageyama arrive late after make-up tests, driven by Saeko). Trip 2 is the week-long camp at **Shinzen High, Saitama** (bus at midnight). Camp games are single sets with flying-fall penalty dives [web, via search]. The final vs Fukurodani is a canon loss; its score is unsourced.
 
 | Ch | Title | POV | Canon | The eye and the map | What happens / hook |
 | --- | --- | --- | --- | --- | --- |
-| 29 | Invitation | Sho | 71 to 72 | Ears, eyes shut on the stage | End of Arc 2. Takeda's full message; the exam condition; Mio watches Saturday practice. No status card. Hook: Kenma read him in 4 rallies in May. What does he see now? |
-| 30 | Red pen | Sho | 72 to 73 | Rest; sound drill | Exams. Satoshi's brain makes most of it easy; his honest weak subject is Classical Japanese. Tsukishima tutors (canon); Suga's English Wednesdays |
-| 31 | Village person B | Sho | 74 to 76 | Snapshot + sound | Yachi (class 1-5, Sho's classmate) recruited by Kiyoko and Hinata (theirs). Ennoshita: "you go still" (a tell he didn't know he had) |
-| 32 | Flying falls | Sho | 76 to 79 | The eye fires on Bokuto; a little soreness, gone by the next game | Trip 1 at Fukurodani. The morning before Hinata and Kageyama arrive: Suga sets, Sho plays real minutes and gets read by Akaashi. Penalty dives; he laughs on the floor |
-| 33 | Read | **Kenma (surprise POV 1)** | 79 to 81 | Fooled by a decoy | From outside: how readable Sho is, and how much he's improved since May. Lev's arc stays Lev's. Loss to Nekoma |
-| 34 | Tape | Sho | 82 | No eye | Sho watches his own stillness tell on Yachi's camcorder. Hinata and Kageyama's fight; Tanaka breaks it up (theirs). Mio starts her own notebook |
-| 35 | Ikkei | Sho | 83 to 84 | Ruling options out, seeded | Ukai takes Sho to his grandfather on a different day from Hinata's lessons. Kageyama comes back from Oikawa: "He asked if you still squint." |
-| 36 | Saitama | Sho | 85 to 86 | The eye holds 2 rallies without soreness for the 1st time | The week at Shinzen. Doctor's check-up before leaving: "adapted, like any muscle." Begs Yaku for reps. Reception D to C. Serve targeting on Ubugawa |
-| 37 | Moonrise | Sho | 87 to 89 | **He invites the eye for the 1st time** (on Bokuto, in the 3rd gym) and it comes | Akaashi sets, Sho digs Bokuto 6 times. The moonrise night itself is Tsukishima and Yamaguchi's; Sho has left the gym before it |
-| 38 | Hand up | **Ukai (surprise POV 2)** | (fic camp game) | Ukai watches Sho's play change | Ukai sees a 1st year become an all-rounder in a week: the dig, the block that finally waits, the 2nd-ball set, the serve at the right man. Once, out of habit, Sho's hand twitches toward the rule. Ukai: "Burning?" "...No." "Then stay on." Ukai's word for it: IQ |
-| 39 | All of it | Sho | (fic) | Notebook of every Tokyo setter | Phone call: tells Mio all of it. Akaashi teaches him hands (Set E to D). Nekomata's tape: "You'd make a fine analyst." "I'd rather play." |
-| 40 | Owls and cats | Sho | 90 to 91 | Map only | 3v3 lineups untouched (canon). Hinata: "What's yours?" |
-| 41 | Four into one | Sho | (fic; flips the ch 91 Shinzen game) | Eye and map agree on Shinzen's setter | Karasuno beats Shinzen 25-23 (user approved). Sho as the all-rounder: the dig, the call, the serve; Tanaka finishes it |
-| 42 | The lie | Sho | (fic, last day game 1) | **Showcase:** the lie + ears + Half map + the eye he invites; Kai | Nekoma. He fakes the stillness Kenma learned to read and digs 2. Tanaka: "FACE LIES!" Nekomata calls a timeout for #13. Kenma switches to his feet and wins it 26-24 with a dump into the 1 spot the map ruled out. "You patched it." "Mostly." |
-| 43 | The last game | Sho | 92 to 94 | 1 rally where map and eye run together | Last day games 2 and 3: Ubugawa (brief), then the canon final vs Fukurodani. The new quick lands (theirs). Sho on court every set |
-| 44 | Last ball | Sho | 94 to 96 | Map right on Bokuto's last ball; arms not enough | Fukurodani wins (canon). Kageyama: "You were there. All 3." Penalty dives, laughing |
-| 45 | Barbecue | Sho | 96 to 98 | None | The aces talk (canon speaker unconfirmed). Little Giant: "Matsumoto. Number 5." Home: Mio, "fast-forward", magnet to January. New notebook, new 1st page. **Status card** (below). Hook into Spring High |
+| 34 | Invitation | Sho | 71 to 72 | Ears, eyes shut on the stage | End of Arc 2. Takeda's full message; the exam condition; Mio watches Saturday practice. No status card. Hook: Kenma read him in 4 rallies in May. What does he see now? |
+| 35 | Red pen | Sho | 72 to 73 | Rest; sound drill | Exams. Satoshi's brain makes most of it easy; his honest weak subject is Classical Japanese. Tsukishima tutors (canon); Suga's English Wednesdays |
+| 36 | Villager B | Sho | 74 to 76 | Snapshot + sound | Yachi (class 1-5, Sho's classmate) recruited by Kiyoko and Hinata (theirs). Ennoshita: "you go still" (a tell he didn't know he had) |
+| 37 | Flying falls | Sho | 76 to 79 | The eye fires on Bokuto; a little soreness, gone by the next game | Trip 1 at Fukurodani. The morning before Hinata and Kageyama arrive: Suga sets, Sho plays real minutes and gets read by Akaashi. Penalty dives; he laughs on the floor |
+| 38 | Read | **Kenma (surprise POV 1)** | 79 to 81 | Fooled by a decoy | From outside: how readable Sho is, and how much he's improved since May. Lev's arc stays Lev's. Loss to Nekoma |
+| 39 | Tape | Sho | 82 | No eye | Sho watches his own stillness tell on Yachi's camcorder. Hinata and Kageyama's fight; Tanaka breaks it up (theirs). Mio starts her own notebook |
+| 40 | Ikkei | Sho | 83 to 84 | Ruling options out, seeded | Ukai takes Sho to his grandfather on a different day from Hinata's lessons. Kageyama comes back from Oikawa: "He asked if you still squint." |
+| 41 | Saitama | Sho | 85 to 86 | The eye holds 2 rallies without soreness for the 1st time | The week at Shinzen. Doctor's check-up before leaving: "adapted, like any muscle." Begs Yaku for reps. Reception D to C. Serve targeting on Ubugawa |
+| 42 | Moonrise | Sho | 87 to 89 | **He invites the eye for the 1st time** (on Bokuto, in the 3rd gym) and it comes | Akaashi sets, Sho digs Bokuto 6 times. The moonrise night itself is Tsukishima and Yamaguchi's; Sho has left the gym before it |
+| 43 | Hand up | **Ukai (surprise POV 2)** | (fic camp game) | Ukai watches Sho's play change | Ukai sees a 1st year become an all-rounder in a week: the dig, the block that finally waits, the 2nd-ball set, the serve at the right man. Once, out of habit, Sho's hand twitches toward the rule. Ukai: "Burning?" "...No." "Then stay on." Ukai's word for it: IQ |
+| 44 | All of it | Sho | (fic) | Notebook of every Tokyo setter | Phone call: tells Mio all of it. Akaashi teaches him hands (Set E to D). Nekomata's tape: "You'd make a fine analyst." "I'd rather play." |
+| 45 | Owls and cats | Sho | 90 to 91 | Map only | 3v3 lineups untouched (canon). Hinata: "What's yours?" |
+| 46 | 4 into 1 | Sho | (fic; flips the ch 91 Shinzen game) | Eye and map agree on Shinzen's setter | Karasuno beats Shinzen 25-23 (user approved). Sho as the all-rounder: the dig, the call, the serve; Tanaka finishes it |
+| 47 | The lie | Sho | (fic, last day game 1) | **Showcase:** the lie + ears + Half map + the eye he invites; Kai | Nekoma. He fakes the stillness Kenma learned to read and digs 2. Tanaka: "FACE LIES!" Nekomata calls a timeout for #13. Kenma switches to his feet and wins it 26-24 with a dump into the 1 spot the map ruled out. "You patched it." "Mostly." |
+| 48 | The last game | Sho | 92 to 94 | 1 rally where map and eye run together | Last day games 2 and 3: Ubugawa (brief), then the canon final vs Fukurodani. The new quick lands (theirs). Sho on court every set |
+| 49 | Last ball | Sho | 94 to 96 | Map right on Bokuto's last ball; arms not enough | Fukurodani wins (canon). Kageyama: "You were there. All 3." Penalty dives, laughing |
+| 50 | Barbecue | Sho | 96 to 98 | None | The aces talk (canon speaker unconfirmed). Little Giant: "Matsumoto. Number 5." Home: Mio, "fast-forward", magnet to January. New notebook, new 1st page. **Status card** (below). Hook into Spring High |
 
 ### Status card plan
 
-- **Ch 29:** none (Arc 2 cost him and earned no rank).
-- **Ch 36:** Reception D to C (written; Yaku's 10). The eye's "Adapting" stage stays prose-only; the card reads Partial awakening until ch 45.
-- **Ch 39:** Set E to D.
-- **Ch 45 (end of Arc 3):** Block E to D, Serve D to C, Mentality B to A. (Power stays C at the end of Arc 3; the ace path moves it to B by the end of Arc 4: see "The ace path".) Emperor's Eye: Conditioned (trait: Elite Observational Genius). Meta Vision: Half map (trait: Long-Term Strategic Scrutiny).
+- **Ch 34:** none (Arc 2 cost him and earned no rank).
+- **Ch 41:** Reception D to C (written; Yaku's 10). The eye's "Adapting" stage stays prose-only; the card reads Partial awakening until ch 50.
+- **Ch 44:** Set E to D.
+- **Ch 50 (end of Arc 3):** Block E to D, Serve D to C, Mentality B to A. (Power stays C at the end of Arc 3; the ace path moves it to B by the end of Arc 4: see "The ace path".) Emperor's Eye: Conditioned (trait: Elite Observational Genius). Meta Vision: Half map (trait: Long-Term Strategic Scrutiny).
 
-## Arc 4 outline: Spring High Miyagi prelims (ch 46 to 67, planned Nov 12)
+## Arc 4 outline: Spring High Miyagi prelims (ch 51 to 72, planned Nov 12)
 
 Built from 10 planning reports in `planning/arc4/` (01 canon, 02 ace science, 03 tactics, 04 opponents, 05 power system, 06 soul, 07 training, 08 continuity audit, 09 divergence, 10 structure). Each chapter's full spec (wants, costs, conversations, protected moments, hook) is in `planning/arc4/10_structure.md` section 5. Where a report disagrees with this section, this section wins.
 
@@ -972,7 +976,7 @@ Built from 10 planning reports in `planning/arc4/` (01 canon, 02 ace science, 03
 ### Other decisions (structure report's picks; change them here if needed)
 
 - **Calendar:** weight room opens Mon Aug 19; 1st stage Sat Aug 31 (Ougiminami, Kakugawa); representative round Fri Oct 25 (Johzenji, Wakutani South), Sat Oct 26 (Seijoh), Sun Oct 27 (final). Sourced only by an official-timeline snippet (07); weekdays are the fic's.
-- **The jump float is Shimada's serve coming back** (Arc 1 cues, 3 jump floats in ch 17). Back in training Sep 3 with Yamaguchi there; match debut at Johzenji; proven at Wakutani set 3 (Serve C to B); absent from the Seijoh chapters (Yamaguchi's floaters are his); once in the final.
+- **The jump float is Shimada's serve coming back** (Arc 1 cues, 3 jump floats in ch 21). Back in training Sep 3 with Yamaguchi there; match debut at Johzenji; proven at Wakutani set 3 (Serve C to B); absent from the Seijoh chapters (Yamaguchi's floaters are his); once in the final.
 - **Johzenji:** Suga in for Kageyama after the nosebleed, Narita in for Hinata; Sho on the bench beside Hinata.
 - **The knee:** Thu Sep 26 (week 6), early patellar tendon pain under the left kneecap (2/10 on stairs, no swelling, no giving way), 3 days after a practice match vs Date Tech (invented) on the Sep 23 holiday that pushes his jump count to 152. Told to Ukai at the gym door before practice. Ukai: "Show me." No praise, no clinic. No jumping for a few days, Spanish squat holds, Takeda logs morning pain numbers to 0/0 in about 8 days. It never comes back.
 - **Satoshi's home is Osaka** (his college gym, arc 1 ch 1); Sendai was an away tournament.
@@ -983,18 +987,18 @@ Built from 10 planning reports in `planning/arc4/` (01 canon, 02 ace science, 03
 
 | Week | Dates | Weight | What happens | Chapter |
 | --- | --- | --- | --- | --- |
-| 1 | Mon Aug 19 to Sun Aug 25 | CW | Weight room opens; garage wall 318; Tanaka finds the room; Asahi's back; Dad's 40 box; Tanaka's pointing drill 6/10 | 46, 47 |
-| 2 | Mon Aug 26 to Sun Sep 1 | 1L, then CW | 2nd term starts Mon 26 (1L); light taper; **Sat Aug 31: Ougiminami, Kakugawa**; Sun: 318 "same" | 48, 49 |
-| 3 | Mon Sep 2 to Sun Sep 8 | CW | Jump float back (Tanaka's chalk 4/10); 10 bad balls 3/10; Sunday behind Shimada Mart | 50 |
-| 4 | Mon Sep 9 to Sun Sep 15 | **1L** | Culture festival Sat-Sun 14-15 [design, optional]; Sun: 320 | opening of 51 |
-| 5 | Mon Sep 16 (holiday) to Sun Sep 22 | CW | Landings on tape earn depth jumps; Kageyama's high ball; Asahi's feet; 321 | 51 |
-| 6 | **Mon Sep 23 (Equinox)** to Sun Sep 29 | CW x3 | Practice match vs Date Tech [invented]; jump ledger 152; **Thu Sep 26: the knee**; Fri on: Takeda's clipboard | 52, 53, 54 |
-| 7 | Mon Sep 30 to Sun Oct 6 | inside 54 | Stairs 0; approach jumps back; Dad's pencil *184. Oct.* (Tue Oct 1); clubs stop Fri Oct 4 | 54 |
-| 8 | Mon Oct 7 to Sun Oct 13 | **1L**, then CW | Midterms Tue 8 to Fri 11 (1L); Fri night Nordics on the tatami; **Sat Oct 12: Ikkei** | 55 |
-| 9 | Mon Oct 14 (Sports Day) to Sun Oct 20 | CW | High bad ball 6/10 on the whiteboard; Asahi; "That's 10. Go home."; 323 | 56 |
-| 10 | Mon Oct 21 to Thu Oct 24 | 1L, then short CW | Taper (1L); **Thu: porch light 325**; the night before | 57 |
-| Prelims | Fri Oct 25 to Sun Oct 27 | CW x9 | Johzenji, Wakutani South; Seijoh; Shiratorizawa | 58 to 66 |
-| After | Sun Oct 27 night to Mon Oct 28 | CW | Home; the magnet; Sakanoshita | 67 |
+| 1 | Mon Aug 19 to Sun Aug 25 | CW | Weight room opens; garage wall 318; Tanaka finds the room; Asahi's back; Dad's 40 box; Tanaka's pointing drill 6/10 | 51, 52 |
+| 2 | Mon Aug 26 to Sun Sep 1 | 1L, then CW | 2nd term starts Mon 26 (1L); light taper; **Sat Aug 31: Ougiminami, Kakugawa**; Sun: 318 "same" | 53, 54 |
+| 3 | Mon Sep 2 to Sun Sep 8 | CW | Jump float back (Tanaka's chalk 4/10); 10 bad balls 3/10; Sunday behind Shimada Mart | 55 |
+| 4 | Mon Sep 9 to Sun Sep 15 | **1L** | Culture festival Sat-Sun 14-15 [design, optional]; Sun: 320 | opening of 56 |
+| 5 | Mon Sep 16 (holiday) to Sun Sep 22 | CW | Landings on tape earn depth jumps; Kageyama's high ball; Asahi's feet; 321 | 56 |
+| 6 | **Mon Sep 23 (Equinox)** to Sun Sep 29 | CW x3 | Practice match vs Date Tech [invented]; jump ledger 152; **Thu Sep 26: the knee**; Fri on: Takeda's clipboard | 57, 58, 59 |
+| 7 | Mon Sep 30 to Sun Oct 6 | inside 59 | Stairs 0; approach jumps back; Dad's pencil *184. Oct.* (Tue Oct 1); clubs stop Fri Oct 4 | 59 |
+| 8 | Mon Oct 7 to Sun Oct 13 | **1L**, then CW | Midterms Tue 8 to Fri 11 (1L); Fri night Nordics on the tatami; **Sat Oct 12: Ikkei** | 60 |
+| 9 | Mon Oct 14 (Sports Day) to Sun Oct 20 | CW | High bad ball 6/10 on the whiteboard; Asahi; "That's 10. Go home."; 323 | 61 |
+| 10 | Mon Oct 21 to Thu Oct 24 | 1L, then short CW | Taper (1L); **Thu: porch light 325**; the night before | 62 |
+| Prelims | Fri Oct 25 to Sun Oct 27 | CW x9 | Johzenji, Wakutani South; Seijoh; Shiratorizawa | 63 to 71 |
+| After | Sun Oct 27 night to Mon Oct 28 | CW | Home; the magnet; Sakanoshita | 72 |
 
 ### Sho's minutes (all under the sub rules)
 
@@ -1022,52 +1026,52 @@ Tanaka starts every match. Sho starts only 2 sets, both for a reason a reader ca
 
 | Ch | Title | POV | Date | Canon | Eye / map | Ace beat | Card |
 | --- | --- | --- | --- | --- | --- | --- | --- |
-| 46 | Shoes you don't care about | Sho | Mon Aug 19 | gap after ch 97 to 98 | None | The room; goblet 10 kg; 318 | |
-| 47 | The light was on | Sho | Wed Aug 21 to Sat Aug 24 | gap | Map: Tanaka's pointing drill 6/10 | Tanaka's numbers; Asahi's bad balls; the 40 box | |
-| 48 | Group 4 | Sho | Sat Aug 31 a.m. | 99 to 101, Ougiminami | 1 invited, thin; **Field map forms (Kagura Shingan)** | His 1st official full set; 1 OOS kill | **1** |
-| 49 | Nobody measured it | Sho | Sat Aug 31 p.m. to Sun Sep 1 | 102 to 104, Kakugawa | 0 to 1 noisy ghost; map on the block's shape; Shunpo | Stuffed by 2 m; high hands; **the tipped bad ball** | |
-| 50 | Behind Shimada Mart | Sho | Tue Sep 3 to Sun Sep 8 | gap | None | Jump float back, 4/10; bad balls 3/10 | |
-| 51 | Land it | Sho | Mon Sep 16 to Sun Sep 22 | gap | None (Yachi's tape: the head tilt) | Landings 10/10; the high back-row ball; 321 | |
-| 52 | Tanaka starts | Sho | Mon Sep 23 | gap (fic practice match) | Map vs a read block | High hands vs Aone; ledger 152 | |
-| 53 | Before practice | Sho | Thu Sep 26 | gap | None | **The knee**, told before practice | |
-| 54 | Clipboard | **Takeda** | Fri Sep 27 to Fri Oct 4 | gap | None | The log; numbers to 0; squat held at 40 | |
-| 55 | Ikkei | Sho | Fri Oct 11 to Sat Oct 12 | gap | Map vs 15 children | Nordic to the floor; Ikkei says "ace" | |
-| 56 | 10 bad balls | Sho | Mon Oct 14 to Sun Oct 20 | gap | Field map snapshot on the penultimate step | **6/10 on the whiteboard**; "That's 10. Go home."; 323 | |
-| 57 | Porch light | Sho | Thu Oct 24 | gap | None (20 min of tape, shut at 9) | 325 | |
-| 58 | Playground | Sho | Fri Oct 25 a.m. | ~108 to 115, Johzenji | 1 doubled ghost, wrong; the freeze costs a point | **Jump float debut (Mirage Tempo)**; pipe late, then in; he laughs | |
-| 59 | Ennoshita's set | Sho | Fri Oct 25 p.m. | ~116 to 125, Wakutani South | 0; map on where tools go | 4-serve run; **swings at the bad ball (Getsuga)** | **2** |
-| 60 | Tall-kun | Sho | Sat Oct 26 a.m., set 1 | ~126 to 148, Seijoh | 1 on Oikawa, late | Passes Oikawa; aced by his own tell | |
-| 61 | The hand stays there | Sho | Seijoh set 2 | | Map vs Iwaizumi's promise | Chin bait once; stuffed at 21-21 | |
-| 62 | 1 more | Sho | Seijoh set 3, evening | | 1 on Kyoutani, noisy | **"KAGEYAMA! 1 MORE!"** | |
-| 63 | The magnet | **Mio** | Sun Oct 27, sets 1 and 2 | ~149 to 190, final | Seen only as behavior, from the stands | REACH page: *USHIJIMA?* at the arrow | |
-| 64 | Guess | Sho | Final set 3 | | Invited on Shirabu, 3 good ones; "Not him!"; Kage Bunshin | His full set vs Tendou; stuffed by Ushijima | |
-| 65 | Arms | Sho | Final set 4 | | Mid-rally ask, late | "Again?" "Yes." Through Ohira's hands | |
-| 66 | 21-19 | Sho | Final set 5 | | 1, on its own, no lead; Tekkai | Jump float; the dig holds | |
-| 67 | January | Sho | Sun Oct 27 night to Mon Oct 28 | (Arc 5 opens) | Mio's columns 3, 1, 1 | *Arms* half ticked; *5.* | **3** |
+| 51 | Shoes you don't care about | Sho | Mon Aug 19 | gap after ch 97 to 98 | None | The room; goblet 10 kg; 318 | |
+| 52 | The light was on | Sho | Wed Aug 21 to Sat Aug 24 | gap | Map: Tanaka's pointing drill 6/10 | Tanaka's numbers; Asahi's bad balls; the 40 box | |
+| 53 | Group 4 | Sho | Sat Aug 31 a.m. | 99 to 101, Ougiminami | 1 invited, thin; **Field map forms (Kagura Shingan)** | His 1st official full set; 1 OOS kill | **1** |
+| 54 | Nobody measured it | Sho | Sat Aug 31 p.m. to Sun Sep 1 | 102 to 104, Kakugawa | 0 to 1 noisy ghost; map on the block's shape; Shunpo | Stuffed by 2 m; high hands; **the tipped bad ball** | |
+| 55 | Behind Shimada Mart | Sho | Tue Sep 3 to Sun Sep 8 | gap | None | Jump float back, 4/10; bad balls 3/10 | |
+| 56 | Land it | Sho | Mon Sep 16 to Sun Sep 22 | gap | None (Yachi's tape: the head tilt) | Landings 10/10; the high back-row ball; 321 | |
+| 57 | Tanaka starts | Sho | Mon Sep 23 | gap (fic practice match) | Map vs a read block | High hands vs Aone; ledger 152 | |
+| 58 | Before practice | Sho | Thu Sep 26 | gap | None | **The knee**, told before practice | |
+| 59 | Clipboard | **Takeda** | Fri Sep 27 to Fri Oct 4 | gap | None | The log; numbers to 0; squat held at 40 | |
+| 60 | Ikkei | Sho | Fri Oct 11 to Sat Oct 12 | gap | Map vs 15 children | Nordic to the floor; Ikkei says "ace" | |
+| 61 | 10 bad balls | Sho | Mon Oct 14 to Sun Oct 20 | gap | Field map snapshot on the penultimate step | **6/10 on the whiteboard**; "That's 10. Go home."; 323 | |
+| 62 | Porch light | Sho | Thu Oct 24 | gap | None (20 min of tape, shut at 9) | 325 | |
+| 63 | Playground | Sho | Fri Oct 25 a.m. | ~108 to 115, Johzenji | 1 doubled ghost, wrong; the freeze costs a point | **Jump float debut (Mirage Tempo)**; pipe late, then in; he laughs | |
+| 64 | Ennoshita's set | Sho | Fri Oct 25 p.m. | ~116 to 125, Wakutani South | 0; map on where tools go | 4-serve run; **swings at the bad ball (Getsuga)** | **2** |
+| 65 | Tall-kun | Sho | Sat Oct 26 a.m., set 1 | ~126 to 148, Seijoh | 1 on Oikawa, late | Passes Oikawa; aced by his own tell | |
+| 66 | The hand stays there | Sho | Seijoh set 2 | | Map vs Iwaizumi's promise | Chin bait once; stuffed at 21-21 | |
+| 67 | 1 more | Sho | Seijoh set 3, evening | | 1 on Kyoutani, noisy | **"KAGEYAMA! 1 MORE!"** | |
+| 68 | The magnet | **Mio** | Sun Oct 27, sets 1 and 2 | ~149 to 190, final | Seen only as behavior, from the stands | REACH page: *USHIJIMA?* at the arrow | |
+| 69 | Guess | Sho | Final set 3 | | Invited on Shirabu, 3 good ones; "Not him!"; Kage Bunshin | His full set vs Tendou; stuffed by Ushijima | |
+| 70 | Arms | Sho | Final set 4 | | Mid-rally ask, late | "Again?" "Yes." Through Ohira's hands | |
+| 71 | 21-19 | Sho | Final set 5 | | 1, on its own, no lead; Tekkai | Jump float; the dig holds | |
+| 72 | January | Sho | Sun Oct 27 night to Mon Oct 28 | (Arc 5 opens) | Mio's columns 3, 1, 1 | *Arms* half ticked; *5.* | **3** |
 
 ### Power rules for Arc 4 (from 05)
 
 - The Conditioned eye: about 1 blink ahead, 1 player, hitters and setters only, never where the ball goes after contact. Comes on its own mostly on defense and receive when he's settled and the player is studied; invited only in dead time between rallies, except once in the final (mid-rally, and it comes too late).
 - It never hurts. In a long match its cost is time: the ghost arrives later and thinner (final: a full blink in set 3, thin by set 4, almost no lead in set 5). No lead numbers in prose.
-- **Field map Lv1 forms at Ougiminami** (ch 48): both sides of the net from above, updated every touch, the present only (predicting is Lv2). It freezes while the eye fires; it shrinks back to Half map when he's tired (his own side goes first).
+- **Field map Lv1 forms at Ougiminami** (ch 53): both sides of the net from above, updated every touch, the present only (predicting is Lv2). It freezes while the eye fires; it shrinks back to Half map when he's tired (his own side goes first).
 - The eye loses on the page in every match after Ougiminami. If a draft has the eye winning a big point, rewrite it so the arms win.
-- Weapons (private names, each used once in prose): Kagura Shingan (Field map, ch 48), Shunpo (dig into a full approach, ch 49), Mirage Tempo (his jump float, ch 58), Getsuga (back-row attack, ch 59), Kage Bunshin (same approach for line and cross, ch 64), Tekkai (the platform that holds, ch 66). The "1 more", the knee and the bad ball never get names.
+- Weapons (private names, each used once in prose): Kagura Shingan (Field map, ch 53), Shunpo (dig into a full approach, ch 54), Mirage Tempo (his jump float, ch 63), Getsuga (back-row attack, ch 64), Kage Bunshin (same approach for line and cross, ch 69), Tekkai (the platform that holds, ch 71). The "1 more", the knee and the bad ball never get names.
 
 ### Status cards
 
-- **Ch 48:** Meta Vision Half map to Field map (Lv1).
-- **Ch 59:** Serve C to B; height 183 to 184 (Dad's pencil, Oct 1).
-- **Ch 67 (end of Arc 4):** Power C to B. Everything else stays (the eye stays Conditioned for Inarizaki; Jump B; Reception C; Block D; Set D; Mentality A). No card for the knee.
+- **Ch 53:** Meta Vision Half map to Field map (Lv1).
+- **Ch 64:** Serve C to B; height 183 to 184 (Dad's pencil, Oct 1).
+- **Ch 72 (end of Arc 4):** Power C to B. Everything else stays (the eye stays Conditioned for Inarizaki; Jump B; Reception C; Block D; Set D; Mentality A). No card for the knee.
 
 ### POV chapters
 
-- **Ch 54 Takeda** (the knee week as numbers on a clipboard, while he hunts for Shiratorizawa tape) and **ch 63 Mio** (final sets 1 and 2 from the stands, Sho on the bench, the magnet in her pocket). 9 chapters apart, never adjacent.
+- **Ch 59 Takeda** (the knee week as numbers on a clipboard, while he hunts for Shiratorizawa tape) and **ch 68 Mio** (final sets 1 and 2 from the stands, Sho on the bench, the magnet in her pocket). 9 chapters apart, never adjacent.
 
 ### Guardrails for Arc 4
 
 - Protected moments stay with their owners: Hinata's block-out on Hyakuzawa; Kageyama's nosebleed and the Suga/Narita stint; Ennoshita's leadership at Wakutani; Kyoutani's debut; Yamaguchi's floaters vs Seijoh; Kageyama and Oikawa's setter story and Oikawa's last match; Tsukishima's Ushijima blocks and his injury; Hinata vs Ushijima; Asahi vs Ushijima; the last ball of every match.
 - Sho's attack efficiency never beats Asahi's. Every point Sho helps win costs something in the same match. Tanaka gets his own answer every time Sho comes off.
-- Never say aloud: Satoshi, Matsumoto (used once, in ch 45), the ACL, any link between "1 more" and Asahi's line, "fast-forward" against rewind, why Dad builds the boxes, anything about hands.
+- Never say aloud: Satoshi, Matsumoto (used once, in ch 50), the ACL, any link between "1 more" and Asahi's line, "fast-forward" against rewind, why Dad builds the boxes, anything about hands.
 
 ## Dialogue playbook (rewritten Oct 30)
  
