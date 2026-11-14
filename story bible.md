@@ -64,8 +64,9 @@ HARD RULES
 9. Every chapter carries the soul of its characters (see "Soul
    sheet"). Each chapter ends on something a reader wants answered,
    and that question comes out of a character's soul.
-10. After ch 27, POV chapters from other characters are sprinkled
-   between Sho's chapters, one character each (see "POV chapters").
+10. POV chapters from other characters are sprinkled between Sho's
+   chapters as surprises, 1 character each, never 2 in a row (see
+   "POV chapters"; the 1st is ch 14, Suga).
  
 CHAPTER FORMAT
 - As long as the chapter needs. Slow pace: every rally that matters is
