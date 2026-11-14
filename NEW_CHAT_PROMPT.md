@@ -15,15 +15,15 @@ Read these files before you write anything:
 - `planning/arc3/`, for the canon notes (03_canon.md) and the training notes (08_training.md).
 
 ## Where we are
-Arc 3 (the Tokyo trip and the Shinzen summer camp) is written up to ch 43 "The last game". It ends at 1 set all against Fukurodani in the camp final. Karasuno has just won set 2, 25-23, on Sho's out-of-system kill, after Hinata turned decoy for him.
+Arc 3 (the Tokyo trip and the Shinzen summer camp) is written up to ch 48 "The last game". It ends at 1 set all against Fukurodani in the camp final. Karasuno has just won set 2, 25-23, on Sho's out-of-system kill, after Hinata turned decoy for him.
 
-Next is ch 44 "Last ball":
+Next is ch 49 "Last ball":
 - Set 3 goes to Fukurodani, as in canon.
 - Sho's map is right on Bokuto's last ball, but his arms aren't enough.
 - Kageyama says: "You were there. All 3."
 - Then the penalty.
 
-After that comes ch 45 "Barbecue", the end of Arc 3:
+After that comes ch 50 "Barbecue", the end of Arc 3:
 - The aces talk.
 - The Little Giant line, used once: "Matsumoto. Number 5."
 - Mio names the eye "fast-forward" and moves her magnet to January.
@@ -44,7 +44,7 @@ Chapters are slow and stretched out, but they must never lag. Every scene earns 
 - Sho never gives notes on the new quick and never calls Tsukishima's blocks.
 - Sho is an ACE (outside hitter) being built. Receive, defense and the eye are the all-rounder layer of an ace, never the goal. Put at least 1 line of the ace in every chapter. The strength and ace program starts after camp (Arc 4). See "The ace path".
 - The eye (Emperor's Eye) is pure talent and NOT a debuff. It adapts like a muscle. Nobody treats it as shocking, Sho never announces it, and it shows only through his play. Ukai calls it "IQ". The eye shows the hitter or setter, never where the ball lands after contact. Sho can now invite it in calm moments, and it sometimes comes on its own.
-- POV chapters come only when needed, 1 character each, and never 2 in a row. Ukai (ch 38) was the last one.
+- POV chapters come only when needed, 1 character each, and never 2 in a row. Ukai (ch 43) was the last one.
 - Never explain the hand symbolism, the Satoshi parallels or the Hinata mirror in prose.
 - No tears from Sho in Arc 3.
 
@@ -77,8 +77,8 @@ Chapters are slow and stretched out, but they must never lag. Every scene earns 
 7. Update the "Next" line in `handofff.md`.
 8. Commit with the attribution lines and push.
 
-Ch 41, 42 and 43 went out without the reviewer pass. Run a review on them first and fix anything real.
+Ch 46, 47 and 48 went out without the reviewer pass. Run a review on them first and fix anything real.
 
 Reply to me in plain, short, direct English. Check your own grammar. Don't paste back long summaries of what you wrote.
 
-Start by reading the files, then write ch 44.
+Start by reading the files, then write ch 49.
