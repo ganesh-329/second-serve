@@ -5758,49 +5758,143 @@ Ukai's pencil stopped. His eyes went along the Karasuno side, and stopped, and h
 
 ## Chapter 13: Neighborhood
 
-The Neighborhood Association changed in the club room, and they came out looking exactly like what they were: guys who'd worked all day.
+Ukai wrote the Karasuno lineup standing at the sideline with the clipboard against his chest, fast, the way you'd write a shopping list.
 
-One was thin, with glasses and black hair, and he was still wearing a polo shirt with SHIMADA MART stitched on the chest. The second had dyed blond hair and an easy grin and kept calling Ukai "Kei-chan" to watch him suffer. The third was quieter and broad through the shoulders. A 4th was stretching against the wall with a groan that sounded like a door hinge.
+Then he looked at it, and crossed 1 name out with a line of pencil, and wrote another over it.
 
-"I did inventory all day," the one in the polo announced to the gym. "So go easy on me, kids."
+"Yamaguchi, you sit," he said. "Kiyose, you're on. Left side."
 
-"Shimada-san," Tanaka told the first years, in a respectful whisper. "And that's Takinoue-san. They were on the team. Like, back when."
+Yamaguchi was standing right next to Sho when he said it. He'd been stretching his arms across his chest. He stopped, and his face did a small quick thing, and then it was over, and he nodded.
 
-Sho did the math. They had to be around 26. That made them 3 years younger than Satoshi had been when he died.
+"Okay," he said.
 
-Kids, he thought, and almost said Shimada-kun out loud.
+He looked across the gym at Tsukishima, who was already on the court with his back to them. Then he went to the bench and sat down next to Ennoshita, and took his jacket off the back of the bench and spread it over his knees, and smoothed it flat with both hands. Then he looked up at Sho, who hadn't moved.
 
-Ukai stood on the sideline in his tracksuit with his arms folded and the unlit cigarette behind his ear. He'd told them he needed a setter. Sugawara had walked over to their side of the net, and Ukai had looked at Sugawara, then at the court, and stayed where he was.
+"Do your best, Kiyose," said Yamaguchi.
 
-"Suga sets," he said. "I watch. I've seen enough of these idiots play to last me."
+Sho stood there with nothing to say back. He bowed to him, and turned to go out onto the court.
 
-"Rude, Kei-chan," said Takinoue.
+On the bench, Ennoshita had his towel on his knees again and his bottle at his feet. He looked up at Sho as Sho went past.
 
-On the Karasuno side, Yamaguchi had been on the starting list until Ukai crossed his name out and wrote Kiyose instead. Yamaguchi took it with a small, quick nod, and sat down on the bench next to Ennoshita, and when Sho passed him on the way to the net, he said, "Do your best, Kiyose," and meant it, which was almost worse.
+"Left side," he said.
 
-Sho bowed to him. Then he went to his spot.
+"Yes, senpai."
 
-Across the net, Asahi stood in the back row in a borrowed practice shirt that was too tight across the shoulders, and looked at the floor.
+"Mm." Ennoshita looked at the far side of the net, at Asahi in the too-tight shirt. "Warm your hands up. He hits heavy."
 
-Nishinoya stood behind him. Low, ready, his eyes on the back of Asahi's head.
+---
+
+The Neighborhood Association had changed in the club room, and they came out looking like what they were: men who'd worked all day.
+
+1 was thin, with glasses and black hair, and still wearing a polo shirt with SHIMADA MART stitched on the chest. 1 had dyed blond hair and an easy grin. 1 was quiet and broad through the shoulders. A 4th was stretching against the wall with a groan.
+
+"Kei-chan!" said the blond 1, to Ukai. "Look at you! You look like a coach!"
+
+Ukai looked at the ceiling.
+
+"I did inventory all day," the 1 in the polo told the gym. "So go easy on me, kids."
+
+"Shimada-san," Tanaka whispered to the 1st years. "And that's Takinoue-san. And Uchizawa-san. They were on the team. Back when."
+
+Sho did the sum. Somewhere around 26, most of them. A couple of years younger than Satoshi had been at his desk at 3:14 in the morning.
+
+*Kids,* he thought, and nearly called the 1 in the polo Shimada-kun out loud.
+
+Sugawara stood on their side of the net in a borrowed bib with his hands loose at his sides, flexing his fingers. Asahi stood in the back row in the borrowed practice shirt, and looked at the floor. Nishinoya stood beside him, low and ready.
 
 "Onegaishimasu!"
 
 ---
 
-The first point went to Sugawara.
+The 4th alumnus served 1st, a float that came in flat and dropped toward Tanaka. Tanaka passed it. Kageyama came running in from the back row and set Sho on the left, high and wide.
 
-The Neighborhood side passed the serve, a little ugly, and Sugawara went under it, and for one moment Sho saw his hands go still. Then Takinoue came running in for a quick, and Sugawara put the ball right where he needed it, soft and fast and accurate, and Takinoue hit it into the floor between Tsukishima and Hinata.
+Sho's legs had been through 2 hours of Ukai already, and a reach test. He went up into what they had. It was enough to see over the net. He hit a hard cross, flat, at the deep corner, the best ball he had.
 
-Hinata stared at Sugawara like he'd seen a ghost. "Suga-san can do that?"
+Nishinoya was already there. *Thup.* The ball went up soft and floated down to Sugawara.
 
-"He's a real setter," Daichi said, and there was something in his voice that sounded a lot like pride.
+"Too honest, Kiyose!" Nishinoya yelled, grinning.
 
-On the other side of the net, Nishinoya slapped Sugawara on the back. "Suga-san! That was cool!"
+Sugawara got under the ball. His hands were still at the top for half a beat, and then Takinoue came running in for a quick, and Sugawara put the ball right where he needed it, soft and fast, and Takinoue hit it into the floor between Tsukishima and Hinata.
 
-Sugawara laughed. Sho, watching, saw that he was also looking, very briefly, at the back of Asahi's head.
+0-1.
 
-Then Kageyama set Hinata, eyes shut, the ball hitting the floor between Takinoue's feet before Takinoue had even bent his knees, and the gym went quiet in the good way.
+Hinata stared across the net. "Suga-san can do THAT?"
+
+"He's a real setter," said Daichi, from the net.
+
+On the other side, Nishinoya slapped Sugawara on the back. "Suga-san! That was cool!"
+
+Sugawara laughed. Sho, walking back to his spot, saw him look at the back of Asahi's head, and away.
+
+The next rally went to them too, and Sho spent it watching Nishinoya.
+
+The 4th alumnus served again. Daichi passed. Kageyama set Daichi on the right this time, and Daichi hit a hard cross, and Nishinoya was moving before Daichi's hand came through, 1 long step to his left, and then a little shuffle back half a step when the ball came off the hand straighter than he'd guessed. The ball came off his forearms up to Sugawara. Sugawara set Takinoue's quick again, and Sho went up beside Tsukishima to block it, and his fingers only got to the top of the tape. The ball went off his fingertips and down into the gap behind Hinata.
+
+0-2.
+
+Sho landed on both feet and looked at his hands. At 4 o'clock that afternoon, those fingertips would have been over the net.
+
+He'd seen it twice now, though. Nishinoya's step, and then the fix.
+
+Nishinoya moved 1st. That was the whole of what he'd taught Sho on Wednesday: you don't wait to be sure, you just go. So when a hitter's arm came back, Nishinoya read it and took 1 big step toward where the ball should go, and corrected on the way.
+
+Which meant that for a fraction of a beat, the short middle he'd just left was empty.
+
+At 0-2, Tanaka passed again, and Kageyama set Sho on the left again, the same high ball. Sho went up and swung his whole arm through as if he were going to hit the same hard cross. He watched Nishinoya's weight go. At the last instant he turned his wrist over and rolled the ball, soft and short, over the block and into the space Nishinoya had just stepped out of.
+
+Nishinoya twisted and lunged and missed it by a hand.
+
+1-2.
+
+Nishinoya lay on the floor. Then he slapped the boards with both palms.
+
+"WHO taught you THAT?"
+
+He sat up, and pointed at Sho, and stopped with his finger in the air.
+
+"...ME?!" he said. "I taught you that! That's MY step!"
+
+"Yes, senpai."
+
+Nishinoya laughed, a huge laugh that went round the roof, and got up, and went back to his spot beside Asahi. The next time he got ready, Sho saw, his 1st step was a little smaller.
+
+---
+
+Tsukishima served the next 1 into the middle, and the Neighborhood side passed it, and Takinoue sided out off the block. 1-3.
+
+At 1-3, with Uchizawa serving, Kageyama set Sho on the left again, and Sho tried it again. The big swing, the late turn of the wrist, the soft roll into the short middle.
+
+Nishinoya's step had got smaller. He took it, and stopped, and was right there under the roll with his arms out, and the ball went up off them, and he was laughing before it reached Sugawara.
+
+"NOT TWICE!"
+
+Sugawara set Takinoue, and Takinoue put it down. 1-4.
+
+Uchizawa served again, and Sho got another ball. Daichi passed, Kageyama set him on the left, and across the net Shimada and Sugawara came up to block him, Shimada on the outside, late, with his hands held stiff like a man who hadn't blocked anybody in a few years. His outside hand was turned in toward the court.
+
+Sho had swung at a lot of hands in 2 lives. He hit at that 1. The ball went off the outside of Shimada's fingers and away past the antenna into the wall.
+
+2-4.
+
+"OW," said Shimada, shaking his hand. "Kids these days."
+
+Kageyama walked past Sho on the way back to his spot. "That set was for the line."
+
+"His outside hand was turned in," said Sho.
+
+Kageyama frowned across the net at Shimada's hands, as if they'd done something rude.
+
+"...Hn," he said.
+
+---
+
+At 2-4, Sho served. It was a plain float that Shimada passed with a grunt, and Sugawara set Takinoue, and Daichi dug Takinoue's hit up off the floor, and Kageyama got under it at the net.
+
+Hinata was already in the air. Eyes shut. The ball came out of Kageyama's hands flat and fast and met his palm, and went into the floor between Takinoue's feet before Takinoue had straightened his knees.
+
+3-4.
+
+The gym went quiet in the good way.
 
 Takinoue looked at the floor. Then at Shimada.
 
@@ -5810,213 +5904,234 @@ Takinoue looked at the floor. Then at Shimada.
 
 On the sideline, Ukai had uncrossed his arms again.
 
-And in the back row on the Neighborhood side, Sho saw Asahi watching Hinata. He watched Hinata land, and whoop, and spin around to Kageyama. He watched for a long time, and his face did something Sho couldn't read from 9 meters away.
+In the back row on the Neighborhood side, Asahi was watching Hinata. He watched him land, and whoop, and spin round to Kageyama with both fists up. He watched for so long that Nishinoya had to say his name twice to get him back into position.
 
-Sho filed it.
+Sho served again, and the Neighborhood side sided out on a tip from Takinoue that dropped behind Hinata. 3-5.
+
+Sugawara went back to serve. Asahi came round to the front row on the left.
+
+Sugawara served at Sho on purpose. Sho saw the decision in the toss. A float, nothing special, aimed at the seam between Sho and Daichi. A week ago it would have gone off his arm into the stage.
+
+*Shu.* He was down on the invisible chair before the ball had crossed the net, guessing, a little wrong. A half step left to fix it. *Don.* A short shove, arms still, and the ball went up clean and dropped to Kageyama.
+
+At the edge of his eye, Sho saw Sugawara's right hand come up off his thigh, a couple of centimeters, almost a wave, and go down again.
+
+Kageyama set Hinata. Nishinoya dug the quick, somehow, flat on the floor, and the ball went up, and Sugawara ran in from the end line and got under it and set Asahi.
+
+It was a good set. High and outside on the left, where an ace wants it. Asahi came in on his approach, and he was big, and he was fast, and he was beautiful to watch for 3 steps.
+
+On the 4th, he slowed down.
+
+It was tiny. A hitch on the last step, the speed going out of his legs as if he'd changed his mind halfway. His arm came up short. And at the top, his hand opened before it got to the ball.
+
+Sho had watched a hitch like that on tape 1,000 times. He knew what came out of the end of it before Asahi's hand touched the ball.
+
+"TIP! SHORT!" he called, loud enough for the whole gym.
+
+Asahi tipped. Daichi was already moving. He scooped it up a meter behind the block, and Kageyama ran under it and set Hinata again, and this time Hinata's quick went into the floor before anybody on the other side had moved.
+
+4-5.
+
+On the sideline, Ukai said, "Oi. Kiyose."
+
+"Yes, Coach."
+
+"How'd you know that?"
+
+"His last step slowed down," said Sho. "And his arm was short. And his hand opened early."
+
+Ukai looked at him. Then he looked across the net at Asahi, and kept looking at him, with his arms folded and the cigarette still behind his ear.
 
 ---
 
-Asahi's first attack came at 2-3.
+The ball from Hinata's quick had rolled to the net post on the other side. Sho went to get it.
 
-It was a good set. Sugawara put it high and outside on the left, where an ace wants it, and Asahi came in on his approach, and he was big, and he was fast, and he was beautiful to watch for exactly 3 steps.
+Asahi got there 1st. He bent down and picked it up, and straightened, and they were standing a meter apart with the net between them, and Asahi was holding the ball.
 
-On the 4th step, he slowed down.
+"...You called it," Asahi said.
 
-It was tiny. A hitch on the last step, the speed draining out of his legs like he'd changed his mind halfway through. His arm swing came up short. And at the top, his hand opened before it reached the ball.
+"Yes, senpai."
 
-Sho saw all of it. Satoshi's brain flagged it before the ball had even left Sugawara's fingers, because Satoshi had done that exact thing, that exact hitch on the last step, about 300 times in the 2 months before his knee went.
+Asahi's eyes went to Sho's face, and down to the ball, and back to Sho's face. He turned the ball over once in his big hands.
 
-He didn't think about it. He called it.
+"Um," he said. "Sorry. It was a... bad 1."
 
-"Tip! Short!"
+He held it out under the net. Sho took it. He couldn't think of anything to say that wasn't worse than nothing, so he bowed, a little, with the ball against his chest.
 
-Asahi tipped. Daichi was already moving. He scooped it up a meter behind the block, and Kageyama set Tanaka, and Tanaka buried it.
+"Asahi," said Sugawara, from the end line. "Your spot."
 
-3-3.
-
-Sho landed and didn't look at Asahi. He shook out his hands and put them back up.
-
-On the sideline, Ukai said, to no one, "Oi. Kiyose. How'd you know that?"
-
-"He told me," Sho said.
-
-Ukai squinted at him. Then at Asahi. Then he looked at Asahi for a long time, and didn't say anything else.
+Asahi went.
 
 ---
 
-Asahi tipped the next one too.
+Daichi was still walking back to serve when Tanaka came back from the net and took Sho by the front of the shirt, hard enough to mean it.
 
-This time Tsukishima called it. "Tip." Quiet, bored, a half-beat before Sho opened his mouth. He didn't look over. Sho didn't say anything about it. Daichi dug it.
-
-When they reset, Tsukishima glanced sideways at him.
-
-"You jump like it's personal."
-
-"Everything's personal," said Sho. "I'm extremely petty."
-
-Tsukishima looked away. The corner of his mouth moved, maybe.
-
-Across the net, Tanaka was shouting. Not at his own team. At the other one.
-
-"ASAHI-SAN! Keep asking for it! You're the ACE! KEEP ASKING FOR THE BALL!"
-
-Daichi, beside him, didn't tell him to stop.
-
-On the dead ball, Tanaka turned and grabbed Sho by the front of the shirt, just hard enough to mean it.
-
-"You," he said, low. "You called his tip. Out loud."
+"You," he said, low. "You called his tip. Out loud. In front of everybody."
 
 "Yes, senpai."
 
 "Why'd you do that?"
 
-Sho looked at him. "Because if I go easy, he'll know."
+Sho looked down at him.
 
-Tanaka held onto his shirt for another second. Then he let go.
+"Because if I go easy," he said, "he'll know."
+
+"Know what?"
+
+"That we think he's going to break." Sho stopped. It sounded worse out loud. "That we're all being careful with him. He'd know. If we let it through, he'd know why."
+
+Tanaka held onto his shirt. His jaw was working.
+
+"He's my senpai," he said. "He stayed late for me. Every day. When I was nothing."
+
+"I know."
+
+"You don't know anything. You've been here 2 weeks."
+
+"Yes, senpai."
+
+Tanaka looked at him a beat longer. He let go of the shirt, and smoothed the front of it flat with 1 hand, once, rough.
 
 "...Then block him harder," Tanaka said. "Damn it."
 
----
+Daichi had stopped at the end line with the ball. He'd heard all of it.
 
-Sho tried to hit through Nishinoya once and learned his lesson.
+"Kiyose," he said. "Next time you see it, call it."
 
-Kageyama set him on the right side, and Sho went up with his left foot pointed straight for once, and hit a sharp cross, hard, at the back corner.
+Tanaka turned his head. "Daichi-san..."
 
-Nishinoya was already there. He'd been there before Sho's hand touched the ball. Thup.
+Daichi bounced the ball, once, and looked at the net.
 
-"Too honest, Sho!" Nishinoya yelled, grinning, while Suga set Shimada to finish the rally on the other side.
+Hinata had drifted over from the net. He looked at Tanaka's back, and at Sho, with his eyebrows pulled together.
 
-"I was testing your eyesight, senpai."
+"Kiyose," he said. "Are you being mean to Asahi-san?"
 
-"My eyesight is PERFECT!"
+"I don't know," said Sho. It was true.
 
-Sho took 2 more rallies to set it up.
+Hinata thought about that. Then he looked across the net at Asahi, the way he'd looked at him on the stairs, as if Asahi were still the ace he'd come to see.
 
-He watched Nishinoya instead of the ball. Noya moved first. That was the whole lesson, the first thing he'd ever taught Sho: you don't wait to be sure, you just go. So Noya would go. He'd read the swing, and he'd take one big confident step toward where the ball should land, and he'd correct on the way.
+"I want to see him hit 1," said Hinata. "A real 1."
 
-Which meant that for a fraction of a second, the space right behind that first step was empty.
+"Me too."
 
-The next time Kageyama set him, Sho swung his whole arm like he was going to hit the same hard cross. He watched Noya's weight shift. And at the last instant he turned his wrist over and rolled the ball, soft and short, over the block and into the empty floor behind Noya's first step.
+Tanaka's jaw worked. He turned round, toward the net, toward the other side, and filled his lungs.
 
-It dropped. Noya, halfway through his step, twisted, lunged, and missed it by a hand.
+"ASAHI-SAN! KEEP ASKING FOR THE BALL! YOU'RE THE ACE!"
 
-4-4.
-
-Nishinoya lay on the floor for a second. Then he slapped the boards with both palms, delighted and furious at the same time.
-
-"WHO taught you THAT?"
-
-"Some short guy," said Sho.
-
-Nishinoya sat up, pointed at him, and laughed, a huge laugh that echoed around the gym. Then he got up, still grinning, and went back to his spot behind Asahi, and Sho noticed that the next time Noya got ready, his first step was a little smaller.
-
-He'd adjusted. In 1 rally.
-
-Of course he had.
+On the far side, Asahi flinched as if he'd been hit. Daichi, at the end line, let Tanaka shout.
 
 ---
 
-Sugawara served at Sho on purpose. Sho could see the decision in his toss.
+Daichi served, and Asahi got another set, and tipped again. This time Tsukishima called it, from the back row, quiet and bored, a half-beat before Sho opened his mouth.
 
-A float, nothing special, aimed at the seam between Sho and Daichi. Two weeks ago it would have gone off Sho's arm into the stage.
+"Tip."
 
-Shu, he thought. Don.
+Daichi dug it, and Kageyama set Tanaka, and Tanaka hit it into the floor so hard it bounced up into the balcony rail.
 
-His feet went first. He didn't wait to be sure. He was a little wrong, and he fixed it on the way, a small step left, and he got low and put out his platform and gave the ball a short push forward instead of a swing.
+5-5.
 
-It went up clean and dropped to Kageyama.
+As they reset, Tsukishima looked sideways at Sho.
 
-Sho didn't say anything. He didn't look at Sugawara.
+"You didn't have to yell it," he said. "The 1st 1."
 
-But out of the corner of his eye he saw Sugawara's right hand lift, just a little, maybe 2 centimeters off his thigh. Almost a wave. Then it went back down.
+"...Yes," said Sho.
 
----
+Tsukishima looked at him a beat longer than he seemed to mean to. Then he pushed his glasses up and turned back to the net.
 
-Between rallies at 4-5, while Shimada was retying his shoe, Sho saw Asahi turn around to Nishinoya.
+Daichi served again, and the Neighborhood side sided out on a hit from Takinoue. 5-6.
 
-They were too far away to hear. But Sho could see Asahi's mouth move. He could see that it was short, and hard to say. He could see Nishinoya's face while he listened. It went from flat to something else. Something that looked a lot like the face Hinata made right before a quick.
+Between rallies, while Shimada was retying his shoe, Sho saw Asahi turn round to Nishinoya.
+
+They were too far away to hear. Sho could see Asahi's mouth move, only a little. He could see Nishinoya listening, and Nishinoya's face going from flat to the face he had on before a ball he meant to get.
 
 Nishinoya said something back. Even shorter.
 
 Then he slapped Asahi on the back, hard, and went back to his spot.
 
-Asahi turned around to face the net. He looked straight across it. For the first time all game, his eyes came up off the floor.
-
-He was looking at the block.
-
-Sho looked back.
+Asahi turned round to face the net. He looked straight across it, and for the 1st time all game he kept his eyes up. He looked along Karasuno's front row, and past it, at Sho in the back, and held it.
 
 ---
 
-At 5-6, Hinata served.
+Tanaka sided out with a cross into the corner. 6-6. Kageyama served 1 into the net, 6-7, and the Neighborhood side was serving.
 
-It was a bad serve. It clipped the top of the net, wobbled, and dropped over, and Shimada had to lunge for it. His pass went sideways, way off the net. Sugawara couldn't get to it. The 3rd alumnus, Uchizawa, the quiet one, got under it and just shoved it up, high and loopy and toward the left side, a desperate ball with nothing behind it but hope.
+Sho was in the back row for it, on the left, and he got down onto Nishinoya's invisible chair, and his thighs burned holding it. Shimada's float came to him. He passed it. It went up, ugly, toward the net.
 
-A bad set. A terrible set. The kind you give the ace when everything else has gone wrong.
+Kageyama set Hinata. This time, across the net, somebody jumped with him.
+
+It was Asahi. He was in the front row now, and he'd been watching Hinata all night, and he came across from the right late and big with his arms out, and the ball went off the tips of his fingers and out of bounds before he'd got anywhere near it properly.
+
+7-7.
+
+"NICE RECEIVE, KIYOSE!" came from the bench.
+
+It was Yamaguchi. He was sitting forward with his jacket still over his knees and both hands cupped round his mouth, and when Sho looked over he went pink and put his hands down. Ennoshita, beside him, kept his eyes on the court and was very nearly smiling.
+
+Hinata had come down shouting. "He jumped! Did you see? Asahi-san JUMPED! He touched it!"
+
+"He touched it and it went out," said Tsukishima. "That's our point."
+
+"He JUMPED, though!"
+
+On the far side, Asahi was looking across at Hinata. Hinata pointed at him with both hands, grinning, as if Asahi had done something wonderful. Asahi went red to the ears and turned away.
+
+---
+
+The rotation brought Hinata to the end line, and Sho to the front row on the left, and Tsukishima to the middle, and Tanaka to the right.
+
+Sho's legs had a few good jumps left in them. He could feel about how many, the way you can feel how much is left in a bottle by the weight. 2, he thought. 3, if 1 of them was small.
+
+Tanaka looked along the net at him, past Tsukishima. He put up his hands, both of them, flat, the way you show somebody what you're going to do with them, and turned back.
+
+Hinata served.
+
+It was a bad serve. It clipped the top of the net, wobbled, and dropped over, and Shimada had to lunge for it from the back row. His pass went sideways, way off the net. Sugawara, in the back, couldn't get to it. Uchizawa, the quiet 1, got under it at the net and shoved it up, high and loopy and out toward their left side, a desperate ball with nothing behind it but hope.
+
+It was the kind of set you give the ace when everything else has gone wrong.
 
 Asahi went for it.
 
-Sho watched his approach, and his whole body went cold and clear.
+He was coming in on Karasuno's right, in front of Tanaka. Sho was on the left, at the far end of the net. The ball was so high that he had time, almost. He was already moving, running along the net toward Tsukishima, watching Asahi's approach the whole way.
 
-No hitch.
+Asahi came in hard on all 4 steps, and the last 1 was the fastest. His arm came back big, all the way, and his hand disappeared behind his head.
 
-Asahi came in hard on all 4 steps. Fast. Full. He didn't slow down on the last one. His arm came back big, all the way, and his hand disappeared behind his head.
+"BLOCK!" Tanaka roared, and went up on the line.
 
-Full swing.
+Tsukishima closed from the middle and went up beside him. Sho's last step came down short and a beat late, his legs a little behind where his head had told them to be, and he went up a beat after Tsukishima, on Tsukishima's left, with the best jump he had left. His hands got there anyway. He'd read it early, and his arms were long, and he drove them up and over the net the way he'd been taught, elbows in, thumbs up, shoulders to his ears, reaching over onto Asahi's side.
 
-He was going to hit it. He was really going to hit it.
+6 hands. Asahi swung into them.
 
-"Block!" Sho said, and went.
+The ball hit Sho's hands like a door slammed on them. It drove his fingers back. The sting went up both arms to the elbows. And the ball went straight down, hard, back onto the Neighborhood side, almost as fast as it had come.
 
-Tsukishima went with him, closing from the middle, reading it perfectly. Tanaka came across from the left. 3 of them. Sho drove his hands up and over the net the way Satoshi had been taught 15 years ago, elbows in, thumbs up, shoulders to his ears, reaching over onto Asahi's side instead of just up.
+Sho came down on both feet with his hands burning, his eyes on Asahi's face a meter away through the net. Asahi's face had gone white.
 
-Asahi swung.
+Sho kept his own face still. His knees were already bending for the next 1, because the ball wasn't dead until it hit the floor, and it hadn't hit the floor. Nishinoya had dived.
 
-The ball hit Sho's hands like a car door slamming. It drove his fingers back. The sting shot up both arms to the elbows. And the ball went straight down, hard, back onto the Neighborhood side, almost as fast as it had come.
+Sho saw him at the edge of his eye, a small dark shape flying flat across the boards behind Asahi with 1 arm out and his whole body stretched. He'd started moving before Asahi swung. His fist got under the ball a hand's width above the floor, and the ball went up, high and ugly, and up.
 
-A stuff block. A real one.
+Nishinoya lifted his head off the boards, still flat on his chest, and screamed it, with everything he had, at the big 3rd year standing frozen at the net.
 
-Sho was already landing, his eyes on Asahi's face, a meter away through the net, and Asahi's face had gone white.
+"ASAHI-SAN! CALL FOR IT AGAIN!"
 
-Nothing moved on Sho's face. He hit the floor with his hands stinging, and he was already bending his knees for the next one, because there was always a next one, because the ball wasn't dead until it hit the floor.
+The ball was coming down. Sugawara had run in from the back and was under it, his hands up, and Sho saw them go still at the top. The same pause. The same hold as the 3rd high ball on Wednesday.
 
-It hadn't hit the floor.
-
-Nishinoya had dived.
-
-Sho saw him out of the corner of his eye, a small dark shape flying flat across the boards behind Asahi, one arm out, his body fully stretched, his whole life behind that arm. The ball came off Sho's hands and Noya was already under it, already there, because he'd started moving before Asahi even swung. Because he'd been waiting for this exact ball for a month.
-
-His fist got under it a hand's width above the floor.
-
-The ball went up. High. Ugly. Alive.
-
-Nishinoya hit the floor and slid on his chest, and he didn't stop to get up. He lifted his head off the boards and screamed it, with everything he had, straight at the big hunched 3rd year standing frozen at the net.
-
-"ASAHI-SAN!"
-
-"CALL FOR IT AGAIN!"
-
-The ball was coming down. Sugawara was under it, his hands up, and Sho saw his hands go still at the top, the same pause, the same hesitation, the same thing he'd seen on the high outside set a week ago.
-
-Suga was about to set someone else.
-
-And across the net, Asahi lifted his head and opened his mouth.
+Sugawara was about to set somebody else.
 
 **Continuity (ch 13)**
 
-- Canon covered: the Neighborhood Association arriving after work (Shimada of Shimada Mart, Takinoue, Uchizawa, a 4th alumnus), Suga setting for them, Suga's quick to Takinoue for the first point, Daichi's "He's a real setter", Noya calling Suga cool, the first freak quick stunning the adults ("Is that allowed?"), Asahi watching Hinata, Asahi's hesitant early attacks, Tanaka shouting at Asahi to keep asking for the ball, Asahi and Noya talking at the net (canon: Asahi says he still wants to hit; Noya says he'll keep the ball alive), Hinata's net-clipping serve, Shimada's bad receive, Uchizawa's desperate set to Asahi, the triple block, Noya's last-second save and "call for it again". Ends at canon ch 20's last page.
-- Canon fixes: Ukai coaches from the sideline and Suga sets for the Neighborhood side. Chapter 10 now matches. The Date Tech flashback is Asahi's POV in canon and stays off-page here.
-- Changes: Sho replaces Yamaguchi in the Karasuno lineup (Yamaguchi on the bench: "Do your best, Kiyose"). The canon triple block on Asahi was Kageyama, Tanaka and Tsukishima; here it's Sho, Tsukishima and Tanaka (with Sho front row at opposite, Kageyama is in the back row this rotation).
-- Score at the climax: 5-6 to the Neighborhood side (canon has Asahi's breakthrough make it 5-7).
-- Sho reads Asahi's tell: speed drops on the last step, short arm swing, hand opens early = tip. He called it out loud ("Tip! Short!") and Daichi dug it. To Ukai: "He told me."
-- Sho and Tanaka: "Because if I go easy, he'll know." "...Then block him harder. Damn it."
-- Sho and Tsukishima: Tsukishima called the 2nd tip first. "You jump like it's personal." "Everything's personal. I'm extremely petty."
-- Sho and Noya: Noya dug Sho's cross ("Too honest, Sho!"). Sho beat him with a roll shot behind his first step ("WHO taught you THAT?" "Some short guy."). Noya shortened his first step after 1 rally.
-- Sho and Suga: Suga served at Sho on purpose; Sho passed it clean using "shu, don". Suga's hand lifted 2 cm.
-- Asahi's last swing before the climax: no hitch, full approach, hand vanished behind his head. Sho stuffed it at full strength, didn't gloat, and was already resetting when Noya saved it.
-- Suga's hands paused at the top of the save, about to set someone else (canon ch 21: he starts to set Shimada, Kageyama yells to set Asahi, Asahi calls Suga's name).
-- No status card.
-- Next: Ch 14, Asahi calls for the ball and breaks through; the rest of the match (Neighborhood wins 2-0, set 1 25-19); Asahi and Noya rejoin.
+- Revised Nov 22 (revision pass of ch 1 to 34). Old ch 11. Monday evening, from Ukai's lineup to Noya's save. No status card (cards retired Nov 22).
+- Canon: the Neighborhood Association after work (Shimada of Shimada Mart, Takinoue, Uchizawa, a 4th alumnus; "Kei-chan"); Suga sets for them; Suga's quick to Takinoue for the 1st point; Daichi: "He's a real setter."; Noya: "Suga-san! That was cool!"; the 1st freak quick stuns the alumni ("...Is that allowed?" "I don't think there's a rule against it."); Asahi watching Hinata; Asahi's hesitant attacks (tips); Tanaka shouting at Asahi to keep asking for the ball; Asahi and Noya talking at the net (unheard; canon: Asahi says he still wants to hit, Noya that he'll keep the ball alive); Hinata's net-cord serve; Shimada's bad receive; Uchizawa's desperate set; Asahi's full swing; the triple block; Noya's save and "CALL FOR IT AGAIN!"; Suga's hands pause (canon: he starts to set someone else). Canon's triple block was Kageyama, Tanaka, Tsukishima; ours is Tanaka, Tsukishima, Sho (ledger). Ages: Shimada and Takinoue 26, Uchizawa 28 (Sho guesses "around 26").
+- Divergence: Ukai crosses Yamaguchi off for Sho, "Left side." Yamaguchi: "Okay." / "Do your best, Kiyose." (smooths his jacket; looks at Tsukishima 1st). Ennoshita: "Left side." "Yes, senpai." "Mm. Warm your hands up. He hits heavy." Sho on the LEFT wing (Nov 13). Ukai's thrown-together order puts Tanaka and Sho together in the front row only once round (Hinata's serve).
+- Karasuno order (pickup): Kageyama, Hinata, Tanaka, Tsukishima, Sho, Daichi. Neighborhood order: the 4th alumnus, Uchizawa, Suga, Takinoue, Shimada, Asahi (Asahi front row only from Suga's serve on; Shimada back row at the climax; Suga back row at the climax). Neighborhood serves 1st; Karasuno receives with Tanaka at P1.
+- Flow: 0-1 Noya digs Sho's cross ("Too honest, Kiyose!"), Suga's quick to Takinoue; 0-2 Daichi's cross dug (Noya's step and fix), Takinoue's quick off Sho's fingertips at the top of the tape (**his legs: "At 4 o'clock that afternoon, those fingertips would have been over the net."**); 1-2 Sho's roll shot into the short middle Noya stepped out of ("WHO taught you THAT?... ME?! I taught you that! That's MY step!"; Noya's step gets smaller); Tsukishima serves, 1-3 Takinoue; 1-4 Sho tries the roll again, Noya digs it: "NOT TWICE!"; 2-4 Sho tools Shimada's turned-in outside hand ("OW. Kids these days."; Kageyama: "That set was for the line." "His outside hand was turned in." "...Hn."); Sho serves, 3-4 Hinata's 1st quick of the night; 3-5 Takinoue tip; Suga serves at Sho on purpose, the *shu/don* pass, Suga's hand lifts 2 cm; Hinata's quick dug by Noya, Suga runs in and sets Asahi; the hitch; **"TIP! SHORT!" (loud)**; Daichi digs; Hinata, 4-5.
+- **Ukai: "How'd you know that?" Sho: "His last step slowed down. And his arm was short. And his hand opened early."** (replaces the old "He told me."). Ukai watches Asahi.
+- **The net post: Asahi picks up the ball: "...You called it." "Yes, senpai." "Um. Sorry. It was a... bad 1."** Sho bows with the ball. Suga: "Asahi. Your spot."
+- **Tanaka's shirt grab** (unresolved): "Why'd you do that?" **"Because if I go easy, he'll know."** "Know what?" "That we think he's going to break... we're all being careful with him." "He's my senpai. He stayed late for me. Every day. When I was nothing." "I know." "You don't know anything. You've been here 2 weeks." "...Then block him harder. Damn it." Daichi: "Kiyose. Next time you see it, call it." Tanaka: "Daichi-san..." (no answer). Hinata: "Are you being mean to Asahi-san?" "I don't know." "I want to see him hit 1. A real 1." "Me too." Tanaka: "ASAHI-SAN! KEEP ASKING FOR THE BALL! YOU'RE THE ACE!"
+- Daichi serves: Asahi's 2nd tip, Tsukishima calls it from the back row ("Tip."), Tanaka into the floor, 5-5. **Tsukishima: "You didn't have to yell it. The 1st 1." "...Yes."** 5-6 Takinoue. Asahi and Noya at the net (unheard); Asahi keeps his eyes up, looks at Sho in the back row. 6-6 Tanaka's cross; 6-7 Kageyama nets a serve; 7-7 Hinata's quick, Asahi jumps with it (touch, out; Hinata: "He JUMPED!"; Tsukishima: "That's our point."). Yamaguchi: "NICE RECEIVE, KIYOSE!" (pink; Ennoshita nearly smiling).
+- **Climax at 7-7, Hinata serving; Karasuno front: Tanaka (right), Tsukishima (middle), Sho (left).** Sho's legs: "2. 3, if 1 of them was small." Tanaka shows him both hands flat before the serve. Net-cord serve, Shimada's pass off the net from the back row, Uchizawa's desperate high set to the left; Asahi's full approach, the last step the fastest, hand behind his head; **Tanaka: "BLOCK!"**; Tanaka on the line, Tsukishima closes, **Sho's last step short and a beat late, up a beat after Tsukishima, on Tsukishima's left; his hands get there by reach and the early read** (ch 14 Ukai: "Your feet were late."); stuff block, the sting to the elbows; both feet; Noya's dive and save; "ASAHI-SAN! CALL FOR IT AGAIN!"; **ends on Suga's hands holding at the top, about to set somebody else.**
+- No eye events. Body (Nov 22): legs after Ukai's afternoon; fingertips only to the tape at 0-2; burning thighs in *shu*; the late last step at the block.
+- Ace line: the tool off Shimada; the block on the ace's full swing.
+- **For ch 14 (Suga POV, must change):** the breakthrough score is 7-8 (was 5-7); Sho on the left wing (no "opposite"); Tanaka was already on the line and Sho crossed from the left; Shimada is back row (his back-attack run-up works); Asahi and Sho have spoken at the net post ("a voice Sho had heard once on a stairwell" no longer fits); "Asahi staring at his own hand" would be the 3rd use: vary it; ch 14 opens at Suga's held hands (Kageyama's "KEEP SETTING HIM", then Asahi's "SUGA! ONE MORE!" KEEP-WORDING).
+- Next: Ch 14 "Call for the ball" (Suga POV).
 
 ## Chapter 14: Call for the ball
 
