@@ -5313,81 +5313,259 @@ Sho put the 40 yen back in his pocket. He'd pay it on Monday. He went home the l
 
 ## Chapter 12: 40 yen
 
-On Monday, Takeda walked into the gym with Ukai behind him.
+Sunday was his rest day, and he rested, which was harder than training. He lay on the floor of his room with his legs up the wall and read the notebook from the 1st page to the last, twice, and on Monday morning at 4:15 his legs came down the stairs like legs again.
 
-Ukai was wearing a tracksuit instead of his shop apron, and his hair was held back with a band, and he had the face of a man who had been tricked into something and was going to make everyone pay for it.
+Toss and catch. 11 in a row, and then the 12th went behind his head.
 
-Takeda had told him about Nekoma, Sho found out later. About Nekomata, Nekoma's old coach, coming out of retirement. About Nekoma's current coach, who'd been their setter back when Ukai was in high school. Somewhere in that list, Ukai's face had changed, and he'd said, very irritably, fine, but only until the Nekoma match.
+He wrote *11* on his hand, and put 40 yen in the pocket of his track pants with his house key, and went up the hill.
 
-Takeda had won it with nothing but bows. Sho had squared some papers.
+Tanaka was sitting on the gym step with the key on its red string round his finger, yawning, in the gray light.
 
-"This is Ukai Keishin-kun," Takeda announced, glowing. "Our new coach!"
+"Early," said Sho.
 
-The team bowed. "ONEGAISHIMASU!"
+"EARLIER THAN YOU."
 
-Sho bowed with them. Then he straightened up and looked at Ukai with a face of total, theatrical betrayal.
+They went in. Hinata and Kageyama came at 5:10, arguing about something to do with milk, and the 4 of them had the gym till 7. Tanaka spent most of it hitting cross. Sho spent most of it passing Kageyama's serves, and the coins in his pocket clinked every time he got down into *shu*.
 
-"Shop-niisan?! You stalker. You followed my wallet here."
+"What's that noise?" said Tanaka, at 6:30, with his hands on his knees.
 
-The whole team turned to look at him.
+"40 yen, senpai."
 
-Ukai didn't blink. "In here, it's Coach," he said. "And you still owe me 40 yen."
+"Why are you carrying 40 yen?"
 
-"For what?"
+"I owe it to somebody."
 
-"Thursday. You were short. I let it go." He pointed at Sho without looking at him. "I keep a tab."
+Tanaka looked at him as if he were very strange, and then let it go, because there were more important things.
 
-Sho closed his mouth.
+"Takeda-sensei went to the shop again on Saturday," he said, to the floor. "Narita saw him. 6th time."
 
-He had been 40 yen short on Thursday. He'd forgotten. Ukai hadn't said a word, just handed over the bun.
+"What happened?"
 
-"Yes, Coach," said Sho.
+"Narita said he came out smiling." Tanaka straightened up. "Sensei always comes out smiling. That's what's scary about him."
+
+Then he hit 1 more cross, and at 7 the door opened and Daichi came in with the others for morning practice, and looked at the 4 of them, already soaked through, and said, "Mop that before sensei sees it."
 
 ---
 
-Ukai ran them through drills for an hour and barely said anything. He stood at the side with his arms crossed and watched. Every so often he'd mutter something to Takeda, who wrote it down.
+On Monday, after school, Takeda-sensei walked into the gym with Ukai behind him.
 
-Then Kageyama set Hinata a quick, eyes shut, the ball hitting the floor before anyone else moved, and Ukai's arms came uncrossed.
+Ukai was wearing a black tracksuit instead of his shop apron, and his hair was held back with the headband, and he had the unlit cigarette behind his ear. He stopped just inside the door and looked round the gym, at the net, the ball cart with its bad wheel, the banner over the stage, the old scoreboard with the numbers that had to be turned by hand, as if he were checking that it was all still where he'd left it.
+
+"THE SHOP GUY?!" said Hinata.
+
+"Everyone," said Takeda, glowing. "This is Ukai Keishin-kun. From today, he'll be coaching us."
+
+At the back, Kageyama had taken a step forward.
+
+"Ukai," he said. "Like... Coach Ukai?"
+
+"My grandfather," said Ukai.
+
+Kageyama stared at him. He'd been buying milk across that man's counter for 2 weeks. Then he bowed, deeper than he'd bowed to anybody since Sho had known him.
+
+"Don't," said Ukai. "I run a shop." He looked away from Kageyama, at the net. "I'm here until the Nekoma match."
+
+"Until the Nekoma match," Takeda agreed, still glowing.
+
+"After that, we'll see." Ukai put his hand in the pocket of his tracksuit, and Sho saw the corner of a folded sheet of paper there, ruled lines showing through the fold, before Ukai's hand covered it. "Nekomata's coming out for this. The old cat himself. I'm not having Nekoma come all the way up here and play a team nobody's coached." He looked at them. "Well?"
+
+"ONEGAISHIMASU!" The whole team bowed.
+
+Kageyama straightened up slowly. He was still looking at Ukai, at the headband and the tracksuit and the cigarette, the way you'd look at a photograph of somebody you'd only heard about.
+
+Ukai walked past Sho toward the bench. He didn't stop.
+
+"You owe me 40 yen," he said, going past.
+
+"Thursday," said Sho. He had his hand in his pocket already. "I have it, Coach."
+
+"Put it away." Ukai dropped his bag on the bench. "It's on your tab."
+
+Sho stood there with the coins in his hand. Tanaka, beside him, looked from Sho to Ukai, and back, and opened his mouth.
+
+"Receive," said Ukai, and clapped once. "Line up. All of you."
+
+---
+
+For the 1st half hour, Ukai hardly spoke.
+
+He stood on a chair on the far side of the net, the way Daichi did, and hit balls at the receive line, hard and flat and not always where you expected, and he watched where every 1 went. He hit at Daichi, and Daichi passed it, and Ukai hit the next. He hit at Tanaka. He hit at Hinata, and Hinata's elbows bent, and the ball went into the wall.
+
+"Elbows," said Ukai.
+
+"Yes!"
+
+He hit at Hinata again. The ball went into the wall again.
+
+"Elbows," said Ukai, in exactly the same voice.
+
+"YES!"
+
+Nishinoya was in the line too, between Tanaka and Yamaguchi, and every ball Ukai hit at him came off his arms and went to the setter's spot as if it had been posted there. After the 3rd, Ukai stopped and looked at him properly, with the ball in his hand, and then hit the next 1 harder, and the next harder than that, and Nishinoya took both of them and grinned up at him.
+
+"Hm," said Ukai.
+
+He hit at Yamaguchi. Yamaguchi's 1st went off the side of his arm and into the bleachers. His 2nd went up, high and wobbly, near enough. Ukai's eyes stayed on him for the ball after that, too, and Yamaguchi passed that 1 as well, and looked at the floor afterward as if he'd been caught at something.
+
+Every so often Ukai got down off the chair and went over to Takeda on the bench and said something short, and Takeda wrote it down with his tongue between his teeth. Sho, waiting in the line, caught some of them.
+
+"Tsukishima. Arms are fine. Doesn't want it."
+
+"The small 1. Hinata. Hopeless. Fast, though. Put down fast."
+
+"Tanaka. Good. Loud."
+
+Then it was Sho's turn.
+
+Ukai hit at him, a hard flat ball at the left hip. Sho's feet went before his head had finished, the way Nishinoya had been shouting at him to do for 4 days, and they went a little wrong and he fixed it on the way, and he sat back on the invisible chair and gave the ball a short shove. It went up a meter short of the setter's spot.
+
+Ukai hit the next 1 to his right. That 1 went into the net.
+
+The 3rd went up again.
+
+Ukai got down off the chair.
+
+"Oi. Tall 1st year."
+
+"Yes, Coach."
+
+"You move before I've hit it."
+
+"Yes, Coach."
+
+"Who taught you to cheat like that?"
+
+"Nishinoya-senpai."
+
+Ukai looked down the line at Nishinoya, who said "CHAIR!" at Sho from 3 places along, helpfully. Then Ukai looked back at Sho.
+
+"Good," he said. "Keep cheating. You're guessing wrong half the time. Guess wrong faster."
+
+He went back up on the chair.
+
+---
+
+After the receive, Ukai had them do approaches and hit, Kageyama setting, to see who they were.
+
+Kageyama set Hinata a quick.
+
+Hinata was already in the air, eyes shut, before Kageyama's hands had touched the ball, and the ball came out flat and fast and arrived at his palm at the top of his swing, and went into the floor on the other side before Tsukishima, blocking, had left the ground.
+
+Ukai's arms came uncrossed.
 
 "What," he said, to nobody. "What the hell was that."
 
 "A quick," said Kageyama.
 
-"I know it's a quick. Do it again."
+"I know it's a quick." Ukai had taken a step onto the court. "Do it again."
 
-They did it again. Ukai watched it with his mouth slightly open, the unlit cigarette hanging off his lip, and for a few seconds he looked like a kid who'd just seen a magic trick.
+They did it again. It went in again. Ukai watched it with his mouth a little open and the cigarette hanging off his lip, and for 2 balls he looked about 10 years old.
 
-Sho, at the back of the line, watched Ukai watch it, and didn't say anything. That one belonged to them.
+Sho stood at the back of the hitting line and watched Ukai watch it. That 1 belonged to Hinata and Kageyama. He waited for his turn.
 
-A few minutes later, during spike approaches, Ukai said, "Oi. Opposite."
+On the bench, Takeda had his notebook open and his pen up. "Ukai-kun. What's special about it? I can see that it is. Everybody's face does that thing. But I don't know why."
 
-Sho looked around. Ukai was looking straight at him.
+Ukai kept his eyes on the court.
 
-"Your left foot," Ukai said. "On your first step. Why are you babying it?"
+"Normal quick, the hitter runs in, and the setter watches him and puts the ball where he's going to be," he said. "That's hard enough. That 1, the kid's in the air before the setter's even touched it. Eyes shut. He swings at a place in the air." He jerked his chin at Kageyama. "And that 1 puts the ball in the place. Exactly. Every time. If he's off by the width of a hand, the kid hits nothing, or gets it in the face." He stopped. "I've never seen anybody do that."
 
-The gym kept going around them. Hinata was still talking. Somebody's shoe squeaked. But for one second, Sho couldn't hear any of it.
+Takeda wrote it all down. Then he looked up.
 
-Ennoshita had said, on the bus: when you're nervous, your left foot turns out on the first step. Sho had written it down and thought it was a nerves thing. Ukai had just named the real cause in one look. Satoshi's left knee had been the one that went. For 2 months before it went, he'd been stepping off it soft, turning the foot out to spare it, and his body had done it so long that the habit had come back with everything else.
+"So it's trust," he said.
 
-Into a body with 2 perfectly good knees.
+Ukai made a face as if the word tasted bad. "It's a stupid kid and a scary kid," he said. "Write that."
 
-One beat. That was all he gave it.
+Takeda wrote that down too.
+
+When his turn came, Kageyama set Sho on the left, high, and Sho went. The approach was fine. The jump was what it was, a tall boy's quick shallow jump, better rested than it had been at Seijoh. He hit cross, flat, into the floor inside the far line, and came down on his left foot alone with the knee giving inward, and caught himself.
+
+*Both feet.* He'd done it all through Seijoh, on purpose, every ball. 2 days off, and a coach watching, and his legs had forgotten.
+
+"Oi."
+
+Ukai was looking straight at him.
+
+"Your left foot," Ukai said. "On your 1st step. Why are you babying it?"
+
+The gym kept going around them. Hinata was still talking. Somebody's shoe squeaked on the far court. Sho couldn't hear any of it.
+
+Ennoshita had told him on the bus. *When you're nervous about a ball coming to you, your left foot turns out.* Sho had written it down as nerves.
+
+At 20, in Osaka, the left foot had set down soft on the 1st step, every approach, every morning, for 2 months. He'd thought nobody could see.
 
 "Old injury," Sho said. "From a past life."
 
-Ukai looked at him like he was a rude customer.
+Ukai looked at him the way he looked at customers who tried to pay in 1-yen coins.
 
-"Tch. Smart-ass." He jerked his chin at the line. "Fix it."
+"Tch. Smart-ass." He jerked his chin at the line. "Fix it. And you land like a bag of rice. On 1 leg. You've got 2. Use both. Every time."
 
-That was it. He turned away to yell at Tanaka about something else.
+"Yes, Coach."
 
-Sho went back to the end of the line. He took 3 approaches with his left foot pointed straight, and it felt wrong, like writing with the wrong hand. On the 4th, it felt a little less wrong.
-
-He'd write it down later. He didn't need to. He wasn't going to forget it.
+Sho went back to the end of the line. He took his next approach with his left foot pointed straight, and it felt wrong, like writing with the wrong hand, and he landed on both feet and it cost him half a beat, and Kageyama's next set was already on its way to somebody else. On the 4th approach the foot felt a little less wrong.
 
 ---
 
-At water break, Hinata appeared at his elbow with an expression of outrage.
+Before the water break, Ukai sent Takeda to the club room for a roll of masking tape, stood on the chair by the stage door, and ran a long strip of it up the wall from about 2 meters to well past 3. He gave Takeda a marker.
+
+"Everybody," he said. "Standing reach, then jump. Touch as high as you can. Sensei writes it down."
+
+They lined up. Tsukishima touched the tape flat-footed higher than anybody, and jumped without seeming to try, and Takeda wrote 2 numbers next to his name. Daichi jumped. Tanaka jumped and slapped the wall so hard the strip came away at the bottom and Takeda had to press it back.
+
+Hinata stood under it and touched the tape at the very bottom, standing, and somebody laughed. Then he backed up 3 steps and ran at the wall and went up, and kept going up, and slapped the tape higher than Daichi had, higher than Tanaka, and came down grinning.
+
+Ukai looked at the mark with his arms folded and his mouth pulled down at 1 corner.
+
+Sho went next. Standing, he touched higher than Hinata by most of a forearm. He backed up and ran in, left foot straight, and jumped, and touched.
+
+It was a fine mark. Above Tanaka's. A little below Hinata's.
+
+"Again," said Ukai. "5 times. No rest. Same spot."
+
+Sho jumped again, and again. By the 3rd he could feel it. By the 5th he was reaching for the tape and his fingers came down on it a hand's width below his 1st mark, and he landed on both feet and felt it all the way up his thighs.
+
+Takeda wrote both down, the 1st and the 5th, and looked at them, and looked at Ukai.
+
+Ukai looked at the 2 marks on the tape, a hand apart.
+
+"What'd you play before this?" he said.
+
+"Soccer. Swimming. Kendo, for 4 months."
+
+"And since?"
+
+"Nothing, Coach."
+
+"Shows." Ukai looked at Sho's legs, the way he'd look at a delivery that had come short. "Your legs are a kid's who sat in a chair for 3 years. That gets fixed with work. Months of it. You won't have it by Nekoma." He turned away. "Hinata. Again. 5 times."
+
+Hinata jumped 5 times. The 5th was about as high as the 1st. He came down bouncing.
+
+Sho looked at the 2 marks with his name next to them, 1 above the other. On Tuesday night he'd written *Ask somebody who knows legs* at the bottom of a page, because there hadn't been anybody.
+
+He went after Ukai.
+
+"Coach."
+
+Ukai turned round with an expression that said he'd been hoping not to be followed.
+
+"What do I do?" said Sho. "Starting today."
+
+Ukai looked at him. Then he looked at the tape, and at Hinata still bouncing under it, and at the clock.
+
+"Stairs," he said. "You live up a hill?"
+
+"Near the school, Coach."
+
+"Then you live up a hill. Walk it. Every day. Up, down, up. Slow on the way down. That's 1." He held up a 2nd finger. "When you land, I want to hear both feet. Every time. In here, in the street, getting off a train. That's 2. And you sleep." He looked at Sho's face, as if he could see the 4:15 on it. "That's what you get till I've seen you play. Ask me again Wednesday."
+
+"Yes, Coach. Thank you."
+
+"Don't thank me. Go drink something."
+
+At the water break, Sho wrote it all under Ennoshita's line: *Coach saw it too. 1st step. Straight. Land on 2.* And under that, the 2 numbers from the tape, and the gap between them, and *Hill. Slow down. Both feet. Sleep. Wednesday.*
+
+---
+
+Hinata appeared at his elbow before he'd closed the notebook.
 
 "Kiyose! Tanaka-senpai said you wrote ACE on your form!"
 
@@ -5395,81 +5573,111 @@ At water break, Hinata appeared at his elbow with an expression of outrage.
 
 "I'M going to be the ace!"
 
-"I also wrote that I was 190 centimeters," said Sho. "Forms are a manifesto. They're about the person you'll become."
+"I know. You told me on the stairs."
 
-"You wrote you were 190?!"
+"So you can't!"
 
-"I'll grow."
+"I'd still like to," said Sho.
 
-"Both of you," said Kageyama, from the water cooler, "are dumbasses."
+Hinata stared at him with his mouth open, trying to work out whether that was allowed.
 
-Nishinoya, who had been half-listening from the stage, hopped down. He'd come back to practice every day since his return, and every day he'd said he wasn't playing in matches, and every day he'd stayed until the lights went off.
+"Both of you," said Kageyama, from the water cooler, "are idiots."
 
-"A first year writing ACE?" he said, grinning up at Sho. "I like your guts!"
+Nishinoya had been half-listening from the stage. He hopped down. He'd come to practice every day since his return, and every day he'd said he wasn't playing in matches, and every day he'd stayed until the lights went off.
+
+"A 1st year writing ACE?" he said, grinning up at Sho. "I like your guts!"
 
 Then the grin went, and his voice went flat.
 
 "But Karasuno's ace is Asahi-san."
 
-Sho looked down at him. There was no point arguing, and there was no part of him that wanted to.
+Sho looked down at him. He thought about the stairwell, and the juice carton, and the hands in the pockets.
 
-"Then I'll be the opposite," he said. "Literally. It's my position."
+"Then we'll both have to fight him for it," he said. "Hinata and me. When he's back."
 
-Nishinoya blinked. Then he laughed, short and surprised, and slapped Sho on the arm, and went back to the stage. When they lined up again, Sho noticed he left a gap in the line next to him. Just big enough for one more person.
+Nishinoya looked up at him with his jaw tight.
 
-Nobody stood in it.
+"...When he's back," he said, and went back to the stage.
 
 ---
 
-Ukai called them in.
+Ukai called them in a little after 5.
 
-"I need to see how you play," he said. "Not drills. A real game. So tonight, 6:30, you're playing a match."
+"I need to see you play a real game," he said. "So tonight, 6:30, you're playing a match."
 
 "Against who?" said Daichi.
 
-"My team. Neighborhood Association. Karasuno old boys, mostly. Guys who work." He glanced at his phone. "I've got 4 coming. I need a setter, 1 more spiker, and a libero."
+"My team. The Neighborhood Association. Karasuno old boys, most of them. Guys who've been at work all day." He looked at his phone. "I've got 4 coming. I need a setter, another spiker, and a libero."
 
-He looked at the team. "And you've got 2 setters. They can't be on the same side. One of you comes with me."
+He looked at the team. "You've got 2 setters. They can't be on the same side. 1 of you comes with me."
 
 Kageyama and Sugawara looked at each other.
 
 "I'll go," said Sugawara.
 
-He said it lightly. Ukai nodded, already moving on, and Kageyama watched Sugawara walk over to the other side of the net.
+He said it lightly. Ukai nodded, already looking at his phone again, and Sugawara walked round the net post to the other side.
 
-A few minutes later, Sho saw Kageyama go over to him. He saw Sugawara say something, and Kageyama's face change.
+Kageyama stood where he was. Then he went after him.
 
-He didn't hear all of it. He wasn't trying to. But the gym was quiet in that moment and Sugawara's voice carried, low and honest.
+Sho was at the cart, sorting balls by how flat they were, close enough to the net post to hear, and he didn't move away. The gym had gone quiet in the way it did before a game, people stretching, nobody talking much.
 
-He said that after the Date Tech match, he'd been scared to toss to Asahi. Scared that every set he gave him would get blocked, that it was his fault. He said that when Kageyama came to Karasuno, part of him had been relieved. Relieved that he wouldn't have to be the one setting anymore.
+"Is it because of me?" Kageyama said. It came out low and stiff. "That you're going over there."
 
-Then he said: but I still want to toss to him again. One more time.
+"No. Well." Sugawara's voice was low too, but it carried. "...After Date Tech. Every set I gave him, they were waiting. And when you came, Kageyama. When I saw you set." He stopped. "Part of me was relieved. That I wouldn't have to be the 1 who sent it up to him any more. Relieved, Kageyama. That's a terrible thing for a setter to feel."
 
-Kageyama didn't say anything. He bowed, short and stiff, and walked away.
+Sho put a ball in the cart, and another.
 
-When Sugawara turned around, Sho was the closest person to him. Sugawara looked at him. Sho saw him realize what Sho had heard.
+"But I want to set to him again," said Sugawara. "Just 1 more time. I want to see him hit 1. That's why I'm going over there."
 
-"You noticed, didn't you," Sugawara said quietly. "The high sets. The pause."
+There was a pause.
 
-"I didn't say anything."
+Kageyama bowed, a short, stiff bow, and walked away from the net post with his face shut, toward the far wall.
 
-Sugawara looked at him for a long moment. "...Why not?"
+Sugawara turned round.
 
-"It was yours to say."
+Sho was the closest person to him. He had a ball in each hand. He saw Sugawara see him, and see what he'd heard, and then remember Wednesday.
 
-Sugawara laughed. It was a small laugh, a little wet around the edges. Then he reached out and patted Sho on the back, too hard, the way you do when you don't want the other person to see your face.
+"You noticed, didn't you," Sugawara said quietly. "Wednesday. The 3rd high 1. When I held it."
 
-"Go warm up, Kiyose," he said.
+"I didn't tell anybody."
 
-Sho went.
+"...Why?"
+
+Sho looked at the ball in his left hand.
+
+"It was your set, senpai," he said.
+
+Sugawara laughed. It was small, and a little wet. Then he reached out and patted Sho on the back, too hard, twice.
+
+"Go warm up, Kiyose," he said, and went to the other side of the net, where Ukai's team would be.
 
 ---
 
-The Neighborhood Association guys arrived at 6:20 in work clothes and changed in the club room. One ran a supermarket. One had his own electrical shop. They were loud and friendly and called Ukai "Kei-chan," which made him visibly want to die.
+While Ukai was in the corridor on the phone finding out who was actually coming, Sho found himself at the stage steps next to Yamaguchi, who was stretching his hamstrings very thoroughly and looking at the court.
 
-Ukai turned to Nishinoya, who was standing by the door with his bag on his shoulder.
+"Do you think he'll put us on?" Yamaguchi said. "Tonight. Any of us. He's only seen us for 2 hours."
 
-"You're the libero. You're with us."
+"He watched you in the receive line," said Sho. "After you got the 2nd 1 up. He kept watching for the next 1."
+
+Yamaguchi stopped stretching. "He didn't even talk to me."
+
+"He talks to the people who are bad at something, mostly. He talked to me 3 times."
+
+Yamaguchi went pink round the freckles and looked at the floor, and then he bent down and touched his toes again, harder, and Sho saw him look across at Tsukishima, who was on the other side of the gym with his headphones round his neck, looking at the ceiling.
+
+"Don't tell Tsukki I asked," said Yamaguchi.
+
+"I won't."
+
+---
+
+The Neighborhood Association arrived at 6:20, in their work clothes, and went straight into the club room to change, loud enough to hear through the door.
+
+Nishinoya was standing by the gym door with his bag on his shoulder.
+
+Ukai came back in from the corridor and turned to the door.
+
+"You. The libero. You're with us."
 
 "I'm not playing matches," said Nishinoya.
 
@@ -5479,23 +5687,23 @@ Ukai turned to Nishinoya, who was standing by the door with his bag on his shoul
 
 "Just tonight."
 
-Nishinoya hesitated. Sho watched him look at the court, at the net, at the side where the old boys were warming up. His hand tightened on his bag strap.
+Nishinoya looked at the court, at the net, at the club-room door with the old boys' voices behind it. His hand was tight on his bag strap.
 
-"We're still 1 short," said Ukai, irritated, counting heads. "I need a spiker. Anybody."
+"We're still 1 short," said Ukai, counting on his fingers. "I need a spiker. Anybody."
 
-Then Hinata, who had been staring out the high window by the door for no reason at all, pointed and yelled.
+Hinata, who'd been staring out of the high window by the door for no reason at all, pointed and yelled.
 
 "ASAHI-SAN!"
 
 Everyone turned.
 
-He was standing outside, in the dusk, on the path by the gym. Huge and hunched and caught, holding a school bag in both hands like a shield. He must have been watching through the open door. Sho had no idea for how long.
+He was standing outside in the dusk, on the path beside the gym, huge and hunched and caught, holding a school bag in both hands in front of him. He must have been watching through the open door. Sho had no idea for how long.
 
 He took a step back.
 
-Ukai didn't know who he was. Ukai didn't care. He saw a very tall boy in a Karasuno uniform and a team that was 1 short.
+All Ukai could see was a very tall boy in a Karasuno uniform, and a team that was 1 short.
 
-"You!" Ukai barked. "Tall guy! Do you play?"
+"You!" Ukai said. "Tall guy! You play?"
 
 "I... I used to, I..."
 
@@ -5505,42 +5713,48 @@ Ukai didn't know who he was. Ukai didn't care. He saw a very tall boy in a Karas
 
 "We're short a player. Get in here."
 
-There was a long, terrible moment where the big 3rd year stood in the door and nobody moved.
+The big 3rd year stood at the door, and nobody in the gym moved.
 
-Sho looked at Nishinoya. Nishinoya wasn't moving either. He was staring at Asahi with his jaw locked, his whole body pointed at him, and his hand on his bag strap had gone white at the knuckles.
+Sho looked at Nishinoya. Nishinoya was staring at Asahi with his jaw locked and his whole body pointed at him, and his hand on the bag strap had gone white at the knuckles.
 
 Then Asahi came in.
 
-He came in slowly, the way a man walks into cold water. He went past the Karasuno side without looking at any of them. Past Sho, who had given him a meat bun on a stairwell 4 days ago and said nothing. He went to the other side of the net, where Ukai and the old boys and Sugawara were, and stood there, very large and very still.
+He came in slowly, like somebody walking into cold water. Daichi met him halfway across the floor with a spare practice shirt from the bag by the stage and held it out without a word, and Asahi took it, and looked at it, and went toward the club room with it in both hands. He passed Sho on the way. Sho, who had given him a meat bun on a staircase 3 days ago. Asahi's eyes went to him and away.
 
-Nishinoya put down his bag.
+When he came back out, the borrowed shirt was too tight across his shoulders. He went to the far side of the net, where Ukai's team was, and stood there, large and still, while Sugawara came over and put a hand on his arm and said something nobody else could hear.
 
-He walked onto the court and took his place in the back row of the Neighborhood side, right behind Asahi. He didn't look at him. He didn't say anything. He just stood there, low, ready, the way he'd stood behind every ball he'd ever received.
+Nishinoya put his bag down.
 
-On the Karasuno side, Daichi was quietly counting off positions. Kageyama was flexing his fingers. Hinata was vibrating.
+He walked onto the court and took his place in the back row of the Neighborhood side, right behind Asahi. He kept his eyes on the net in front of Asahi and stood low and ready behind him, the way he stood behind every ball he'd ever received.
 
-Sho took his spot at opposite, at the net.
+On the Karasuno side, Kageyama was flexing his fingers. Hinata was bouncing on his toes, staring through the net at Asahi with his whole face. Daichi had gone to stand beside Ukai at the sideline, and Ukai was writing names on a clipboard with a stub of pencil, and Daichi was nodding.
 
-Across from him, through the tape, was the ace who'd stopped asking for the ball.
+Sho stood by the Karasuno bench and looked across the net at the ace who'd stopped asking for the ball.
 
-And Sho thought, very calmly: I'm going to block you as hard as I can.
+If he was on the court tonight, he was going to block him as hard as he could. Every ball.
 
-Because that was the only honest thing to do.
+Ukai's pencil stopped. His eyes went along the Karasuno side, and stopped, and he tapped the pencil against his teeth.
 
 **Continuity (ch 12)**
 
-- Canon covered: Takeda announces the Golden Week camp and the Nekoma match ("to get someone's attention"); Tanaka explains the Battle at the Garbage Dump; Hinata and Kageyama meet Asahi on the 3rd-year floor (Suga introduces) and Asahi says "I'm not the ace" and leaves; Suga explains the Date Tech match (every spike blocked by the Iron Wall, Asahi carrying too much, the fight with Noya, quitting); Takeda's repeated bows to Ukai at Sakanoshita; Ukai agreeing "only until the Nekoma match" after Takeda mentions Nekomata and Nekoma's current coach; Ukai's first practice; his awe at the quick; the Neighborhood Association match at 6:30 (Karasuno alumni; Ukai coaches from the sideline and Suga sets for them); Suga volunteering for Ukai's side and confessing to Kageyama that he was relieved not to set for Asahi but wants to toss to him once more; Ukai recruiting Noya as libero; Hinata spotting Asahi through the window; Ukai pulling him in as "tall guy".
-- Unverified details used: Hinata visiting Asahi's classroom on the 3rd-year floor; Asahi's stubble and tied-back hair; the 6:30 match being that same evening; the alumni's jobs (supermarket, electrical shop); Ukai's hairband.
-- Order note: in canon the Nekoma announcement comes before Ukai agrees and is part of Takeda's lure. I kept that order.
-- Sho and Asahi: Sho stayed on the stairwell landing during Hinata's visit and gave Asahi his spare meat bun ("Bought one too many." "...Sorry."). No volleyball was mentioned. Asahi went to the Neighborhood side.
-- Sho and Ukai: Sho squared Takeda's dropped papers at the shop and suggested "just watch" ("Both of you. Out."). Bought a full-price bun after. In the gym: "Shop-niisan?! You followed my wallet here." "In here, it's Coach. And you still owe me 40 yen." Ukai had silently covered Sho's 40 yen shortfall on Thursday and keeps a tab.
-- Big beat: Ukai spotted that Sho babies his left foot on the first step. Sho realized it's Satoshi's protective habit for the left knee that tore (the same tell Ennoshita saw). "Old injury. From a past life." "Tch. Smart-ass. Fix it." Sho is retraining the step.
-- Sho and Takeda: Takeda told him why he wants Ukai ("You all deserve someone who does"). The win was all Takeda's persistence.
-- Sho and Suga: Sho overheard the confession. "You noticed, didn't you." "It was yours to say." Suga patted his back too hard.
-- Ace rivalry: Hinata vows to be the ace; Sho says "Okay" (no height joke). Form joke: "I also wrote that I was 190." Noya: "Karasuno's ace is Asahi-san." Sho: "Then I'll be the opposite. Literally." Noya leaves a gap in the line beside him.
-- Hook: Sho at opposite across the net from Asahi, deciding to block him at full strength because a soft block would be the cruelest thing.
-- No status card.
-- Next: Ch 13, the Neighborhood Association match. Asahi gets blocked, Noya saves it, Suga sets him again (Asahi's moment).
+- Revised Nov 22 (revision pass of ch 1 to 34). Old ch 10, scenes 5 to 9 (Option B split): Sunday (rest day) and Monday, 4:15 a.m. to the start of the Neighborhood match at 6:30 p.m. No status card (cards retired Nov 22).
+- Canon: Ukai Keishin agrees to coach "until the Nekoma match" (Nekomata's return is the lure; canon order kept); Hinata recognizes the shop guy; Ukai is old Coach Ukai's grandson (Kageyama came to Karasuno for the grandfather); Ukai's 1st practice; his awe at the quick ("What the hell was that"); the match that evening against his Neighborhood Association (4 Karasuno alumni after work); Suga goes to Ukai's side to set and tells Kageyama he was relieved not to have to set for Asahi after Date Tech, and wants to set to him again; Ukai recruits Noya as libero ("a game with my friends from the shopping street"); Hinata spots Asahi through the window; Ukai pulls him in as "tall guy". Unverified: 6:30; the exact wording.
+- Sunday rest (legs up the wall, the notebook twice). Monday 4:15: toss-and-catch best run **11**. Dawn with Tanaka ("Early." "EARLIER THAN YOU."), Hinata and Kageyama at 5:10; the 40 yen clinks in his track pants ("I owe it to somebody."); Tanaka: Takeda's 6th visit on Saturday, "Sensei always comes out smiling. That's what's scary about him."; Daichi at 7: "Mop that before sensei sees it."
+- Ukai arrives (black tracksuit, headband, cigarette behind the ear); Hinata: "THE SHOP GUY?!"; **Kageyama: "Ukai. Like... Coach Ukai?" "My grandfather." The deep bow. "Don't. I run a shop."**; "Until the Nekoma match... After that, we'll see."; the Golden Week sheet in his tracksuit pocket (ch 11); "Nekomata's coming out for this. The old cat himself."
+- **The tab: "You owe me 40 yen." "Thursday. I have it, Coach." "Put it away. It's on your tab."** (the 40 yen stays owed; a quiet Ukai-Sho thread).
+- Receive (Ukai on the chair): "Elbows." x2 to Hinata; Noya in the line, Ukai hits him harder ("Hm."); **Yamaguchi: 1 into the bleachers, the next up, Ukai watches the 3rd too**; notes to Takeda ("Tsukishima. Arms are fine. Doesn't want it." / "Hinata. Hopeless. Fast, though. Put down fast." / "Tanaka. Good. Loud."); Sho: 1 up short of the setter's spot, 1 into the net, 1 up; **"Who taught you to cheat like that?" "Nishinoya-senpai." "Good. Keep cheating. You're guessing wrong half the time. Guess wrong faster."**
+- The quick; **Ukai to Takeda: "...the kid's in the air before the setter's even touched it. Eyes shut... If he's off by the width of a hand, the kid hits nothing, or gets it in the face... I've never seen anybody do that." "So it's trust." "It's a stupid kid and a scary kid. Write that."**
+- **The left foot:** Sho lands on 1 foot (2 days off, he'd done both feet all through Seijoh); **"Your left foot. On your 1st step. Why are you babying it?"** (Satoshi at 20: the left foot set down soft on the 1st step for 2 months; never explained) **"Old injury. From a past life." "Tch. Smart-ass. Fix it. And you land like a bag of rice. On 1 leg. You've got 2. Use both. Every time."** Retraining: straight foot "like writing with the wrong hand", better by the 4th.
+- **The reach test (masking tape by the stage door, 2 m to past 3 m; Takeda writes numbers, never printed):** Tsukishima highest standing; Tanaka; Hinata lowest standing, jumps above Daichi and Tanaka; Sho's standing reach above Hinata's by most of a forearm, his 1st jump above Tanaka's, a little below Hinata's; **5 in a row: Sho's 5th a hand below his 1st; Hinata's 5th about the same as his 1st.** "What'd you play before this?" "Soccer. Swimming. Kendo, for 4 months." "And since?" "Nothing, Coach." **"Your legs are a kid's who sat in a chair for 3 years. That gets fixed with work. Months of it. You won't have it by Nekoma."**
+- **Sho asks (ch 9: "Ask somebody who knows legs"): "What do I do? Starting today." Ukai's program: walk the hill every day, up, down, up, slow on the way down; land on both feet every time, everywhere; sleep. "Ask me again Wednesday."** Later chapters must show this work and the Wednesday follow-up. Notebook: *Coach saw it too. 1st step. Straight. Land on 2.* / the 2 tape numbers and the gap / *Hill. Slow down. Both feet. Sleep. Wednesday.*
+- Water break: "Kiyose! Tanaka-senpai said you wrote ACE on your form!" "I did." "I'M going to be the ace!" "I know. You told me on the stairs." "So you can't!" "I'd still like to." Kageyama: "Both of you are idiots." Noya: "A 1st year writing ACE? I like your guts!... But Karasuno's ace is Asahi-san." **Sho: "Then we'll both have to fight him for it. Hinata and me. When he's back." Noya: "...When he's back."** (Replaces the ledger's "Forms are a manifesto" / "Then I'll be the opposite. Literally.": Sho plays the wing, Nov 13; "190 on the form" is gone too.)
+- Suga goes to Ukai's side. **Kageyama: "Is it because of me? That you're going over there." Suga: "...After Date Tech. Every set I gave him, they were waiting. And when you came... Part of me was relieved... Relieved, Kageyama. That's a terrible thing for a setter to feel... But I want to set to him again. Just 1 more time. I want to see him hit 1."** Kageyama's short stiff bow. **Suga to Sho: "You noticed, didn't you. Wednesday. The 3rd high 1. When I held it." "I didn't tell anybody." "...Why?" "It was your set, senpai."** The wet laugh; 2 pats, too hard.
+- Yamaguchi: "Do you think he'll put us on?" "He watched you in the receive line..." "Don't tell Tsukki I asked." (ch 13: Ukai crosses Yamaguchi off for Sho.)
+- 6:20: the alumni in work clothes go straight to the club room (ch 13 describes them). Noya by the door: "I'm not playing matches." "It's not a match. It's a game with my friends from the shopping street." "Just tonight." Hinata: "ASAHI-SAN!" Ukai: "You! Tall guy! You play?" **Daichi brings Asahi a spare practice shirt; it's too tight across the shoulders (ch 13).** Asahi passes Sho (the meat bun 3 days ago). Suga's hand on his arm. **Noya puts his bag down and stands behind Asahi.**
+- Hook: Daichi with Ukai at the clipboard; *If he was on the court tonight, he was going to block him as hard as he could. Every ball.* Ukai's pencil stops on the Karasuno side. (Ch 13: Yamaguchi crossed off, Sho on the LEFT wing; Sho's reason "Because if I go easy, he'll know." stays ch 13's.)
+- No eye events.
+- Ace line: "Then we'll both have to fight him for it."
+- Next: Ch 13 "Neighborhood".
 
 ## Chapter 13: Neighborhood
 
