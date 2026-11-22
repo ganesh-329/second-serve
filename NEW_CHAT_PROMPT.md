@@ -5,9 +5,9 @@ Arc 3 (ch 35 to 50) is finished and Arc 4 (ch 51 to 72) is fully planned. We are
 
 I reread the early chapters and the soul was corrupted in most of them: the conversations weren't meaningful, many had errors, too much read as AI writing, and the pacing was too fast. We're rebuilding them chapter by chapter, in order. We go to Arc 4 only when this is done.
 
-**Done so far:** ch 1 to 10 are revised (Ball to the face, The wig, Dawn reps, The King, Eyes closed, Jackets, Blue castle, Bottle cap, Grand King, Guardian deity). The chapter count grew by 5 (Option B), and everything is renumbered: Arc 1 is ch 1 to 18, Arc 2 ch 19 to 34, Arc 3 ch 35 to 50, Arc 4 ch 51 to 72. The old-to-new table is `planning/revision/CHAPTER_MAP.md`.
+**Done so far:** ch 1 to 11 are revised (Ball to the face, The wig, Dawn reps, The King, Eyes closed, Jackets, Blue castle, Bottle cap, Grand King, Guardian deity, The ace who left). The chapter count grew by 5 (Option B), and everything is renumbered: Arc 1 is ch 1 to 18, Arc 2 ch 19 to 34, Arc 3 ch 35 to 50, Arc 4 ch 51 to 72. The old-to-new table is `planning/revision/CHAPTER_MAP.md`.
 
-**Next:** ch 11 "The ace who left". The handoff's "Next" line has the details.
+**Next:** ch 12 "40 yen". The handoff's "Next" line has the details.
 
 ## The heart of it (my words)
 THE CONVERSATIONS ARE THE SOUL OF CHAPTERS. ORCHESTRATE THE CHAPTERS BEAUTIFULLY.

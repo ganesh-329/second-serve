@@ -4843,67 +4843,239 @@ He looked at the 2 lines together. Then he underlined both, and walked home on h
 
 ## Chapter 11: The ace who left
 
-Takeda-sensei announced it at the end of Thursday practice, holding a sheet of paper in both hands like a diploma.
+Nishinoya had been right. On Thursday his legs hurt more.
 
-"Golden Week," he said. "Our training camp. And on the last day, a practice match." He took a breath. "Against Nekoma."
+Last night the ache had reached the backs of his legs. This morning it had reached his calves, and the place where his hips met his legs, and it woke up with him at 4:15 and came down the stairs with him 1 step at a time, with a hand on the banister.
 
-The second years went silent. Then Tanaka made a noise like a kettle about to blow.
+The porch light was on again.
+
+Toss and catch. The ball went up, came down, went up. On the 3rd go round he got 7 in a row in the same patch of grass, and then 9, and then the 10th came down on the edge of the patch and he had to lean for it, and that was the end of that. 9. He wrote it on the back of his hand under the ghost of yesterday's 6.
+
+---
+
+At practice, Nishinoya took him again for receive.
+
+Daichi climbed up on his chair on the other side of the net with the cart beside him. Sho got down into *shu* and stayed there, and counted. On the 3rd ball his thighs started to shake, the same as yesterday, and it hurt more getting there.
+
+"You're sitting on your knees!" Nishinoya came over and walked round him, looking at him from the side like somebody looking at a badly parked bicycle. "Your weight's all in the front. Here." He slapped Sho on the back of the hips, hard. "Back! Put it back here! Like there's a chair!"
+
+"There isn't a chair, senpai."
+
+"There's an INVISIBLE chair! Sit on it!"
+
+Sho pushed his hips back, the way he'd have told any 15-year-old on any tape to do it, and his weight came off the fronts of his thighs and went into the backs of his legs and his hips, where it was supposed to go. The shaking eased.
+
+"Like that?"
+
+"Like THAT!" Nishinoya looked delighted with himself. "See? I'm good at teaching!"
+
+Daichi hit. Sho stayed on the invisible chair. He held it for 5 balls before the backs of his legs started complaining too, and then he came up, and Nishinoya shouted "CHAIR!" at him from the side, and he went back down.
+
+Out of 30 balls off Daichi's hand, 11 went up. Nishinoya shouted "GOOD!" at 2 of them and "THINKING!" at most of the rest.
+
+"Kiyose," said Daichi, from the chair, between balls. "Better than yesterday."
+
+"Yes, Captain."
+
+"Still bad."
+
+"Yes, Captain."
+
+Daichi hit the next 1.
+
+---
+
+Takeda-sensei told them at the end of Thursday practice.
+
+He came in while they were putting the balls away and stood in the middle of the floor holding a sheet of paper in both hands, and waited until they'd all come over. The sheet had a table drawn on it in ruler lines, days across the top.
+
+"Golden Week," he said. "We'll have a training camp. And on the last day, a practice match." He took a breath. "Against Nekoma."
+
+The 2nd years went silent. Then Tanaka shot up off the floor.
 
 "NEKOMA? The Tokyo Nekoma?"
 
 "Who's Nekoma?" said Hinata.
 
-Tanaka turned to the first years with the face of a man about to tell a ghost story. Way back, he said, Karasuno's old coach and Nekoma's old coach had been rivals. The 2 schools used to play each other all the time. The whole town used to come and watch. People called it the Battle at the Garbage Dump.
+Tanaka turned round to the 1st years and lowered his voice. A long time ago, he said, Karasuno's old coach and Nekoma's old coach had been rivals. The 2 schools played each other all the time, practice matches every year, crows against cats. The whole town used to come and watch. People had a name for it.
 
-"Because crows and cats both go through the garbage," said Tanaka, with enormous pride.
+"The Battle at the Garbage Dump," said Tanaka. "Because crows and cats both go through the garbage."
 
 "That's a terrible name," said Tsukishima.
 
 "It's a LEGENDARY name."
 
-Sugawara was frowning slightly. "We haven't played them in years, though. Why now, sensei?"
+Sugawara was frowning a little. "We haven't played them in years, sensei. Not since the old coach left. Why now?"
 
-Takeda smiled and pushed his glasses up. "Let's just say," he said, "I'm hoping it gets someone's attention."
+Takeda smiled and pushed his glasses up his nose.
 
-Sho, coiling the net cable, looked at Takeda's face and filed it. That was bait.
+"Let's just say," he said, "I'm hoping it gets someone's attention."
 
-On the other side of the gym, Hinata had turned to Kageyama, bouncing. "Kageyama! Nekoma! Cats! We'll beat them, right? And the ace will be back by then, right? Asahi-san?"
+Sho, with a ball in each hand, looked at Takeda's face. It was the face of a man who'd set a trap and was very proud of it, and couldn't hide it.
+
+Daichi had been looking at the sheet in Takeda's hands. Then he looked across the gym at the stage steps, where Nishinoya was sitting with his elbows on his knees.
+
+"If we're playing Nekoma," Daichi said, "we'll want a libero who plays matches."
+
+Nishinoya looked at the far wall.
+
+On the other side of the cart, Hinata had turned to Kageyama and was bouncing on his toes. "Kageyama! Nekoma! Cats! We'll beat them, right? And the ace'll be back by then, right?" He turned round to the whole gym. "Asahi-san?"
 
 Nobody answered him.
 
-Hinata looked around at the faces. He stopped bouncing.
+Daichi looked at the cart. Sugawara looked at the ball in his hands. Nishinoya kept looking at the wall with his jaw set. Tanaka opened his mouth and shut it.
 
-"Right," he said, quieter. "Okay. Then I'll go ask him."
+Hinata looked round at all their faces, and stopped bouncing.
+
+"Okay," he said, quieter. "Then I'll go ask him."
 
 ---
 
-He went the next day, at lunch.
+Sakanoshita was on the way home for 4 of them. Hinata bought a meat bun and ate it in the doorway. Kageyama bought milk. Tanaka bought 2 buns and a drink and argued with Hinata about Nekoma with his mouth full.
 
-Sho went with him as far as the stairwell to the 3rd-year floor. Then he stopped on the landing and leaned on the railing.
+Sho asked for a meat bun and, because he'd just watched Kageyama buy 1 and suddenly wanted 1 too, put a carton of milk on the counter beside his coins.
+
+200 yen. The bun was 120 and the milk was 120.
+
+"Sorry," he said. "I'll put the milk back."
+
+The blond man at the register looked as if he'd had a long day of people. He looked at the coins, and at the milk, and at Sho.
+
+He swept the coins off the counter into his hand, took a bun out of the steamer with the tongs, and pushed it and the milk across.
+
+"Sir, that's 40..."
+
+"Next," said the man, and looked past him at Tanaka.
+
+Sho stood there with the milk in his hand. Then he bowed to the counter and went out.
+
+"I'll bring it tomorrow," he said, from the door.
+
+The man was reading his magazine.
+
+---
+
+They walked down toward the main road in a row, Tanaka in the middle, with the last of the light going purple over the rice fields.
+
+"So who's Asahi-san?" said Hinata. "Really. What's he like?"
+
+Tanaka chewed and swallowed.
+
+"Big," he said. "You'll see. People are scared of him. 1st years see him in the corridor and go the other way. There was a rumor last year he was 20 and he'd been held back twice." He snorted. "He looks like he's done time. And if you yell at him, he cries."
+
+"He cries?" said Hinata.
+
+"He's soft. He's the softest guy in the club." Tanaka looked at the bun in his hand. "And when he hit, the whole gym shook. He's my senpai, you know. When I was a 1st year and I couldn't do anything, he used to stay late and hit at me till I could."
+
+Kageyama was walking a little behind, drinking his milk. "Why did he stop?"
+
+"Ask Suga-san," said Tanaka, and bit his bun so hard that half of it went in at once.
+
+Sho walked on Tanaka's other side, holding the milk he hadn't paid for all of.
+
+He had 1 question. He'd had it since Wednesday night, since Nishinoya at the door. It was the question Satoshi would have asked about any hitter on any tape, before anything else.
+
+"Tanaka-senpai," he said. "What's the set he likes?"
+
+Tanaka looked at him sideways. "Huh?"
+
+"Asahi-san. Which ball."
+
+Tanaka walked a few more steps. The bun was gone, and he folded the paper round his fingers.
+
+"The bad 1," he said. "When everything's gone wrong. Nobody's passed it right and Suga-san's running backward and he just throws it up as high as he can, out to the left, and everybody knows it's going to Asahi-san because there isn't anybody else." He looked at the road ahead. "He used to shout for those. Suga-san's name. From the back of the court. You could hear him over everything."
+
+Nobody spoke after that until the next corner. A truck went past with its lights on.
+
+"Was he cool?" said Hinata. "When he hit those?"
+
+Tanaka laughed, a short real 1, and put him in a headlock. "He was SO cool," he said, into Hinata's hair, and Hinata yelled, and Kageyama stepped round them both and kept walking, and Sho followed with the milk.
+
+*The bad 1. When everything's gone wrong.* Satoshi had hit that ball for years, the 1 you couldn't hide from, because there was nobody else to throw it to. A team had 1 of those. 1 person.
+
+---
+
+At home, Mio was on the sofa with her homework spread over the low table and her feet on Dad's newspaper. She looked up when Sho came in, at his face, then down at his knees, then at his hands.
+
+"What's that?"
+
+He looked at the back of his hand. *9*, in blue, over the gray smudge of yesterday's *6*.
+
+"Toss and catch."
+
+"It went up."
+
+"By 3."
+
+She thought about it with her pencil in her mouth. "Still bad."
+
+"Yes."
+
+"To 20?"
+
+"To 20."
+
+"That's 11 more." She did it on her fingers anyway, to check. "That's ages."
+
+"Yes."
+
+Mio looked at his knees again. Then she went back to her homework.
+
+"Your milk's dripping," she said, writing, and it was, a little, out of the corner of the carton he'd forgotten he was holding.
+
+He took the stairs 1 at a time, with a hand on the wall, and on his bed he opened the notebook and wrote under Wednesday's lines:
+
+> Nekoma. Golden Week, last day.
+>
+> Asahi-san. Best ball: the bad 1. Used to shout for it.
+
+He looked at the 2nd line, and at the 1st, and turned off the light.
+
+---
+
+Hinata went on Friday, at lunch.
+
+Kageyama was waiting at the top of the 1st-year stairs when Hinata came out of 1-1. Nobody had asked him to. He fell in beside Hinata with his hands in his pockets, and Hinata looked round at him and let him.
+
+Sho met them on the way and went with them as far as the stairs to the 3rd-year floor. Then he stopped on the landing and leaned on the railing.
 
 "You're not coming?" said Hinata.
 
-"3rd-year air costs extra," said Sho. "I'm poor."
+"I'll wait here."
 
-The real reason was that this was Hinata's visit. Hinata wanted to meet the ace. Sho wanted to watch the ace, which was a different and much worse thing to bring into a classroom.
+"Why?"
 
-Hinata shrugged and went up. Kageyama, who'd come along without anyone asking him, went up after him. Sho stayed on the landing and ate half a meat bun and listened.
+"It's his floor," said Sho. "3 of us is a lot of 1st years."
 
-The 3rd-year floor was louder than the 1st. He heard Hinata's "Shitsurei shimasu!" at a classroom door, much too loud. He heard a classmate call out, "Azumane! There's a first year here for you!" He heard Sugawara's voice, surprised and warm, making introductions.
+Hinata thought about that, and seemed to decide it was a reason, and went up. Kageyama went up after him.
 
-Then he heard a voice he didn't know. Low, soft, a little hesitant, the voice of somebody big who'd spent years trying to take up less room.
+Sho stayed on the landing and ate his meat bun, the 1st of the 2 he'd bought at the 7-Eleven by the station on his way to school, and listened.
 
-He couldn't hear all of it. He caught pieces. Hinata saying he wanted to be an ace. Hinata saying like you. Then a pause, much longer than it needed to be.
+The 3rd-year floor was louder than the 1st. He heard Hinata's "Shitsurei shimasu!" at a classroom door, much too loud. He heard somebody in the room call, "Azumane! Some 1st years here for you!" He heard Sugawara's voice, surprised and warm, coming over to make introductions.
 
-Then the soft voice again, and this part Sho heard clearly.
+Then he heard a voice he didn't know. Low and soft and a little careful, the voice of somebody big who'd spent years trying to take up less room.
+
+He caught pieces.
+
+"...the Little Giant, on TV, at Nationals, and he was small like me, and he..." That was Hinata, much too fast.
+
+Something low from the soft voice, too low to catch.
+
+"...so I want to be the ace! Like him! And everybody says you're the ace, so I wanted to see..."
+
+"Hinata," said Sugawara, somewhere in there, the way you'd put a hand on somebody's arm.
+
+Then a pause, much longer than it needed to be.
+
+Then the soft voice again, and that part Sho heard clearly.
 
 "I'm not the ace."
 
-Footsteps. A door. Somebody walking away fast down the corridor, in the other direction.
+A chair scraped. Footsteps, going away down the corridor in the other direction, fast for somebody that big.
 
-Sho finished his half of the meat bun. He folded the paper sleeve in half and put it in his pocket.
+Sho finished his meat bun. He folded the paper sleeve in half and in half again and put it in his pocket.
 
-Hinata and Kageyama came back down 5 minutes later. Hinata looked like somebody had told him Santa Claus wasn't real. Kageyama looked like he was thinking very hard about something he didn't have the words for.
+Hinata and Kageyama came back down 5 minutes later. Hinata's face had gone very still, the way it never was. Kageyama was frowning.
 
 "He said he's not the ace," said Hinata.
 
@@ -4913,123 +5085,231 @@ Hinata and Kageyama came back down 5 minutes later. Hinata looked like somebody 
 
 "I heard that too."
 
-Hinata stared at the floor for a second. Then his chin came up.
+"He had his hands in his pockets," said Kageyama. "The whole time. Even when Hinata bowed." He frowned harder, at the stairs. "Hitters don't do that."
+
+Hinata looked at the floor. Then his chin came up.
 
 "Then I'll be the ace," he said.
 
-Sho looked at him. All 163 centimeters of him.
+Sho looked at him. All 163 centimeters of him, standing on the landing with his fists closed.
 
 "Okay," said Sho.
 
 Hinata blinked. "You're not going to say I'm too short?"
 
-"You know you're short. You don't need me to tell you." Sho pushed off the railing. "Go eat. You'll faint in 5th period."
+"You know you're short."
 
-They went down. Sho waited on the landing a little longer. He had the other meat bun in his bag, the one he'd been saving for after practice.
+Hinata opened his mouth, and shut it, and looked at Kageyama. Kageyama shrugged.
 
-He didn't know why he waited. He'd stopped asking himself questions like that around the time he'd died.
+"Go and eat something," said Sho. "You'll fall over in 5th period."
 
-Ten minutes before the bell, somebody came down the stairs.
+They went down. Sho stayed on the landing.
 
-He was huge. That was the first thing. Taller than Sho by a few centimeters and much wider, with long dark hair tied back and a bit of stubble on his chin, so that he looked like a college student who'd wandered into the wrong building. He came down the stairs with his shoulders hunched in, his eyes on his feet.
+He had the 2nd meat bun in his bag. He'd been saving it for before practice. He left it there and stayed where he was, with his arms on the railing, and watched the stairs.
 
-He saw Sho on the landing and stopped. Sho watched him read the color of Sho's indoor shoes, which said 1st year, and then read his face, and then flinch slightly, as if Sho might also want to tell him he was an ace.
+10 minutes before the bell, somebody came down them.
+
+He was big. That was the 1st thing. Taller than Sho by a little, and much wider, with long dark hair tied back at his neck and a shadow of stubble on his chin, so that he looked older than any of them, like somebody's uncle who'd come to pick them up. He came down with his shoulders hunched in and his eyes on his feet, holding a carton of juice he hadn't opened.
+
+He saw Sho on the landing and stopped.
+
+Sho watched him take it in. The color of Sho's indoor shoes, which said 1st year. Sho's face. And then a small flinch, as if Sho might also be about to tell him what he was.
 
 Sho took the meat bun out of his bag and held it out.
 
-"Bought one too many," he said.
+"Bought 1 too many," he said.
 
 The big 3rd year looked at the meat bun. Then at Sho.
 
 "...Sorry," he said, and took it.
 
-Sho nodded and walked down the stairs ahead of him, and didn't look back.
-
-In the 2 months before Satoshi's knee went, nobody had asked him why he'd stopped calling for the ball. He wouldn't have told them anyway. The most anyone could have done was let him know he'd been seen, without making him explain it.
-
-That was all Sho gave him. It was all there was to give.
+Sho gave him the small bow you give a senpai on a staircase, and walked down the stairs ahead of him to the 1st-year floor, and didn't look back to see whether he'd eaten it.
 
 ---
 
-Sugawara told them the rest that afternoon, sitting on the edge of the stage while the others stretched.
+Sugawara told them the rest that afternoon.
 
-Asahi was the tallest on the team. The strongest. So, last year, he'd become the ace without anyone really deciding it. When things got desperate, the ball went to him. When the team couldn't score, it was Asahi's job to score. Every opponent knew it, so every opponent's block went straight for him.
+It was before practice, while the others were stretching. Hinata had gone to him the moment he walked into the gym and asked, and Sugawara had looked at him, and then at the door, and then sat down on the edge of the stage with a ball in his lap, and the 1st years had sat down on the floor in front of him without being told to. Even Tsukishima, a little apart, with his back against the wall.
 
-Then they'd played Date Tech, in the prelims. Date Tech had a block they called the Iron Wall.
+"Asahi's the tallest of us," Sugawara said. "And the strongest. You've seen him. So last year he became the ace without anybody really deciding it. When things got bad, the ball went to him. When we couldn't score, he was the 1 who had to." He turned the ball over in his hands. "And every team we played knew that. So every block we played went straight to him."
 
-"Every spike," Sugawara said. "Every single one he hit. Blocked."
+"That's what an ace is," said Hinata.
 
-He said it quietly, and then he was quiet for a moment.
+"Mm," said Sugawara. "Then we played Date Tech in the prelims. Date Tech have a block people call the Iron Wall. 3 big guys who all go up together, and they go wherever the ace goes." He stopped. "Every spike he hit that day, they blocked. Every 1. I don't think he got a single ball past them."
 
-"After that he started to hate volleyball, I think. A little. And he and Nishinoya fought about it. And then he stopped coming."
+The gym had gone quiet around them. Behind them, Tanaka had stopped stretching.
 
-Hinata was listening with his whole body. Kageyama was listening with his arms folded. Tsukishima was pretending not to listen and had stopped stretching.
+"After that," said Sugawara, "I think he started to hate it a bit. Volleyball. Being the 1 who has to. He and Nishinoya had a fight about it. Nishinoya said he should keep asking for the ball. Asahi said something like, what's the point, if it just comes back down. And then he stopped coming."
 
-Sho was looking at Sugawara's hands. Sugawara's hands were holding a ball on his knee, and his thumbs kept moving over the panels, the way a setter's thumbs move before a set.
+"Because of 1 match?" said Hinata.
+
+"...It was a lot of balls, Hinata," said Sugawara.
+
+Kageyama had been sitting with his arms folded the whole time. He frowned.
+
+"If the ace gets blocked every time," he said, "that's the setter's fault too."
+
+Sho was looking at Sugawara's hands.
+
+They'd been moving on the ball the whole time, the thumbs going over the panels, round and round, the way a setter's thumbs go before a set. When Kageyama spoke, they stopped.
+
+"...Yeah," said Sugawara. "It is."
+
+He said it lightly, and smiled at Kageyama, an ordinary smile, and stood up off the stage.
+
+"Warm-up," he said. "Come on. Daichi's looking."
+
+Kageyama went. Hinata went. Tsukishima pushed himself off the wall and went.
+
+Sho went last. He looked back once. Sugawara had put the ball down on the stage and was standing beside it with his hands empty, looking at nothing, and then Daichi called his name and he turned and went.
+
+In the warm-up lines Hinata ended up next to Sho, jogging in place, with his face still screwed up.
+
+"Kiyose," he said. "If you got blocked every time. Every single ball. Would you come back?"
+
+Sho thought about it properly, because Hinata had asked it properly.
+
+"I'd want the next 1," he said. "Mostly so I could see what they did."
+
+"Me too," said Hinata at once, and then, after a few more steps on the spot: "...I think."
+
+Then it was Hinata's turn in the line, and he ran.
+
+At the receive drill, Nishinoya came and stood next to Sho in the line while Daichi climbed back up on his chair.
+
+"You went up there," Nishinoya said. "At lunch. Hinata said."
+
+"I stayed on the landing, senpai."
+
+"Did you see him?"
+
+"On the stairs. After."
+
+Nishinoya was looking at the ball cart. "And?"
+
+"I gave him a meat bun."
+
+Nishinoya turned his head and looked at him. "Did he eat it?"
+
+"I didn't stay to see."
+
+Nishinoya thought about that. Then he nodded.
+
+"He'll have eaten it," he said. "He eats when he's sad. He eats everything." He bounced on his toes, once, twice, and dropped into *shu*. "Get down. Chair. You're up next. And if you stand up on me again I'm telling Daichi-san."
+
+Sho got down onto the invisible chair. His legs were better than Thursday. He held it for 6.
 
 ---
 
-The meat buns at Sakanoshita were still 120 yen. Sho had stopped haggling, mostly, and started going for the conversation.
+On Friday, after practice, Sho went into Sakanoshita on his own with the 40 yen from yesterday in his pocket, and found Takeda-sensei at the register, bowing.
 
-On Friday afternoon he walked in and found Takeda-sensei bowing at the register.
+A deep bow, all the way down, with a stack of papers held against his chest.
 
-A deep bow, papers clutched to his chest, head down.
+"Please," Takeda was saying. "Just once. Just come and look at them."
 
-"Please," Takeda was saying. "Just once. Just come and look."
+"No," said the blond man behind the counter.
 
-"No," said the blond guy behind the counter, around an unlit cigarette.
+"Ukai-kun, I'm asking you as..."
 
-"Ukai-kun, I'm asking..."
+"Every day this week, sensei." The man turned a page of his magazine. "Go home."
 
-"And I'm saying no. 5th time you've said it this week. 5th time I've said no. We've got a rhythm."
+Sho stopped in the doorway.
 
-Sho stopped in the doorway. Ukai. He knew that name. Kageyama had said it on the walk home. The famous old coach. The one who'd collapsed.
+*Ukai.*
 
-The blond guy's last name was Ukai.
+He knew that name. Kageyama had said it on Wednesday night, on the walk home, with a popsicle stick in his hand. The famous old coach. The 1 who'd taken Karasuno to Nationals. The 1 who'd collapsed before Kageyama got here.
 
-The papers slipped out of Takeda's arms as he straightened up and fanned out across the floor. Sho crouched without thinking and gathered them, squaring the edges against his knee. The top sheet said Karasuno High School Boys' Volleyball Club across the top in Takeda's neat handwriting, with a list of names. His own was the last one.
+The blond man at the register, who gave him the biggest bun every time and let 40 yen go without a word, was named Ukai.
 
-He handed the stack back to Takeda without a word.
+Takeda straightened up too fast, and the papers slid out of his arms and fanned out across the floor between the shelves.
 
-Takeda flushed. "Kiyose-kun. Ah. Thank you."
+Sho was crouched down and gathering them before he'd thought about it. Practice schedules. A list of gym times. A sheet with *Karasuno High School Boys' Volleyball Club* across the top in Takeda's neat handwriting, and under it a list of names, 3rd years, 2nd years, 1st years. His own name was the last 1. Somebody had written it in carefully and then gone over it again, as if they'd wanted to be sure of the characters.
 
-The blond guy, Ukai, looked at Sho. Then at Takeda. Then back at Sho, with growing suspicion.
+He squared the edges against his knee and handed the stack back.
 
-"Is this one of yours?"
+"Kiyose-kun." Takeda had gone pink. "Ah. Thank you."
 
-"I'm a regular customer," said Sho. "Sensei, if I may." He turned to Ukai. "The trick is, don't ask him to coach. Ask him to just watch. 10 minutes. He doesn't even have to put out his cigarette."
+The man behind the counter looked at Sho.
 
-"I don't smoke in here," said Ukai.
+"That 1 tries to get my buns for 100," he said to Takeda.
 
-"Then he doesn't even have to light it."
+"He's 1 of ours," said Takeda.
 
-Ukai stared at him for a long moment.
+"Tch."
 
-"Both of you," he said. "Out."
+Sho put 120 yen on the counter, exactly, and the man took a bun out of the steamer, the biggest 1 in it, the way he always did, and Sho said "Thank you," and went out after Takeda.
 
-They went out. Takeda was still smiling, somehow. On the pavement outside, he looked at the shop window, where Ukai had already gone back to his magazine, and said, half to himself, "6th time tomorrow."
+---
+
+On the pavement outside, Takeda stood looking back through the glass at the shop.
+
+"6th time tomorrow," he said, half to himself.
 
 "Sensei," said Sho. "Why him?"
 
 Takeda looked at him. Then he looked back at the shop.
 
-"He was a setter here. At Karasuno. His grandfather was our coach, back when we were strong." He pushed his glasses up. "I don't know volleyball, Kiyose-kun. I read about it every night and I still don't know it. You all deserve someone who does."
+"He played here," he said. "At Karasuno. He was a setter. And his grandfather was our coach, back when we were strong. The 1 they still talk about." He held the papers a little tighter. "Everybody I ask says the same thing. If anybody in this town knows how to coach Karasuno, it's somebody named Ukai."
 
-He bowed to Sho, a small one, and walked off toward the station with his papers held tight.
+"Does he want to?"
 
-Sho stood outside Sakanoshita and thought about a man who'd bowed 5 times in a week to a guy who kept saying no, for a team that wasn't even his sport.
+"I don't know," said Takeda. "He says no very quickly. Sometimes people say no quickly because they've thought about it a lot."
 
-Then he went back inside and bought a meat bun at full price.
+"The Nekoma match," said Sho. "Is that for him?"
 
-Ukai looked up. "What."
+Takeda looked at him, and then he laughed.
 
-"Nothing," said Sho. "120, please."
+"Is it that obvious?"
 
-Ukai gave him the biggest one in the warmer. Again.
+"Your face, sensei. When you told us."
 
-**Continuity (ch 11, 1st half)**
+"Ah." Takeda touched his own cheek. "Nekomata-sensei, Nekoma's old coach, has gone back to coaching them. He and Ukai-kun's grandfather were rivals for 30 years." He smiled at the shop window. "If anything brings an Ukai into that gym, I think it'll be that. And if it doesn't, I'll come back tomorrow."
 
-- Split Nov 14 (Option B) from old ch 10; this half gets its full Continuity block when it is rebuilt. Facts for this stretch are in the 2nd half's old block below.
+He pushed his glasses up.
+
+"I read about volleyball every night, Kiyose-kun, and I still don't know it. I don't know what a good receive looks like, or why Kageyama-kun's sets are special. I only know they are, because everybody's face changes when he sets." He looked down at the papers. "I don't know volleyball. You all deserve someone who does."
+
+Sho stood on the pavement with his meat bun going cold in his hand.
+
+Satoshi had worked 9 years under coaches who knew volleyball. He tried to think of 1 of them who'd have bowed to a shop counter 5 times in a week, for a sport that wasn't his.
+
+"Thank you, sensei," he said.
+
+Takeda looked surprised. "For what?"
+
+Sho didn't have an answer that wouldn't sound strange, so he bowed. Takeda bowed back, a small 1, with the papers held to his chest, and walked off toward the station.
+
+Sho stayed where he was, with the 40 yen in his hand now, and turned back to the door to pay it.
+
+Through the glass, the man behind the counter had put down his magazine. He'd bent down behind the register, out of sight, and come up again with a sheet of paper in his hand, 1 that had gone under the counter when the stack fell, that Sho had missed. It had a table on it in ruler lines, days across the top. Takeda's Golden Week sheet.
+
+Ukai held it up to the light from the drinks fridge and read it, top to bottom, slowly, with the unlit cigarette in the corner of his mouth. At the bottom, he stopped. Whatever was written in the last box, he read it twice.
+
+Then he folded the sheet in half, and put it in the pocket of his apron, and picked his magazine back up, and stared at the same page, and left it open there.
+
+Sho put the 40 yen back in his pocket. He'd pay it on Monday. He went home the long way, past the school, where the gym lights were off and the shutters were down, and every window was dark.
+
+**Continuity (ch 11)**
+
+- Revised Nov 22 (revision pass of ch 1 to 34). Old ch 10, scenes 1 to 4 (Option B split): Thursday 4:15 a.m. to Friday evening. No status card (cards retired Nov 22).
+- Canon: Takeda announces a Golden Week training camp with a practice match against Nekoma on the last day, "I'm hoping it gets someone's attention" (the lure for Ukai); Tanaka's Battle at the Garbage Dump; Hinata and Kageyama visit Asahi on the 3rd-year floor, Suga introduces them, Asahi says he isn't the ace and leaves; Suga tells the Date Tech story (Iron Wall, every spike blocked, the fight with Noya, Asahi stopped coming); Takeda bows to Ukai at Sakanoshita day after day; Ukai is a former Karasuno setter and old Coach Ukai's grandson; Nekomata has come back to coach Nekoma (rival of old Ukai). Asahi about 185 cm. Invented: the exact wording throughout; the Golden Week sheet Ukai keeps; the rumor about Asahi's age.
+- Thursday: legs worse (backs, calves, hips); porch light on again; toss-and-catch best run **9** (on his hand over the *6*). Receive: *shu* shakes on the 3rd ball; **Noya fixes his hips ("Like there's a chair!" "There's an INVISIBLE chair!")**, he holds it for 5; **11 of 30 up**; Daichi: "Better than yesterday." "Still bad."
+- Takeda's sheet: a ruled table, days across the top (the Golden Week sheet). Daichi: "If we're playing Nekoma, we'll want a libero who plays matches." (Noya looks at the wall.) Hinata: "And the ace'll be back by then, right? Asahi-san?" Nobody answers. "Then I'll go ask him."
+- **Sakanoshita, Thursday: Sho is 40 yen short (bun 120 + milk 120, 200 yen). Ukai sweeps the coins, gives him both: "Next." Sho: "I'll bring it tomorrow."** (ch 12, "40 yen": Ukai calls it in on Monday; Sho has the coins.)
+- The walk: Tanaka on Asahi (people scared of him; the rumor he was 20 and held back twice; "He looks like he's done time. And if you yell at him, he cries."; "the softest guy in the club"; stayed late to hit at Tanaka when Tanaka was a 1st year). **Sho: "What's the set he likes?" Tanaka: "The bad 1. When everything's gone wrong... he used to shout for those. Suga-san's name. From the back of the court."** (ch 14 delivers the words; arc 3's "the bad ball is the ace's ball"). Hinata: "Was he cool?" "He was SO cool."
+- Home: Mio: "It went up." "By 3." "Still bad." "Yes." "To 20?" "That's 11 more... That's ages." Knees again. "Your milk's dripping." Notebook: *Nekoma. Golden Week, last day. / Asahi-san. Best ball: the bad 1. Used to shout for it.*
+- Friday lunch: Kageyama (1-3) waits for Hinata (1-1) at the top of the 1st-year stairs. Sho on the landing ("It's his floor. 3 of us is a lot of 1st years."); 2 meat buns from the 7-Eleven by the station. Heard in pieces: Hinata on the Little Giant on TV at Nationals; "I'm not the ace."; a chair; footsteps. **"He said he's not the ace." "I heard." "He just. Left." "I heard that too." Kageyama: "He had his hands in his pockets. The whole time... Hitters don't do that." Hinata: "Then I'll be the ace." "Okay." "You're not going to say I'm too short?" "You know you're short."**
+- **The landing: Asahi (big, hair tied back, stubble, unopened juice) sees Sho, flinches; "Bought 1 too many." "...Sorry."** Bun 1 of the Asahi bun thread (arc 2 "That's 3"). Sho walks down ahead and doesn't look back.
+- Suga's story (on the stage, 1st years on the floor, Tsukishima by the wall): in direct speech; "they go wherever the ace goes"; "...It was a lot of balls, Hinata." **Kageyama: "If the ace gets blocked every time, that's the setter's fault too." Suga's thumbs stop: "...Yeah. It is."** (Ch 12's confession must go further: the relief when Kageyama came, "one more time"; it must not repeat "my fault".) Suga left with empty hands by the stage.
+- Hinata in the warm-up line: "If you got blocked every time... Would you come back?" Sho: "I'd want the next 1. Mostly so I could see what they did." "Me too... I think."
+- Noya: "Did he eat it?" "I didn't stay to see." "He'll have eaten it. He eats when he's sad." Friday: *shu* held for 6.
+- Sakanoshita, Friday: Takeda bowing; "Every day this week, sensei. Go home."; **Sho learns the clerk is Ukai** (Kageyama's walk, ch 10); squares the papers, his own name last, written carefully and gone over; Ukai: "That 1 tries to get my buns for 100." Takeda: "He's 1 of ours." "Tch." The biggest bun. The 40 yen stays in his pocket.
+- Outside: "6th time tomorrow." **"Why him?" "...If anybody in this town knows how to coach Karasuno, it's somebody named Ukai." "Does he want to?" "...Sometimes people say no quickly because they've thought about it a lot." "The Nekoma match. Is that for him?" "Is it that obvious?" "Your face, sensei."** Nekomata back coaching Nekoma, rivals with old Ukai for 30 years. **"I don't know volleyball. You all deserve someone who does."** (word for word kept).
+- **Hook: through the glass Ukai finds the Golden Week sheet under the counter, reads it top to bottom, reads the last box twice, folds it into his apron pocket, stares at 1 page.** Sho keeps the 40 yen for Monday.
+- **For ch 12 (must change):** cut "Shop-niisan?! You stalker. You followed my wallet here." (Sho already knows who Ukai is); the 40 yen: Sho reaches for the coins ("Thursday." "...I have it." / Ukai: "Keep it. I keep a tab." or similar); cut "Sho found out later" about the Nekoma lure and "Takeda had won it with nothing but bows. Sho had squared some papers."; the meat bun was **3** days ago, not 4; Suga's confession must go past "my fault".
+- No eye events. Body (Nov 22): toss 6 → 9; *shu* 3 → 5 (with the hips fixed) → 6; 11 of 30.
+- Ace line: "The bad 1. When everything's gone wrong." *A team had 1 of those. 1 person.* / "I'd want the next 1."
+- Next: Ch 12 "40 yen": Monday: Ukai walks in as coach.
 
 ## Chapter 12: 40 yen
 
