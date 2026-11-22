@@ -5,9 +5,9 @@ Arc 3 (ch 35 to 50) is finished and Arc 4 (ch 51 to 72) is fully planned. We are
 
 I reread the early chapters and the soul was corrupted in most of them: the conversations weren't meaningful, many had errors, too much read as AI writing, and the pacing was too fast. We're rebuilding them chapter by chapter, in order. We go to Arc 4 only when this is done.
 
-**Done so far:** ch 1 to 6 are revised (Ball to the face, The wig, Dawn reps, The King, Eyes closed, Jackets). The chapter count grew by 5 (Option B), and everything is renumbered: Arc 1 is ch 1 to 18, Arc 2 ch 19 to 34, Arc 3 ch 35 to 50, Arc 4 ch 51 to 72. The old-to-new table is `planning/revision/CHAPTER_MAP.md`.
+**Done so far:** ch 1 to 8 are revised (Ball to the face, The wig, Dawn reps, The King, Eyes closed, Jackets, Blue castle, Bottle cap). The chapter count grew by 5 (Option B), and everything is renumbered: Arc 1 is ch 1 to 18, Arc 2 ch 19 to 34, Arc 3 ch 35 to 50, Arc 4 ch 51 to 72. The old-to-new table is `planning/revision/CHAPTER_MAP.md`.
 
-**Next:** finish ch 7 "Blue castle". A full draft is saved at `planning/revision/drafts/ch07_draft.md`; it hasn't been grepped or reviewed yet. Then ch 8 "Bottle cap". The handoff's "Next" line has the details.
+**Next:** ch 9 "Grand King" (set 3 of the Seijoh practice match). The handoff's "Next" line has the details.
 
 ## The heart of it (my words)
 THE CONVERSATIONS ARE THE SOUL OF CHAPTERS. ORCHESTRATE THE CHAPTERS BEAUTIFULLY.
@@ -25,7 +25,9 @@ Chapters are slow and stretched out, but they must never lag. Every scene earns 
 - The Haikyuu wiki dump: `haikyuufandomcom-20200223-history.xml.7z` in the repo. Extract it into the scratchpad with py7zr in a venv, then split it into 1 text file per article (about 1,243). The manga chapter and match pages are empty stubs; character, team, episode and "List of matches" pages hold the detail.
 
 ## What a revision may and may not change
-Keep every plot beat and every fact a later chapter relies on: who knows what, the eye's firings and costs (the ledger's section 2), scores and results, bets, notebook lines, nicknames, promises, stat cards, planted threads. If a fix needs a fact changed, stop and ask me first, and list every later chapter it touches. You may rebuild scenes and conversations from scratch, add scenes inside the same stretch of time, slow down rallies that matter (serve, pass, set, hit, where, why), fix canon, volleyball and continuity errors, and fix titles that break the style rules.
+Keep every plot beat and every fact a later chapter relies on: who knows what, the eye's firings and costs (the ledger's section 2), scores and results, bets, notebook lines, nicknames, promises, planted threads (stat cards are retired, Nov 22). If a fix needs a fact changed, stop and ask me first, and list every later chapter it touches. You may rebuild scenes and conversations from scratch, add scenes inside the same stretch of time, slow down rallies that matter (serve, pass, set, hit, where, why), fix canon, volleyball and continuity errors, and fix titles that break the style rules.
+
+My decisions (Nov 22): **grounded tone**, no status cards, letter grades or named power stages anywhere in or after chapters; growth shows through training results, match performance and coach feedback. **The body earns what the mind knows**: visible, measurable weaknesses in strength, stamina under match conditions, landing mechanics and repeated jumping, fixed over time by training on the page (bible "Body").
 
 My decisions already made (Nov 13): exam pass line stays 30; Aone stuffs Sho twice in ch 23 and Sho tools a block with Aone in it; the Nekoma practice match is 3 games; Sho plays the wing (outside hitter), never a hidden opposite; Seijoh plays 2 more matches the afternoon it beats Karasuno; the Inter-High final is 22-25, 23-25; "Observation Haki" is a thought only, never said aloud.
 
