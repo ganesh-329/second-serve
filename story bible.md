@@ -572,7 +572,7 @@ Meta Vision is learned, grown from Satoshi's analyst habits, with no awakening. 
  
 ### Status cards (RETIRED Nov 22: kept for history only)
 
-**User, Nov 22: grounded tone.** The cards gave readers an easy way to track growth, but they fought the story's grounded presentation, and the Emperor's Eye and Meta Vision labels added a game-like progression. The story should feel like a sports novel. No more cards, letter grades or stage names in chapters. Growth shows through training results, match performance and coach feedback. The cards already in ch 1 and 5 are removed; the ones in arc3.md (ch 41, 44, 50) are to be removed when the user says so; ch 16 and any later card in ch 1 to 34 go as each chapter is revised.
+**User, Nov 22: grounded tone.** The cards gave readers an easy way to track growth, but they fought the story's grounded presentation, and the Emperor's Eye and Meta Vision labels added a game-like progression. The story should feel like a sports novel. No more cards, letter grades or stage names in chapters. Growth shows through training results, match performance and coach feedback. The cards already in ch 1 and 5 are removed; the ones in arc3.md (ch 41, 44, 50) were removed Nov 22 (user: yes); ch 16 and any later card in ch 1 to 34 go as each chapter is revised. The Arc 4 plan's card lines (planning/arc4, "Status card plan") are retired too: write the growth as training results, match performance and coach feedback.
 
  
 Sho has no system. No windows, no quests, no shop, and he never sees a status screen.

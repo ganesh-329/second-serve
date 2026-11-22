@@ -2283,7 +2283,7 @@ Ukai leaned over and read it upside down, and grunted, and turned the roof light
 - **At the door: "Keishin. That one sees the hit before the hitter does. Bring him back after the camp. I want to see if he's done it."** Sho's full New Year bow.
 - **Drive back:** Ukai drove with both hands. "He said that to me when I was 12. About blocking. I've been working out what it means for 14 years." (Keishin 26.) "*Sees the hit before the hitter.* What's that about?" "I see things early. It's IQ." "You heard that?" "You said it to Takeda-sensei. In the gym. Before exams." (ch 35) "Annoying old man." Sho practiced ruling out on traffic (blue car, delivery van); slow; a little ache like after Classical homework; "the most fun he'd had all week." A taxi U-turned where nothing could turn: "Taxi."
 - **8:20 at the gate, roof light:** under *So keep it. Then what?*: *Look at what can't happen. Stand in what's left. / Slow for a month. (He said maybe 2.) / Saitama: 16 days.* (Takeda pinned the camp letter to the club room door.) Ukai read it upside down, grunted, turned the light off.
-- Next: Ch 41 "Saitama" (Sho): the doctor's check-up before leaving ("adapted, like any muscle"); midnight bus to Shinzen; the week-long camp; begs Yaku for reps; Reception D to C (status card); serve targeting on Ubugawa; the eye holds 2 rallies without soreness for the 1st time.
+- Next: Ch 41 "Saitama" (Sho): the doctor's check-up before leaving ("adapted, like any muscle"); midnight bus to Shinzen; the week-long camp; begs Yaku for reps; Yaku's receive reps; serve targeting on Ubugawa; the eye holds 2 rallies without soreness for the 1st time.
 
 ## Chapter 41: Saitama
 
@@ -2713,19 +2713,9 @@ Sho stood on the path in the dark with his towel round his neck. He looked at th
 
 He went.
 
-```
-[Kiyose Sho]
-Age: 15 | Height: 182cm | Karasuno #13
-Power: C   Jump: B   Speed: C   Stamina: B
-Reception: C (from D)   Serve: D   Block: E   Set: E
-Mentality: B   Shamelessness: S
-Emperor's Eye: Partial awakening
-Meta Vision: Scanning
-```
-
 **Continuity (ch 41)**
 
-- Sho POV. The 16 days before camp, the check-up, the midnight bus, Shinzen days 1 to 3. **Status card: Reception D to C (Yaku's 10).** Emperor's Eye stays *Partial awakening* on the card (the bible's "Adapting" stage is prose-only; the card jumps to Conditioned at ch 50). Meta Vision still Scanning on the card.
+- Sho POV. The 16 days before camp, the check-up, the midnight bus, Shinzen days 1 to 3. Status card removed Nov 22 (user: grounded tone). Growth on the page: Yaku's 10 (receive).
 - **16 days:** ruling out in the receive line (Tanaka's toss, Ennoshita square, Asahi's jump serve: Asahi started it on his own that week, 20 a day, mostly net or ceiling; his). Slow, then a little less slow in the 2nd week. Yachi films every evening; heels still come down, "in a wider place now... right for 2 balls, sometimes 3"; on tape "like somebody stepping into a doorway." Hinata went with the shop van twice more; **Kageyama stays late setting to an empty court, trying to stop the ball at the top (canon stopping toss; his)**. Mio's notebook: *6. Says "it's fine" in his normal voice when it IS fine. (Check.)* *7. Talks to the cat next door.*
 - **Clinic (same as June: up the stairs above the pharmacy, TV with high school baseball; same doctor, glasses in her hair):** Mom took the afternoon off. Mio's sticky note on his hand: *1. Is it better. 2. How much better (number).* Chart to the bottom; pen all the way in; the fly stood up; visual field test ("Full fields. Nothing missing. That's the 1 I wanted, after June."). June numbers vs today side by side. **"They've adapted. Like any muscle you train."** Same rule (hurts = stop); **screens now 2 hours, still not before bed.** "If June was 100, today's about 120." In the stairwell Mom held his cuff (as when he was 4); cold green tea, half each.
 - **Midnight bus:** Dad walked (bag; shirtsleeves); Mio in pajamas and cardigan, school shoes, no socks. **Mio did the door check (knees, then arms) in front of him and the team.** Patted the sticky note in her pocket. "9:30." "9:30." Didn't turn round. Tanaka: "Your sister's scary."
@@ -3437,7 +3427,7 @@ He'd tell the kid himself, when they got home, at Karasuno, in a room under the 
 - **Game 2 vs Shinzen: at 8-12, Ukai's timeout bans the new quick (canon decision; wording invented):** "It's not ready... In practice, every night... In a game, no. Not until it works in practice 7 times out of 10... normal quicks. 1st tempo... You lose a game here, you run a hill. You lose a game at the Spring High, you go home. I'd rather you ran the hill." "Yes, Coach" together, glaring. **Lost 20-25** (Karasuno still winless at camp; the 1st win is ch 46).
 - **Night, vending machines, Takeda:** "It's IQ." ... **"And an arm... He's a wing spiker, sensei. He's an ace... He needs 5 kilos... Legs, shoulders. A year of somebody putting bad balls up for him. And the weight room."** "I'll find the key." "That's on me." Ikkei's line ("*That one sees the hit before the hitter does*"), worked on for 3 weeks: "He'd have seen the arm too, from the door."
 - **Nekomata (cardigan):** "I'd like to borrow him tomorrow, after lunch. For half an hour. I have some tape." Ukai: "His doctor gives him 2 hours of screens a day. Don't use them all." "Half an hour. I promise." Nekomata stood in the 3rd gym doorway watching, like Ikkei. Ukai stayed put. **He'll tell Sho at home, in the weight room behind the 1st gym, with the key: "*You're a wing spiker. Act like it.*"** "The key. Don't forget." "I won't."
-- Next: Ch 44 "All of it" (Sho): day 7: Nekomata's tape after lunch ("You'd make a fine analyst." "I'd rather play."); Akaashi teaches him hands (Set E to D, status card); the 9:30 call where he tells Mio all of it (including the hand that went halfway up on its own, "No", staying on; playing the wing). The weight-room news is Ukai's to deliver at home (not in ch 44).
+- Next: Ch 44 "All of it" (Sho): day 7: Nekomata's tape after lunch ("You'd make a fine analyst." "I'd rather play."); Akaashi teaches him hands; the 9:30 call where he tells Mio all of it (including the hand that went halfway up on its own, "No", staying on; playing the wing). The weight-room news is Ukai's to deliver at home (not in ch 44).
 
 ## Chapter 44: All of it
 
@@ -3815,19 +3805,9 @@ Sho stayed on the bench, looking at the lit door. His fingertips ached.
 
 Then he got up, and went to watch.
 
-```
-[Kiyose Sho]
-Age: 15 | Height: 182cm | Karasuno #13
-Power: C   Jump: B   Speed: C   Stamina: B
-Reception: C   Serve: D   Block: E   Set: D (from E)
-Mentality: B   Shamelessness: S
-Emperor's Eye: Partial awakening
-Meta Vision: Scanning
-```
-
 **Continuity (ch 44)**
 
-- Sho POV, day 7 of the 8-day Shinzen camp. **Status card: Set E to D** (Akaashi's sets to the towel: 6/20, 11/20, 14/20 plus a redo = 15; "Your front set is ordinary now"). No eye that day.
+- Sho POV, day 7 of the 8-day Shinzen camp. Status card removed Nov 22 (grounded tone). Growth on the page: Akaashi's sets to the towel, 6/20, 11/20, 14/20 plus a redo = 15; "Your front set is ordinary now". No eye that day.
 - **Lunch:** Ukai: "Nekomata-sensei wants you. Half an hour... He's got tape... Then you come back to me." Tanaka: "Nekoma's coach? What did you DO?"
 - **Staff room (air conditioning; TV on a trolley; camcorder; Kenma in the corner):** Tape 1: Karasuno vs Ubugawa, day 6, filmed from the gallery by a Nekoma 1st year (Nekoma has no manager). "Why him?" "So he has to pass. Then he's late to hit." The soft block ("Who taught you to wait?" "Nobody yet, sir. I'd jumped too early the time before."). The 2nd-ball set; the triple block; the tool. **Nekomata: "I watched you swing at that triple block... that boy is either stupid or an ace... Then I watched this 1."** (undecided aloud). Tape 2: **Fukurodani vs Shinzen, day 3 (a game Sho didn't play):** "Well?" calls with the ball paused: middle (Akaashi's hips), Shinzen #4 sulking gets an easy 1, Bokuto tip (low elbow), line (libero cheating cross); right, right, once wrong, right. **Sho's thumb made the rewind motion; he sat back, hands flat.** **"You'd make a fine analyst." "Thank you, sir. I'd rather play."** "Good. So would I, at your age." **"In Tokyo I said lookers get tired... You don't look tired." "I'm not, sir." "Hm."** **Kenma: "Your stop's different... It used to be a dot. Now it's a circle. It's annoying." "Thank you." "You say that a lot."**
 - **Day 7 games:** 4 lost, 2 by 2 points; Tanaka yelled up the hill. Hinata and Kageyama ran the old quick in games (worked) and the new 1 in a corner before dinner (theirs). **Sho on the wing a whole set vs Nekoma (his 2nd on the wing): 9 swings, 3 kills, 2 dug by Yaku, 2 blocked, 2 out (swung harder than the set deserved); served Kuroo to make him pass ("Notebook").** Kenma never sent a ball into his corner on purpose or anywhere he'd ruled out. **Vs Fukurodani: 2nd-ball set to Asahi too tight; stuffed.** Akaashi watched.
@@ -5747,21 +5727,9 @@ He put the pen down.
 
 Downstairs the television was on, low, and Mom was saying something to Dad. Outside a car went past. In the kitchen, on the white door of the fridge, the round red magnet sat on its own, past the end of the year.
 
-```
-[Kiyose Sho]
-Age: 15 | Height: 183cm (from 182) | Karasuno #13
-Power: C   Jump: B   Speed: C   Stamina: B
-Reception: C   Serve: C (from D)   Block: D (from E)   Set: D
-Mentality: A (from B)   Shamelessness: S
-Emperor's Eye: Conditioned (from Partial awakening)
-  Trait: Elite Observational Genius
-Meta Vision: Half map (from Scanning)
-  Trait: Long-Term Strategic Scrutiny
-```
-
 **Continuity (ch 50)**
 
-- Sho POV. **End of Arc 3.** The last night of the Shinzen camp (barbecue), then home the next day. **Status card** (bible "Status card plan"): Serve D to C, Block E to D, Mentality B to A, Emperor's Eye Partial awakening to Conditioned (Elite Observational Genius), Meta Vision Scanning to Half map (Long-Term Strategic Scrutiny); Power stays C; height 182 to 183 (Dad's pencil).
+- Sho POV. **End of Arc 3.** The last night of the Shinzen camp (barbecue), then home the next day. Status card removed Nov 22 (grounded tone). Growth is on the page across the arc (serve, block, the eye settling, the map); height 182 to 183 (Dad's pencil).
 - **Barbecue (canon: the coaches host a barbecue at the end of the camp; managers; Nekoma has no manager; Daichi makes Tsukishima eat [memory]).** Fic: 5 schools; 4 oil-drum grills; Nekomata and Fukurodani's coach arguing over turning; Ukai turning things whenever; Takeda receiving each piece "as if he were receiving a diploma"; Yamamoto in tears about managers; Lev on his 3rd plate. **Bokuto at the 3rd drum: 5 pieces on Sho's plate, "For your arms." "You need about 1000 more of those."** Akaashi rescuing burnt meat.
 - **The aces talk (canon: Bokuto on rivals around the country; top 3 Ushijima, Kiryu, Sakusa, Bokuto "top 5" [memory; speaker unconfirmed, fic: Kuroo pokes, Bokuto answers]):** "TOP 3 IS JUST 3 GUYS! 5 is MORE guys!" **Hinata: "He's who we have to beat to get to Tokyo."** Sho: the June newspaper photo of Ushijima (left arm drawn back; arc 2); "somebody had beaten Oikawa"; Sho's want (an ace's): stand across a net from all 3, reach higher; the list "written in pencil." **Asahi (ice pack, cabbage): "You want to be on that." "Yes." "Me too."** (ace to ace; ears pink).
 - **Kenma at the cooler: "Next time I'll watch your ears." "How did you know?" "You turned your head. On the tap. In the 2nd lie. Before you moved... You did it just now."** (fic: Sho tilts his head toward a sound.) "Shoyo's more fun to play." "Everybody says that."
