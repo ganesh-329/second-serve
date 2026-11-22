@@ -4340,67 +4340,27 @@ He turned off the light and lay in the dark with his legs aching under the quilt
 
 ## Chapter 10: Guardian deity
 
-The blond guy at Sakanoshita threw the popsicles.
+At 4:15 his legs were 2 planks of wood.
 
-He took 4 out of the freezer, said "Catch," and threw them across the shop one after another like a pitcher warming up. Tanaka caught his. Kageyama caught his. Hinata juggled his twice and caught it against his chest. Sho caught his and immediately looked at the price sticker.
+He found that out at the top of the stairs. He found it out again at the bottom, and again when he crouched in the genkan to tie his shoes and had to put a hand on the wall to stand back up. The fronts of his thighs were the worst. Every step down sent a dull complaint all the way up them, the kind a body makes the morning after it's done something it wasn't ready for.
 
-"These are 60 yen."
+The porch light was on.
 
-"They're free."
+He hadn't turned it on. He stood on the step in the cold, under the yellow light, with the yard lit up in front of him as far as the hedge, and then he went down into it.
 
-"Why?"
+Toss and catch. 15 minutes, no hitting. Right hand, ball out in front of the right shoulder, about 2 meters up, and catch it where it comes down without moving his feet. That was the whole exercise. It was the 1st line of the plan, and it was harder than it sounded.
 
-"Because if I sell you one, you'll spend 10 minutes trying to get it for 50," said the guy, "and I want to close the register." He was already looking back down at his magazine. "You won against Seijoh, right? Shut up and eat."
+The 1st 1 went up behind his head. The 2nd went up straight and came down a meter to his left, and he had to step for it. The 3rd went where he'd meant it to, and the 4th didn't. Oikawa's toss had gone up the same way every time, as if it were on a thread. Sho's went up like a ball thrown by a 15-year-old in his yard at 4:20 in the morning.
 
-Sho bowed. "Thank you for your generosity. I'll remember this when I'm famous."
+He counted. Best run, 4 in a row in the same patch of grass. Then 6. Then he dropped 1 on his own foot.
 
-"Leave."
+By 4:30 the best run was still 6.
 
-They left. It was still light out, and the 4 of them walked toward the main road eating, Hinata already halfway done and talking with his mouth full about the quick, the Great King, the quick again.
-
-Tanaka bumped Kageyama with his shoulder. "So that Oikawa guy was your senpai, huh? Kitagawa Daiichi. They're a big school. Didn't Shiratorizawa try to get you?"
-
-Kageyama was quiet for a few steps.
-
-"I applied," he said. "I didn't get in."
-
-Hinata stopped chewing. "You didn't?"
-
-"The entrance exam was hard." Kageyama looked straight ahead. "I didn't understand it."
-
-There was a pause.
-
-"You didn't understand the exam," Sho said slowly.
-
-"...Most of it."
-
-"Which part?"
-
-"The part with questions."
-
-Tanaka made a sound like a tire losing air. Hinata looked at Kageyama with something that might have been respect.
-
-"So I came here," Kageyama went on, stiffly, "because I heard Coach Ukai was coming back. The old one. He was famous. But he collapsed. Before I even got here." He looked at his popsicle. "So."
-
-Nobody said anything for a few steps.
-
-Sho filed it. A setter good enough to scare a top-4 school, who'd come to a fallen team for a coach who never showed up. He'd made a bet on something and lost it before he'd even started, and he'd stayed anyway.
-
-"I'll tutor you," Sho said. "Before the next exams. For a reasonable fee."
-
-Kageyama looked at him with deep suspicion. "What fee."
-
-"I'm still deciding. Something with milk."
-
-"No."
-
-"I'll think of you when I'm deciding."
-
-"Don't."
+He wrote it on the back of his hand with the pen from his pocket, *6*, and went round to the side of the house to do wall passes, very slowly, with his thighs shaking every time he bent his knees.
 
 ---
 
-At breakfast the next morning, Mio put down her chopsticks and announced, to the whole table, "Something beeps through my wall at 4 in the morning."
+At breakfast, Mio put down her chopsticks and announced, to the whole table, "Something beeps through my wall at 4 in the morning."
 
 "4:15," said Sho.
 
@@ -4410,21 +4370,31 @@ At breakfast the next morning, Mio put down her chopsticks and announced, to the
 
 "What do you even DO at 4:15?"
 
-"I throw a ball in the air and catch it," Sho said. "In the yard. For 15 minutes."
+"I throw a ball in the air and catch it," said Sho. "In the yard. For 15 minutes."
 
-Mio stared at him like he'd confessed to a murder.
+Mio stared at him.
 
 "That's it?"
 
-"Then I run. Then wall passes. Then I come in and eat." He took another bite of rice. "You can join me."
+"Then wall passes. Then I come in and eat." He picked up his rice bowl. His arms felt fine. It was only his legs. "You can join me."
 
 "I would rather die."
 
-His mother didn't say anything about any of it. She just put the plate of tamagoyaki down in front of him instead of in the middle of the table. Sho noticed that there were 2 more pieces on it than there used to be. He also noticed, when he came downstairs at 4:15 that morning, that the porch light had already been switched on for him, and the yard was lit, and nobody had mentioned doing it.
+His mother put the plate of tamagoyaki down in front of him. There were 2 more pieces on it than there used to be. Nobody mentioned the porch light, and Sho didn't ask.
 
-The toss-and-catch had gone well. 20 tosses in a row that came down in the same patch of grass, about a hand's width across. Yesterday it had been 14.
+Mio was looking at the *6* on the back of his hand.
 
-He'd written it down.
+"What's that?"
+
+"My best."
+
+"Out of what?"
+
+"20."
+
+She thought about it. "That's bad."
+
+"It's very bad," Sho agreed, and ate the tamagoyaki.
 
 ---
 
@@ -4432,53 +4402,45 @@ The stranger showed up in the afternoon.
 
 Kageyama was practicing his aim. He'd put an empty water bottle on the floor on the far side of the net and was trying to hit it with his serve. Hinata kept wandering into the line of fire to watch, and Kageyama kept yelling at him to move.
 
-On the 2nd try, Hinata moved, and the serve went screaming toward the bottle.
+At the other end of the gym, Tanaka was hitting cross. Ennoshita stood at the net post with his arms folded and counted under his breath, and every time Tanaka's wrist turned over late and the ball went into the far corner, Ennoshita said a number, and Tanaka said "AGAIN," and Narita set him another.
+
+"14," said Ennoshita.
+
+"AGAIN."
+
+On the next serve, Hinata finally got out of the way, and Kageyama's serve went screaming toward the bottle.
 
 Somebody stepped in front of it.
 
-There was a soft sound. Thup. That was all. The ball came off the stranger's forearms and went up in a high, lazy arc and dropped, exactly, into the setter's spot by the net, as if it had been placed there by hand.
+There was a soft sound. *Thup.* The ball came off the stranger's forearms and went up in a high, lazy arc and dropped into the setter's spot, a meter off the net, right where Kageyama would have wanted it.
 
 Sho, stretching against the wall, stopped stretching.
 
-He'd heard that sound before. On tape. Rarely. The sound of a pass with no wasted anything in it, all the pace soaked out of the ball by arms that knew exactly how much to give.
+He'd heard that sound before, on tape, from the best liberos in the V.League, and not very often. The sound of a pass with nothing wasted in it, all the pace soaked out of the ball by arms that knew how much to give.
 
-The stranger was short. Very short. Shorter than Hinata, with spiky dark hair that had a streak of blond at the front and stood straight up, and a grin that was much too big for the rest of him.
+The stranger was short. Shorter than Hinata, with spiky dark hair that had a streak of blond at the front and stood straight up, and a grin that was much too big for the rest of him.
 
-Tanaka came through the side door, saw him, and dropped his bag.
+Tanaka saw him and dropped the ball he was holding.
 
 "NOYA!"
 
 "RYU!"
 
-They slammed into each other in the middle of the gym and started yelling, both at the same time, about nothing anyone else could follow.
+They slammed into each other in the middle of the gym and started yelling, both at once, about nothing anybody else could follow. Ennoshita, at the net post, said "15," to nobody.
 
-Sho had about half a second to decide. He decided.
+Sugawara and Daichi had come in behind the stranger. Daichi looked at him, and smiled, and tossed him a ball, and the stranger caught it and held it against his chest before he tossed it back.
 
-"WELCOME BACK!" Sho shouted, at exactly the same volume, joining in uninvited.
+"Nishinoya Yu," Sugawara said, to the 1st years. "2nd year. Libero." He smiled. "Our Guardian Deity."
 
-Both of them stopped and stared at him.
+Hinata had been staring at Nishinoya since the pass. Now he walked right up to him and stopped, and looked down at him, a little.
 
-"...Who's that?" said the stranger.
-
-"First year," said Tanaka. "Kiyose. He's weird."
-
-The stranger looked Sho up and down. Then he grinned even wider and slapped Sho on the arm. "Loud! I like it!"
-
-Sugawara and Daichi came in behind them. Daichi looked at the stranger for a moment, then smiled and tossed him a ball without saying anything, and the stranger caught it and held onto it for a second too long before he tossed it back.
-
-"Nishinoya Yu," Sugawara said, to the first years. "Second year. Libero. Our Guardian Deity."
-
-Hinata had been staring at Nishinoya since the pass. Now he walked right up to him and stopped. He looked down. Not far, but down.
-
-"You're shorter than me," Hinata said, in a voice of pure wonder.
+"You're shorter than me," Hinata said.
 
 There was a terrible silence.
 
-"And you received that serve," Hinata went on, faster. "Kageyama's serve. It went thup and it went right there and you didn't even move. That was AMAZING. You're amazing. Nishinoya-senpai!"
+"And you received that serve," Hinata went on, faster. "Kageyama's serve. It went *thup* and it went right there and you didn't even move. That was AMAZING. You're amazing. Nishinoya-senpai!"
 
-Nishinoya's whole face changed.
-
-It went still. Then it went red. Then he put a hand over his heart and turned away and looked up at the gym ceiling like a man receiving a message from heaven.
+Nishinoya's whole face changed. It went still, and then it went red, and he put a hand over his heart and turned away and looked up at the gym ceiling.
 
 "...Say that again."
 
@@ -4486,131 +4448,103 @@ It went still. Then it went red. Then he put a hand over his heart and turned aw
 
 "Ryu," Nishinoya whispered. "He called me senpai."
 
-"I heard," said Tanaka, deeply moved.
+"I heard," said Tanaka, wiping his eyes.
 
-Nishinoya spun around and put both hands on Hinata's shoulders. "I'll buy you a popsicle. 2 popsicles."
-
-Sho, watching from the wall, thought: oh. That's the weak spot. And it's the same as Tanaka's.
-
-He didn't use it yet.
+Nishinoya spun round and put both hands on Hinata's shoulders. "I'll buy you a popsicle. 2 popsicles."
 
 ---
 
-Tanaka explained the suspension in a stage whisper while Nishinoya was in the club room.
+Tanaka told the 1st years about the suspension in a stage whisper while Nishinoya was in the club room changing.
 
-A week of suspension from school. A month banned from the club. There'd been a fight with the ace, sort of, a third year, and Noya had been trying to stop him from leaving, and somewhere in the middle of that a vase had been broken in front of the vice principal.
+"A week off school," he said. "And a month off the club. There was a fight. Sort of. With the ace. He's a 3rd year. Noya was trying to stop him leaving, and the vice principal walked into the middle of it, and there was a vase."
 
-"The vice principal again," said Sho.
+"The vice principal," said Hinata. "The..." He touched his own hair.
 
-"He's had a hard year," said Tanaka.
+"Same 1."
 
-Hinata looked worried. "So is he... a delinquent?"
+Hinata looked worried. "So is he a delinquent? Nishinoya-senpai?"
 
-"No!" said Tanaka. "He's just. Very." He made a gesture with both hands like an explosion. "You know?"
+"No!" Tanaka made a shape with both hands, an explosion going off. "He's just. Very. You know?"
 
-When Nishinoya came back out, he looked around the gym. He looked at each of them. Then he looked at Sugawara.
+When Nishinoya came back out, he looked round the gym at each of them. Then he looked at Sugawara.
 
 "Where's Asahi-san?"
 
-Sugawara's smile stayed exactly where it was for a beat too long.
+Sugawara's smile stayed where it was a beat too long.
 
 "He hasn't come back," he said.
 
-Nishinoya's face closed like a fist.
+Nishinoya's face shut.
 
-He said something about Asahi then, short and harsh, the kind of thing you only say about someone you care about. Tanaka said something back, sharp, defending him. Daichi didn't say anything at all.
+"That idiot," he said. It came out short and rough. "That big idiot."
 
-Then Nishinoya picked up his bag.
+"Noya," said Tanaka.
 
-"I'm not coming back," he said. "Not until he does."
+"He's an idiot, Ryu. You know he is." Nishinoya dropped his bag by the stage, hard. "I'll practice. I'll come in every day. But I'm not playing in matches. Not till he's back."
 
 "Noya," said Daichi.
 
-"I'll practice. I'll come in. But I'm not playing in matches." He looked at the floor. "Not without him."
+"Not without him, Daichi-san."
 
-Sho, at the wall, raised his hand.
+Daichi looked at him. Then he nodded once, and picked up the handle of the ball cart.
 
-Everybody looked at him.
+Sho's hand was half up before he'd decided to put it there.
 
-"Sorry," Sho said. "Who's Asahi?"
+"Sorry," he said. "Who's Asahi?"
 
-The silence went on for about 2 seconds.
+They all looked at him. Sugawara, for once, looked as if he didn't know what to do with his face.
 
-"3rd year," Daichi said. "Wing spiker." He picked up the ball cart's handle. "Okay. Receiving drill. Everyone."
+"3rd year," Daichi said. "Wing spiker." He pushed the cart toward the middle of the court. "Receiving drill. Everybody."
 
-That was all.
-
-Sho put his hand down and walked over to the drill line, and the cold part of his brain started writing.
-
-A 3rd-year wing spiker. The one Nishinoya had fought with. The one Sugawara couldn't smile about. The one the libero refused to play without. A team with no libero and no ace was a team with 2 holes, and those 2 holes were the same story.
-
-He wanted to know the rest of it. Satoshi had seen what happened, more than once, when someone new walked into a team's old wound and tried to fix it. They got thanked to their face and quietly frozen out for a year.
-
-He kept his mouth shut.
+Satoshi had walked into old team wounds before, as the new man with the clipboard. Sho put his hand down and got in line.
 
 ---
 
-Nishinoya said he wasn't rejoining. He stayed for the drill anyway.
+Daichi got up on a chair on the other side of the net to hit at the receivers, and Nishinoya went to the back court to show them how. Before he went to the line, Sho asked Sugawara for 1 set on the left. He wanted to see something 1st.
 
-And then, because Hinata asked, he stayed after it to teach receiving.
-
-Sho asked too. He did it properly.
-
-First he hit his best ball at him. Daichi was tossing for spike practice, and Nishinoya was on the other side of the net, and Sho went up on a high set with his timing finally right and hit a hard cross, flat and heavy, the best ball he'd hit in either life.
+Sugawara set him high. Sho's legs were still wood from yesterday, and the tape came up level with his eyes again, so he hit the 1 thing he could see, a hard cross, flat and heavy, with the whole hand on it, the best ball he'd hit since Seijoh's libero had taken 1 off him with a single step.
 
 Nishinoya was already there.
 
-Thup.
+*Thup.*
 
 The ball went up soft and floated down into the setter's spot.
 
-Sho landed and stood still. That ball should have died. He'd felt it leave his hand. It should have been in the floor.
+Sho landed on both feet and stood still. That ball should have died. He'd felt it leave his hand. It should have been in the floor.
 
 "Whoa!" Nishinoya shook out his arms, grinning. "That was heavy! My arms are buzzing! Do it again!"
 
-Sho ducked under the net, walked over, stopped in front of him, and bowed. A full 90 degrees.
+Sho ducked under the net and walked over and stopped in front of him, and bowed, all the way, 90 degrees.
 
-"Nishinoya-senpai," he said, to the floor. "Please teach me to receive. I'll carry your bag. I'll buy you Garigari-kun until you're sick of it."
+"Nishinoya-senpai," he said, to the floor. "Please teach me to receive."
 
 There was a pause.
 
 "...Is a guy that tall making fun of me?"
 
-Sho straightened up and looked down at him. 23 centimeters down. He met Nishinoya's eyes and kept his face perfectly serious.
+Sho straightened up and looked down at him, a long way down, and kept his face perfectly serious.
 
 "No, senpai. I'm 182 centimeters and you just ate my best spike like a snack. I'm begging."
 
-Nishinoya looked at him for a long second.
+Nishinoya looked at him with his mouth a little open. Then his ears went red.
 
-Then his ears went red.
+"Ryu," he said, without taking his eyes off Sho. "He called me senpai too."
 
-"Say it again."
-
-"Nishinoya-senpai."
-
-Nishinoya turned to Tanaka. "Ryu. There's 2 of them now."
-
-"I know," said Tanaka. "I've been dealing with this one for 2 weeks. He calls me senpai every day."
-
-"Every DAY?"
-
-"Sometimes twice."
-
-Nishinoya turned back to Sho and pointed up at him. "Fine! I'll teach you! Both of you! Line up!"
+Then he pointed up at Sho with his whole arm. "Fine! I'll teach you! Both of you! Line up!"
 
 ---
 
-It was a disaster, and it was the best hour of Sho's life so far.
+It was a disaster, and Sho would have stayed all night.
 
-"Okay," Sho said, notebook open on the bench. "When the ball comes. Do you read the hitter's shoulder or his approach angle first?"
+"Okay," said Sho, with the notebook open on the bench. "When the ball comes. Do you read the hitter's shoulder 1st, or his approach?"
 
-Nishinoya thought about it very hard.
+Nishinoya thought about it very hard. You could watch him doing it.
 
-"You go shu," he said, and made a little crouching motion. "And then don." He made his arms into a platform and popped them forward, a short sharp shove.
+"You go *shu*," he said, and dropped into a little crouch. "And then *don*." He made his arms into a platform and popped them forward, a short sharp shove.
 
 Sho looked at him.
 
-Then he wrote, in the notebook, in neat letters: shu → don.
+Then he wrote, in the notebook, neatly: *shu → don.*
 
 "I get it!" Hinata yelled.
 
@@ -4618,73 +4552,97 @@ Then he wrote, in the notebook, in neat letters: shu → don.
 
 "I totally get it!"
 
-"Tell me what shu means."
+Tanaka leaned over the notebook. "*Shu* means you get down low," he said. "Fast. Like that. And *don* means *don*."
 
-"It means shu!"
+Sho wrote that down too.
 
-Tanaka leaned over the notebook. "Shu means you get down low," he said, very helpfully, "and fast. Ssu."
+They started. Daichi stood on his chair and hit, and Hinata and Sho and Tsukishima took turns. Tsukishima had come to the line without being told, which Sho hadn't expected, the day after the Great King had pointed at him in front of a balcony full of girls. He received with his face perfectly blank, 1 ball in 3 going up, and kept his mouth shut about all of it, and when Nishinoya shouted "GOOD!" at 1 of them, his ears went pink.
 
-"And don?"
+Hinata wanted every ball. "Again! Daichi-san, again!" After the 6th shank in a row he stood in the middle of the court with his fists clenched.
 
-"Don means don, ssu."
+"He said my receive was terrible," he said. "The Great King. Yesterday."
 
-Sho wrote: don = don (Tanaka).
+"It is terrible," said Tsukishima.
 
-They started. Daichi stood on a chair on the other side of the net and hit balls, and Hinata and Sho took turns, and for the first 20 balls Hinata was a disaster in the ordinary way and Sho was a disaster in a very well-informed way.
+"So's yours! He said so!"
 
-He knew what he was doing wrong. He knew every single time. The ball came, and he watched it, and his brain did the work: line, speed, spin, where it would land. By the time the answer arrived, the ball was already past his best moment, and his feet were late, and the platform came up a beat behind, and the ball came off it sideways.
+"I know what he said."
+
+"So I'm FIXING it," Hinata said, and got back in line.
+
+For the 1st 20 balls Hinata was a disaster in the ordinary way and Sho was a disaster in a well-informed way.
+
+He knew what he was doing wrong. He knew every time. The ball came off Daichi's hand, and he watched it, and his head did the work, line, speed, spin, where it would land, and by the time the answer arrived the ball was already past the moment, and his feet were late, and the platform came up a beat behind, and the ball came off it sideways.
+
+That was the 1st thing.
+
+The 2nd thing was *shu*. Nishinoya got low and stayed low, knees bent, hips down, for the whole of every rally. Sho got low too. For the 1st 3 balls he could hold it. By the 8th, his thighs were shaking, the fronts of them, the same muscles that had carried him through 3 sets yesterday, and every time he waited for the next ball he came up a little higher, until he was receiving standing almost straight, like a man at a bus stop.
+
+"You're standing UP!" Nishinoya shouted at him. "Get down! *Shu!*"
+
+"I'm trying, senpai."
+
+"Try lower!"
+
+He tried lower. His legs held it for 2 more balls and then let him know what they thought of that.
 
 On the 21st shank, Nishinoya walked over and slapped him on the back hard enough to make him stagger.
 
-"You're thinking with your eyes!"
+"And you're thinking with your eyes!"
 
 Sho looked down at him. "I'm what?"
 
-"Your eyes are going like this." Nishinoya made a frantic tracking motion with his fingers. "You're watching it, and watching it, and watching it, and THEN your feet go. Your feet are late. You're waiting to be sure!"
+"Your eyes go like this." Nishinoya made a frantic tracking motion with 2 fingers. "You're watching it, and watching it, and watching it, and THEN your feet go. Your feet are late. You're waiting to be sure!"
 
 "I need to be sure where it's going."
 
-"No you don't!" Nishinoya looked genuinely baffled. "Then you're too late! You just go! If you're wrong, you fix it on the way!"
+"No, you don't!" Nishinoya looked honestly baffled. "Then you're too late! You just go! If you're wrong, you fix it on the way!"
 
-Sho opened his mouth to explain why that was wrong, and stopped.
+Sho opened his mouth to explain why that was wrong, and closed it again.
 
-Because he'd just watched Nishinoya receive 30 balls in a row. And Nishinoya's feet moved before Daichi's hand touched the ball. Every time. Before the hit. And he was right almost every time, and when he was wrong, he adjusted in mid-step, small, and was right by the time the ball arrived.
+He'd just watched Nishinoya take 30 balls in a row off Daichi's hand. Nishinoya's feet moved before Daichi's hand touched the ball, every time. Before the hit. He was right almost every time, and when he was wrong he changed it in the middle of a step, a little shuffle, and was right by the time the ball got there.
 
 He was reading. He was reading faster than words.
 
-And Sho thought, with a sudden cold drop in his stomach, about the 3v3. About the eye. It had never fired when he was trying. It had fired when the play outran his brain, when there was no time to be sure, when he'd stopped narrating and just moved.
+And Sho thought about the 3v3. About the eye. It had never once come while he stood there waiting for it. It had come in exactly the place Nishinoya lived all the time.
 
-It had fired in exactly the place Nishinoya lived all the time.
-
-Okay, Sho thought. Okay. That's data.
+*Okay,* he thought. *That's data. Write it down later.*
 
 He went back to the line.
 
-"Shu," he said to himself. "Don."
+"*Shu,*" he said under his breath. "*Don.*"
 
-Daichi hit the ball. Sho didn't wait for his brain to finish. His feet went, and they went slightly wrong, and on the way he felt them correct, a small step left, and he got low and put his platform out and gave the ball a short shove forward instead of swinging.
+Daichi hit the ball, and Sho's feet went before his head had finished. They went a little wrong, and on the way he felt them change, a small step left, and he got as low as his legs would let him and put his arms out and gave the ball a short shove forward.
 
-Thup.
+*Thup.*
 
-The ball went up and came down a meter from the setter's spot.
+It went up, and came down a meter from the setter's spot.
 
-Nishinoya didn't say anything nice. He just grabbed the next ball out of the cart and slapped it into Sho's chest.
+Nishinoya grabbed the next ball out of the cart and slapped it into Sho's chest. "AGAIN!"
 
-"AGAIN!"
+He did it again. It went into the net. He did it again, and it went up. Out of the last 10, 4 went up, and by the end his legs were shaking so hard that when Daichi got down off the chair, Sho sat down on the floor where he was.
+
+His left hand went to his left knee. He felt round it, the way you'd check a pocket for keys. It was fine. It was only the thighs. He took the hand away.
+
+Nishinoya looked at him sitting there and laughed and sat down next to him.
+
+"Tomorrow your legs'll hurt," Nishinoya said.
+
+"They hurt now, senpai."
+
+"Tomorrow they'll hurt more. That's how you know it's working." He bounced up off the floor as if he'd never been on it. "*Shu!*"
 
 ---
 
-Kageyama came over around 6.
+Kageyama came over a little after 6.
 
-He'd been watching from the other court while he worked on his own serve. Now he stood at the end line with a ball in his hand and looked at Nishinoya with an expression Sho recognized. It was the face of someone who'd just been beaten at something and wanted to be beaten again so he could figure out how.
+He'd been watching from the other end while he worked on his serve. Now he stood at the end line with a ball in both hands and his eyes on Nishinoya's arms.
 
 He bowed, stiffly. "Nishinoya-san. Onegaishimasu."
 
-Nishinoya grinned and got into position. Kageyama served. Thup. Kageyama served again. Thup. Kageyama served a 3rd time, harder, with a look on his face like he was taking it personally, and Nishinoya dove and got it and rolled over his shoulder and came up on his feet shouting "ROLLING THUNDER!"
+Nishinoya grinned and got into position. Kageyama served. *Thup.* Kageyama served again, harder. *Thup.* Kageyama served a 3rd time, harder still, with his mouth set, and Nishinoya threw himself sideways and got it and rolled over his shoulder and came up on his feet shouting, and the ball came down where Kageyama would have wanted it.
 
-Nobody knew what that meant. Hinata clapped anyway.
-
-When Nishinoya stopped to drink, Sho stepped into his spot.
+When Nishinoya went to drink, Sho got up off the floor and stepped into his spot.
 
 "Serve at me," he said to Kageyama.
 
@@ -4692,140 +4650,196 @@ Kageyama looked at him. "You'll shank it."
 
 "Yes," said Sho. "Serve anyway."
 
-Kageyama studied him for a moment. Then he nodded, once, and served.
+Kageyama looked at him a beat longer. Then he nodded, once, and served.
 
 Sho shanked it. It went off his left forearm and sailed toward the stage.
 
-Kageyama said nothing. He didn't sigh, didn't yell. He just walked over to the stage, picked up the ball, walked back, and served again.
+Kageyama walked to the stage, picked up the ball, walked back, and served again. Sho shanked that 1 too, and Kageyama fetched it.
 
-Sho shanked that one too.
+Around the 20th, the ball came in fast at his chest and he reached for it late, with his hands instead of his arms, and it caught his right ring finger at a bad angle and bent it back. He shook the hand. The finger had already gone fat and hot.
 
-Kageyama fetched it.
+"Again," he said.
 
-They did 25. Sho got 6 of them up. Kageyama fetched every one he didn't, without being asked, without saying a single word about it, and on the last one, when Sho's pass actually went up and floated down near the net, Kageyama caught it at the top of its arc in his fingertips, like a setter, and set it back to himself, and nodded.
+Kageyama looked at the hand, and at him, and served again.
+
+They did 25. Sho got 6 of them up. Kageyama fetched every 1 he didn't. On the last, Sho's pass went up and floated down near the net, and Kageyama ducked under the tape, picked it up where it had come down, set it once to himself, caught it, and looked at Sho.
 
 "Better," he said.
 
-Sho decided he'd have that one engraved somewhere.
+Sho went to the bench to shake his finger out, and Kiyoko was there with a roll of white tape.
+
+She took his hand without asking, looked at the finger, and taped it to the 1 next to it, 3 quick neat turns, and tore the tape off clean.
+
+"Thank you, Shimizu-senpai."
+
+Her eyes went to the notebook lying open on the bench, to *shu → don* and *Tanaka: shu = get down low, fast*, and to the *6* on the back of his hand, which hadn't quite washed off.
+
+"You write a lot," she said, and went back to the water bottles.
 
 ---
 
-He jammed a finger on ball 40-something.
+At the very end, before they took the net down, Sho asked Sugawara for a few more sets.
 
-It wasn't bad. His right ring finger had caught the ball at a bad angle and bent back, and now it was throbbing and fat. He was trying to shake it out by the bench when Kiyoko appeared next to him with a roll of white tape.
+Sugawara looked at his legs. "3," he said. "Your knees are shaking from here."
 
-She didn't say anything. She took his hand, looked at the finger, and started taping it to the one next to it, quick and neat.
+"5, please."
 
-Across the gym, 2 heads turned in perfect unison. Nishinoya and Tanaka stared at Sho with the flat, burning eyes of men watching a crime.
+"3."
 
-"Thank you, Shimizu-senpai," Sho said, bowing over his own taped hand. "I'll treasure this tape."
+He set 3 to the left side, high and outside, the kind of set you give the ace when everything else has gone wrong.
 
-She looked at him.
+On the 3rd 1, his hands held the ball.
 
-"...Kidding," Sho added. "Mostly."
+It was tiny. A fraction of a beat at the top, the ball staying in his fingers a hair too long before it left them. The set still came out fine. Sho hit it, a short tired swing off a short tired jump, into the floor, and landed on both feet.
 
-Kiyoko breathed out through her nose. It was very short. It might have been a laugh. She let go of his hand, glanced down at the notebook lying open on the bench beside him, and said:
+Satoshi had watched tape of setters for 9 years. He'd have stopped the tape there and rewound it 3 times.
 
-"You write a lot."
+"Thank you, Sugawara-san," said Sho, and went to help with the net.
 
-Then she walked away.
+While they were rolling it up, Tanaka and Nishinoya came and stood on either side of him.
 
-Sho looked at the notebook. Shu → don. Don = don (Tanaka). 6 out of 25.
-
-Nishinoya and Tanaka had crossed the gym. They stood in front of him, one very short, one bald, both with their arms folded.
-
-"Kiyose," said Tanaka. "A question."
+"Kiyose," said Tanaka. "A question. For the record."
 
 "Yes, senpai."
 
 "What," said Nishinoya, "do you think of Kiyoko-san?"
 
-Sho understood that this was a trap. He understood also that there was exactly one correct answer, and it was not on any exam.
+On Saturday, when Sho had asked who she was, Tanaka had leaned down and breathed it at him like a warning.
 
-"Like the sun," he said. "You don't look directly at it."
+"Like the sun," said Sho. "You don't look directly at it."
 
-There was a long pause.
+Tanaka grabbed his shoulder. "Noya. He LISTENED to me."
 
-Nishinoya and Tanaka looked at each other. Then they turned back to Sho and nodded, slowly and gravely, like 2 elders accepting a new member into a village.
+Nishinoya squinted up at Sho.
 
-"Correct," said Tanaka.
+"...He's really tall, though," he said.
 
-"Correct," said Nishinoya. "But you're not in the guard. The guard is full."
+"What's that got to do with it?"
 
-"I accept," said Sho.
+"I don't know! It's suspicious!"
 
----
-
-At the very end, Sho asked Sugawara to toss him a few spikes before they put the net away.
-
-Sugawara said of course. He tossed 5 to Sho on the left side, high and outside, the kind of set you give an ace when everything else has gone wrong.
-
-On the 3rd one, his hands hesitated.
-
-It was tiny. A fraction of a beat at the top, the ball held a hair too long before it left his fingers, as if his hands remembered somebody else being at the end of this set and weren't sure who'd be there now.
-
-Sho hit it. He landed. He didn't say anything.
-
-He could have. Satoshi had spent 9 years noticing exactly this kind of thing and saying it out loud in team meetings. Your setter hesitates on the high outside ball. Here's the clip.
-
-And Satoshi had seen what happened to analysts who said things like that to a team that wasn't ready to hear them.
-
-"Thank you, Sugawara-san," Sho said, and went to help with the net.
+They went off toward the stage, arguing about it, and Sho rolled up the rest of the net.
 
 ---
 
-Nishinoya left last, except for Sho.
+Nishinoya was the last to go, except for Sho and Daichi, who was waiting by the door to lock up.
 
-He'd said 3 times today that he wasn't rejoining. He'd stayed until 7:30 anyway. He stood at the door now, pulling on his shoes, and Sho, coiling the net cable, said, "Nishinoya-senpai."
+He'd said 3 times that afternoon that he wasn't playing in matches, and he'd stayed until 7:30. Now he was sitting on the step by the door pulling his shoes on, and Sho, coiling the net cable beside him, said, "Nishinoya-senpai."
 
 "Yeah?"
 
 "Asahi-san. What's he like?"
 
-Nishinoya went still with one shoe half on.
+Nishinoya stopped with 1 shoe half on.
 
-He didn't answer for a while. When he did, his voice had gone quiet, which was so unlike him that Sho stopped coiling.
+When he answered, his voice had gone quiet. Sho stopped coiling.
 
-"He's big," Nishinoya said. "Really big. His spikes are so heavy your arms go numb." He pulled the shoe on. "And he got blocked. A lot. In one match. Every ball. And after that..." He stood up. "After that he stopped asking for the ball."
+"He's big," Nishinoya said. "Really big. His spikes are so heavy your arms go numb." He pulled the shoe on. "And he got blocked. A lot. In 1 match. Every ball. And after that..." He stood up. "After that he stopped asking for the ball."
 
-He opened the door.
+He opened the door. The air that came in was cold and smelled of the wet field.
 
-"You'll see," he said, without turning around. "If he comes back."
+"You'll see," he said, with his back to the gym. "If he comes back."
 
-The door shut.
+The door shut behind him.
 
-Sho stood in the empty gym with the net cable in his hands.
+Sho stood by the door with the net cable in his hands.
 
-He knew that feeling. He knew it better than he knew anything. Satoshi had stopped asking for the ball once, too, in the last 2 months before the knee went, because his knee hurt and he was scared of what it meant and he didn't want anyone to see. He'd hidden. He'd let someone else take the swings.
+There had been a match at 20, in Osaka, on a Saturday in a gym that smelled of floor wax, 2 months before the knee went. At 22-22, before the serve, the setter had looked across at him, the way he did when he was deciding who got the high ball, the way he'd shouted *Matsumoto!* 100 times that season. And Satoshi had been looking at the floor, with his hand down at his side.
 
-And then he'd never gotten to take them again.
+The setter had given it to somebody else. After that, the setter had stopped looking his way.
 
-He finished coiling the cable. He turned off the lights. On the walk home, under the streetlights, he opened the notebook and wrote 2 lines by the light of a vending machine.
+Daichi turned off the lights.
+
+---
+
+Tanaka, Hinata and Kageyama were waiting for him at the bottom of the hill, outside Sakanoshita. Nishinoya had promised Hinata 2 popsicles and then gone home without buying them, and Hinata wanted it on record.
+
+The blond man at the register came out from behind the counter when he saw the 4 of them through the glass. He took 4 popsicles out of the chest freezer by the door, said "Catch," and threw them 1 after another. Tanaka caught his. Kageyama caught his. Hinata juggled his twice and caught it against his chest. Sho caught his and looked at the price sticker.
+
+"These are 60 yen."
+
+"They're free."
+
+"Why?"
+
+"Because if I sell you 1, you'll spend 10 minutes trying to get it for 50," said the man, "and I want to close the register." He was already going back inside. "You won against Seijoh, right? Shut up and eat."
+
+The door swung shut behind him. Sho bowed to it anyway.
+
+They walked toward the main road, eating. Hinata had finished his in about 9 bites and was still talking about the *thup*.
+
+Tanaka bumped Kageyama with his shoulder. "So that Oikawa guy was your senpai, huh? Kitagawa Daiichi. That's a big school. Didn't Shiratorizawa want you?"
+
+Kageyama walked a few steps.
+
+"I applied," he said. "I didn't get in."
+
+Hinata stopped chewing his stick. "You didn't?"
+
+"The entrance exam was hard." Kageyama looked straight ahead. "I didn't understand it."
+
+"...Any of it?" said Tanaka.
+
+"Most of it."
+
+Nobody laughed. Tanaka opened his mouth, looked at Kageyama's face, and shut it again.
+
+"So I came here," Kageyama went on, stiffly. "Because I heard Coach Ukai was coming back. The old 1. He was famous. He took Karasuno to Nationals." He looked at the stick in his hand. "And then he collapsed. Before I got here. So."
+
+The road was quiet. A car went past with its headlights on, and their 4 shadows swung round on the pavement and swung back.
+
+"...I'm glad you didn't get in," Hinata said.
+
+Kageyama's head turned. "Ha?"
+
+"Then you'd be over there." Hinata pointed with his popsicle stick, roughly toward the hills. "And I'd have to beat you. And I'd have nobody to set me."
+
+Kageyama looked at him for 3 steps. Then he looked at the road.
+
+"Boke," he said, with not much in it.
+
+Sho walked on Kageyama's other side, with his legs aching all the way up the backs now as well as the fronts. Kageyama had come all this way for a man who wasn't there when he arrived. Nishinoya was coming in every day for a man who wasn't there either. Sho's ring finger throbbed inside its tape where his hand was on the strap of his bag.
+
+"Kageyama-kun," he said. "Before the exams. If you want somebody to go through the questions with you. I'm all right at exams."
+
+Kageyama looked at him with his eyebrows drawn down.
+
+"...Maybe," he said.
+
+At the corner the others went their way, Tanaka still bumping Kageyama with his shoulder and Kageyama letting him, and Sho went his.
+
+Under the light of the vending machine by the shrine, he stopped and opened the notebook against the side of it, and wrote 2 lines.
 
 > **Asahi.** Ace. Got blocked until he stopped asking for the ball.
 >
-> **Receiving.** Move first. Correct after.
+> **Receiving.** Move 1st. Correct after.
 
-He looked at the 2 lines together for a long time.
+The vending machine hummed. Somewhere behind the shrine a dog barked twice and stopped.
 
-Then he underlined both.
+He looked at the 2 lines together. Then he underlined both, and walked home on his wooden legs, toward the porch light.
 
 **Continuity (ch 10)**
 
-- Canon covered: the popsicles thrown by the Sakanoshita clerk (Ukai), the walk home where Kageyama reveals he failed Shiratorizawa's entrance exam and came to Karasuno for Coach Ukai, who then collapsed; Nishinoya's entrance receiving Kageyama's serve (aimed at a water bottle) into the setter's spot; Hinata's "shorter than me" and "Nishinoya-senpai"; the popsicle offer; the suspension (1 week from school, 1 month from the club, a vase broken in front of the vice principal during a fight about Asahi leaving); Noya asking for Asahi, Suga's "he hasn't come back", Noya refusing to play matches until Asahi returns but agreeing to teach receiving; Noya unable to explain receiving; Kageyama asking to serve at Noya; Rolling Thunder; the Tanaka and Noya Kiyoko guard.
-- Not confirmed canon: Noya's specific sound words ("shu", "don") are mine; canon only says he can't explain receiving. Rolling Thunder's first appearance may be later in canon.
-- Sho and Ukai: free popsicle "so you won't haggle". Ukai knows they beat Seijoh.
-- Sho and Kageyama: offered to tutor him for "something with milk" (refused). Served 25 at Sho; Kageyama fetched every shank without a word; "Better."
-- Sho and Noya: joined the Ryu/Noya reunion yell uninvited. Bowed 90 degrees after Noya dug his best cross; "I'm begging." Promised bag-carrying and Garigari-kun. Noya: "You're thinking with your eyes... you're waiting to be sure."
-- Big realization: Noya moves before the hitter's contact and corrects on the way. Sho links this to the eye, which only fires when he stops narrating and just moves. New rule: "Move first. Correct after."
-- Receiving progress: about 6 of 25 off Kageyama's serve by the end. First clean-ish pass under Noya. Still no rank change.
-- Kiyoko taped Sho's jammed right ring finger. "You write a lot." The Kiyoko test: "Like the sun. You don't look directly at it." Approved, but "the guard is full".
-- Suga hesitates a fraction on high outside sets (Asahi's ball). Sho noticed and said nothing on purpose.
-- Asahi so far: 3rd-year wing spiker, huge, heavy spikes, got blocked every ball in one match and stopped asking for the ball. Sho connects this to Satoshi hiding his knee pain and giving away swings in his last 2 months.
-- New backstory detail: in his last 2 months before the ACL tear, Satoshi stopped asking for the ball.
-- Family: Mio hears the 4:15 alarm through the wall; Sunday is Sho's rest day; Mom gives him 2 extra pieces of tamagoyaki and leaves the porch light on for him without a word. Toss-and-catch: 20 in a row in a hand-width patch (up from 14).
-- No status card.
-- Next: Ch 11, Asahi's backstory and Ukai Keishin agreeing to coach.
+- Revised Nov 22 (revision pass of ch 1 to 34). Old ch 9. One day: the Wednesday after the Seijoh match (ch 11 opens at the end of Thursday practice). No status card (cards retired Nov 22).
+- Canon: Nishinoya returns from his suspension and receives Kageyama's serve, aimed at a water bottle, into the setter's spot; "Ryu!" "Noya!"; Hinata: "You're shorter than me" and "Nishinoya-senpai", Noya melts and promises popsicles; the suspension (1 week from school, 1 month from the club, a fight about the ace leaving, a vase broken in front of the vice principal); "Where's Asahi-san?" / Suga: "He hasn't come back."; Noya won't play matches without Asahi but practices and teaches receiving; he can't explain receiving (his sound words are the fic's); Kageyama serves at him; the Tanaka and Noya Kiyoko guard (flavor); the Sakanoshita clerk (Ukai, unnamed) throws free popsicles; on the walk Kageyama says he failed Shiratorizawa's entrance exam and came to Karasuno because old Coach Ukai was coming back, and Ukai collapsed before he got there. Canon order bent: Noya stays for the drill instead of storming out [memory, unverified]. "Rolling Thunder" is cut (it may be later in canon).
+- 4:15 a.m.: legs "2 planks of wood" (fronts of the thighs worst), a hand on the wall to stand; **the porch light already on (Mom), nobody mentions it** (arc 2 echoes it). Toss-and-catch day 1 (ch 9's plan): best run **6 in a row** out of a goal of 20 by 4:30; *6* written on the back of his hand; wall passes with shaking thighs.
+- Breakfast: Mio: "Something beeps through my wall at 4 in the morning." "4:15." "Every day." "Most days. Sunday's my rest day." "What do you even DO at 4:15?" ... "You can join me." "I would rather die." Mom's tamagoyaki on his plate, 2 more pieces. Mio: "What's that?" "My best." "Out of what?" "20." "That's bad." "It's very bad."
+- Afternoon: Tanaka hits cross after cross while Ennoshita counts at the net post ("14." "AGAIN." ... "15," to nobody during the reunion; ch 9's bus tip). Noya's entrance, the reunion; Suga: "Nishinoya Yu. 2nd year. Libero. Our Guardian Deity." Tanaka on the suspension ("He's just. Very. You know?"). Noya: "That idiot. That big idiot." / drops his bag by the stage: "I'll practice. I'll come in every day. But I'm not playing in matches. Not till he's back." / "Not without him, Daichi-san." (ch 12: every day he says he won't play matches and stays till the lights go off). Sho: "Sorry. Who's Asahi?" Daichi: "3rd year. Wing spiker... Receiving drill."
+- **Noya digs Sho's best cross** (1 set from Suga before the drill; the tape level with his eyes again) ("That ball should have died."). The 90-degree bow: "Nishinoya-senpai. Please teach me to receive." "...Is a guy that tall making fun of me?" **"No, senpai. I'm 182 centimeters and you just ate my best spike like a snack. I'm begging."** "Say it again." Noya, red-eared: "Ryu. He called me senpai too." (Iwaizumi keeps "There's 2 of them now", ch 9.) "Fine! I'll teach you! Both of you! Line up!"
+- The lesson (Sho, Hinata, Tsukishima take turns; Tsukishima came without being told, 1 in 3 up, ears pink at Noya's "GOOD!"; Hinata: "He said my receive was terrible. The Great King. Yesterday." Tsukishima: "It is terrible." "So's yours!" "I know what he said." "So I'm FIXING it."): "You go *shu*. And then *don*." *shu → don*; Hinata "I get it!" "You do not get it."; Tanaka: "*Shu* means you get down low. Fast... And *don* means *don*." **Body (Nov 22): Sho can hold *shu* for 3 balls; by the 8th his thighs shake and he's receiving "standing almost straight"; "You're standing UP!"** On the 21st shank: **"You're thinking with your eyes!... You're waiting to be sure!" "I need to be sure where it's going." "Then you're too late! You just go! If you're wrong, you fix it on the way!"** Sho links it to the eye (it came when a play outran his head and he stopped talking to himself). The 1st *shu, don* pass lands a meter from the setter's spot; 4 of the last 10 up; he sits on the floor; **his left hand checks his left knee, "the way you'd check a pocket for keys"; it's fine; only the thighs**; Noya: "Tomorrow your legs'll hurt... That's how you know it's working."
+- Kageyama after 6: "Nishinoya-san. Onegaishimasu."; 3 serves dug. **"Serve at me." "You'll shank it." "Yes. Serve anyway."** 25 serves, **6 up**, Kageyama fetches every shank; **around the 20th the right ring finger jams (hands instead of arms) and Sho says "Again."**; on the last, Kageyama ducks under the tape, picks it up, sets it once to himself: **"Better."**
+- **Kiyoko tapes the finger to the next 1, 3 turns, tears it off clean: "You write a lot."** (her eyes on *shu → don* and the *6*).
+- **Suga: "3. Your knees are shaking from here." "5, please." "3."; his hands hold the 3rd a fraction too long** (ch 11, 12 pay it off). Sho notices and says only "Thank you, Sugawara-san."
+- The guard, while the net comes down: "What do you think of Kiyoko-san?" **"Like the sun. You don't look directly at it."** (Tanaka on Saturday, when Sho asked who she was, ch 4) Tanaka: "Noya. He LISTENED to me." Noya: "...He's really tall, though." "What's that got to do with it?" "I don't know! It's suspicious!"
+- **Noya on the step by the door, 7:30 (Daichi waiting to lock up): "He's big. Really big. His spikes are so heavy your arms go numb. And he got blocked. A lot. In 1 match. Every ball. And after that... After that he stopped asking for the ball." "You'll see. If he comes back."**
+- **Satoshi, 2 months before the knee:** a Saturday match in Osaka, 22-22, before the serve the setter who shouted *Matsumoto!* looked across at him to decide who got the high ball; Satoshi was looking at the floor with his hand down at his side; the setter gave it to somebody else and after that stopped looking his way (ch 14: "A setter calling his name and him not raising his hand.") (bible Soul sheet: Satoshi stopped asking for the ball once too; never told Asahi).
+- Sakanoshita (Tanaka, Hinata, Kageyama waiting; Noya forgot the popsicles): "Catch." "These are 60 yen." "They're free." "Why?" "Because if I sell you 1, you'll spend 10 minutes trying to get it for 50... You won against Seijoh, right? Shut up and eat."
+- The walk: **Kageyama: "I applied. I didn't get in." "The entrance exam was hard. I didn't understand it." "...Any of it?" "Most of it." ... "And then he collapsed. Before I got here. So." Hinata: "...I'm glad you didn't get in." "Ha?" "Then you'd be over there. And I'd have to beat you. And I'd have nobody to set me." "Boke."** Sho: Kageyama came for a man who wasn't there; Noya comes in every day for a man who isn't there either. Sho: "Before the exams. If you want somebody to go through the questions with you." "...Maybe." (arc 3 exams).
+- Notebook, under the vending machine by the shrine: ***Asahi.* Ace. Got blocked until he stopped asking for the ball. / *Receiving.* Move 1st. Correct after.** Both underlined. (Toss-and-catch best run on day 1: 6 of 20; the count must climb slowly.)
+- No eye events.
+- Ace line: his best cross dug; "the kind of set you give the ace when everything else has gone wrong".
+- Review fixes (Nov 22): Kageyama can't catch a pass from the end line; Noya never "wasn't rejoining" (he practices, refuses matches); Kiyoko's 1st sight is Tuesday (ch 2), so the sun line points to Saturday's question; the guard bit made messy and moved off Kiyoko's moment; the doubled senpai bit trimmed; the Satoshi memory reworded (before the serve; "the setter stopped looking his way"); the jump stays at the tape; negatives and explanations cut; Tsukishima, Hinata's reason, Tanaka's cross, the knee check and Suga's "3" added. Note for ch 13: "Two weeks ago" is now 5 days; vary its shu-don pass wording.
+- Next: Ch 11 "The ace who left": Thursday, Takeda's Nekoma news; Asahi; Suga's story.
 
 ## Chapter 11: The ace who left
 
