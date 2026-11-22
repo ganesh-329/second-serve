@@ -23,8 +23,11 @@ but never saw Haikyuu, Kuroko or Blue Lock. Sho knows nothing of canon
 events or characters, or what his eyes are.
  
 SHO
-- Body: perfect conditioning, like a scaled-down Toji (strength,
-  stamina, durability). Speed and reflexes are good, never absurd.
+- Body (user, Nov 22): tall (182 cm) and long-armed, with no base
+  under it. His mind is ahead of his body, and the body earns what the
+  mind knows: weak strength, stamina that fails under match
+  conditions, poor landing mechanics, a jump that fades on repeated
+  jumping. Training on the page fixes them over time.
 - Early weakness is skill: his brain knows ace technique, his body
   has never really played. He knows exactly why he shanked it.
 - Personality: completely shameless, like Lloyd Frontera. Begs,
@@ -74,8 +77,8 @@ CHAPTER FORMAT
   worked. Nothing important is skipped or summarized.
 - Title line: "Chapter N: <title>".
 - End on a hook (a question, a threat, a reveal).
-- If a stat or skill changed rank, add a reader-only status card after
-  the chapter (template in the KB). Sho never sees it.
+- No status cards (retired Nov 22). Growth shows through training
+  results, match performance and coach feedback.
 - Then a "Continuity" block: stat changes, new nouns, open threads,
   and which canon event comes next.
  
@@ -509,7 +512,16 @@ These are the story's own rules. Canon never overrides them, and they never over
  
 ### Body
  
-Sho has a perfect athletic body: a scaled-down Toji in conditioning, meaning strength, stamina, durability and recovery. His speed and reflexes are good for a human and nothing more. He can play 5 sets and still run Karasuno's hill afterwards, but he can't react his way out of a bad read.
+**Rewritten Nov 22 (user decision; replaces the old "scaled-down Toji" body).** Sho is 182 cm with long arms and long legs, and nothing trained under them: he quit every sport by 12. Satoshi's experience gives him an enormous head start in understanding volleyball. His body still has to earn the right to do what his mind understands. His speed and reflexes are ordinary for a tall 15-year-old.
+
+Measurable weaknesses, shown on the page and fixed by training over time:
+
+- **Strength:** thin shoulders and legs; a hit that's heavy only when he meets it with the whole hand; blocks get pushed back; Ukai's "5 kilos" (ch 43) and the weight room (Arc 4).
+- **Stamina under match conditions:** drills and laps he can finish, last; in a match his legs go in the 2nd and 3rd sets, and his jump and his reads both get later.
+- **Landing mechanics:** he lands on 1 foot, left knee caving in; Satoshi's half of him knows exactly what that cost at 20. The left hand on the left knee is never explained.
+- **Repeated jumping:** a quick, shallow jump with no load; it fades over a long rally and a long set (the 3rd block jump in a rally is short).
+
+Record measurable progress in Continuity blocks (laps, passes out of 20, how many swings before the jump goes, what a coach says). No letter grades anywhere in the prose.
  
 His early weakness is skill. Sho's body has never really played. Satoshi's brain knows ace technique cold, and Sho's hands, timing and approach don't. He shanks passes and nets serves while knowing exactly what he did wrong.
  
@@ -527,7 +539,7 @@ Modeled on Lloyd Frontera from The Greatest Estate Developer.
  
 ### Emperor's Eye: power ladder
  
-Sho never learns the name. Readers see it on the status cards; in the prose it's just something his eyes do.
+Sho never learns the name. The name is an author's label for planning only; since Nov 22 it never appears in a chapter or after one. In the prose it's just something his eyes do.
 
 **User, Oct 30:** the eye is pure talent, not a debuff. It works like any muscle: the more he uses it, the more it adapts, and as his stats rise it becomes his to control. The early burning is a body meeting a new demand, and it fades. Nobody treats it as shocking, and Sho never announces it; it shows as his play changing, as he becomes an all-rounder. Reader-facing trait: *Elite Observational Genius*. Meta Vision's trait: *Long-Term Strategic Scrutiny*. See "Eyes as a weapon".
  
@@ -544,7 +556,7 @@ Sho never learns the name. Readers see it on the status cards; in the prose it's
  
 ### Meta Vision: power ladder
  
-Meta Vision is learned, grown from Satoshi's analyst habits, with no awakening. Sho doesn't know this name either; it shows up on the status cards once he reaches the scanning stage.
+Meta Vision is learned, grown from Satoshi's analyst habits, with no awakening. Sho doesn't know this name either. Like the eye's, it's an author's label for planning only and never appears in or after a chapter (Nov 22).
  
 | Stage | When | What it does | Cost / limit |
 | --- | --- | --- | --- |
@@ -558,7 +570,10 @@ Meta Vision is learned, grown from Satoshi's analyst habits, with no awakening. 
 
 **Why he forces it:** Satoshi lost his knee by training through 3 months of pain and telling nobody. Sho knows that. In ch 27 he does the same thing on a smaller scale, on purpose, for 1 set, with his eyes open. The story never says whether that was right. Mio, Ukai and Sho himself each answer it differently in the chapters after.
  
-### Status cards (for readers only)
+### Status cards (RETIRED Nov 22: kept for history only)
+
+**User, Nov 22: grounded tone.** The cards gave readers an easy way to track growth, but they fought the story's grounded presentation, and the Emperor's Eye and Meta Vision labels added a game-like progression. The story should feel like a sports novel. No more cards, letter grades or stage names in chapters. Growth shows through training results, match performance and coach feedback. The cards already in ch 1 and 5 are removed; the ones in arc3.md (ch 41, 44, 50) are to be removed when the user says so; ch 16 and any later card in ch 1 to 34 go as each chapter is revised.
+
  
 Sho has no system. No windows, no quests, no shop, and he never sees a status screen.
  
@@ -608,6 +623,11 @@ Ch 1 to 34 (old 1 to 29) are being rebuilt one at a time, from ch 1, before Arc 
 - **Sho plays the wing (outside hitter)** in the Seijoh practice match and after, never a hidden opposite (ch 7 to 12).
 - **Canon fixes:** Seijoh plays 2 more matches the same afternoon after beating Karasuno (ch 30, 31 lose "Ushiwaka next"); the Inter-High final is 22-25, 23-25 with no deuce (ch 33).
 - **Ch 1:** the red-car bit is cut, so ch 6 drops "Red car still on?".
+
+**Decided (user, Nov 22):**
+
+- **Grounded tone.** No status cards, no letter grades, no named power stages in or after chapters. Growth comes through training results, match performance and coach feedback (see "Status cards (RETIRED)").
+- **The body earns it.** Sho's mind is far ahead of his body. Physical progression is visible and measurable: strength, stamina under match conditions, landing mechanics, repeated jumping (see "Body"). Ch 1, 2, 4 and 6 were patched Nov 22: wall passes leave his thighs shaking; the 1st spike is a tall boy's quick, shallow jump and a 1-foot landing with the knee in; 25 laps, 2nd to last; ch 4's timing is early because the jump is shallow, not high.
 
 ## Canon and divergence (Oct 30, second pass)
 

@@ -446,7 +446,7 @@ The 3rd came back to him clean. Off the wall and into his arms and back up, a li
 
 He kept going. He did 200. Maybe 40 were clean. The ball got away from him and he chased it into the hedge and out of the hedge and once under his father's car, and his forearms went red, then blotchy, then hot, the skin on the inside of his wrists stinging.
 
-He wasn't breathing hard. This body hadn't done anything harder than the stairs to the 3rd floor in 3 years, and it should have been dying, and his legs felt like they'd been for a short walk. If anything they wanted more.
+By 120 his thighs were shaking from staying low. This body hadn't done anything harder than the stairs to the 3rd floor in 3 years, and it was telling him so, in the backs of his legs and the small of his back. He sat on the back step until the shaking stopped. Then he got up and did the rest.
 
 At 11:15 the window over the kitchen slid open.
 
@@ -508,19 +508,9 @@ He wrote it anyway, small, in the box at the end of the line.
 
 Then he folded the form in 4 and put it in his bag where he'd see it in the morning, and set his alarm for 5:45, and turned off the light.
 
-```
-[Kiyose Sho]
-Age: 15 | Height: 182cm | Karasuno 1st year
-Power: C   Jump: B   Speed: C   Stamina: B
-Reception: E   Serve: D   Block: E   Set: E
-Mentality: B   Shamelessness: S
-Emperor's Eye: Dormant
-Meta Vision: Film brain
-```
-
 **Continuity (ch 1)**
 
-- Revised Nov 13 (revision pass of ch 1 to 29). Old version's red-car bit is cut; ch 6 must drop "Red car still on?". Ch 10 must drop "I also wrote that I was 190" (the form has no height line).
+- Revised Nov 13 (revision pass of ch 1 to 29). Status card removed Nov 22 (grounded tone). Old version's red-car bit is cut; ch 6 must drop "Red car still on?". Ch 10 must drop "I also wrote that I was 190" (the form has no height line).
 - Canon: Hinata and Kageyama clash at Karasuno on the 1st days of club recruitment (Hinata will beat Kageyama and be Karasuno's ace; "You can't even receive"); Kageyama's hard serve, Hinata's bad receive; Hinata is from Yukigaoka (3 1st years joined, 2 borrowed players, 1 official match in 3rd year, lost to Kitagawa Daiichi with Kageyama setting); Hinata's jump. Heights: Hinata about 163, Kageyama about 180.
 - Divergence (ours): the ball off Hinata's receive hits Sho in the face (in canon the ball comes off Hinata and knocks off the vice principal's wig; the fic moves the wig to ch 2, next morning). Only Sugawara is with them today; Daichi and Tanaka don't appear and nobody calls Kageyama "King" yet. Daichi named, not met. Suga: club starts properly once the forms are in.
 - Invented: the 1st Monday of recruitment week, early April; Sho looks in at about 4:15 and sits on the gym step watching till 6; cherry buds a week from opening. Sho in class 1-5 (Yachi's canon class; ch 27, 31). Hinata 1-1. Sho quit soccer at 9 (friend Daisuke moved to Nagoya), swimming at 10, kendo at 11 for 4 months (a 13-year-old's hit to the wrist), in July, when Mio was 6. Mio's friend Kaho (brother 19, in a band). Dad hums while he shaves; Mio hides Sho's phone charger when she's losing an argument; the hot-pot burn mark on the table; Natori rice from the same shop; Dad's newspaper folded small.
@@ -529,7 +519,7 @@ Meta Vision: Film brain
 - Sho says "Itadakimasu" properly for the 1st time; Mio stops with her spoon in the air (ch 23: the polite voice and *thank you for the food* started in April). Sho sees Dad about to speak before he speaks (ch 23: "the looking").
 - The bet (kept wording): "Bet." / "Your pudding cups... All of them." / "Deal. And if you quit, I get your room." Sho wins her 4 caramel pudding cups if he's still going after Golden Week. Mio puts the bank's round red magnet on Golden Week on the fridge calendar: the free bank calendar, whole year on 1 sheet, Matsushima photo (ch 13: "a magnet on Golden Week. Since April."; ch 44: "the round red 1 from the bank"; ch 45 moves it below December).
 - Dad: box curry on Mondays, extra potato, big carrots; "Mm."; "That's the 1 with the net." Shoes and knee pads asked for politely; "Saturday." Mom: "We'll see on Saturday."
-- Night: wall passes with the old beach ball (from a trip when Sho was 7) at the windowless side wall, 200 passes, about 40 clean, not tired. Mom: "it is a SCHOOL NIGHT." Mio at her window: "What are you doing." "Passing." "To who?" "The wall." "So weird."
+- Night: wall passes with the old beach ball (from a trip when Sho was 7) at the windowless side wall, 200 passes, about 40 clean; thighs shaking by 120, a sit on the back step, then the rest (body behind the brain, Nov 22). Mom: "it is a SCHOOL NIGHT." Mio at her window: "What are you doing." "Passing." "To who?" "The wall." "So weird."
 - Bathroom: his left hand rests on his left knee on its own (Mio's list, ch 34; ch 45). Never explained.
 - Entry form: Name, Class 1-5, Volleyball, *Ace* in the "Position (if known)" line (ch 2: Daichi reads it aloud). Alarm 5:45.
 - Ace line: *Ace* on the form, written after Hinata said it twice. A team has 1.
@@ -793,15 +783,17 @@ Sugawara set. Sho ran in the way Satoshi had run in 10,000 times: left, right, l
 
 The floor went away.
 
-He went up so fast and so high that his stomach stayed on the boards. This body could jump. Nobody had told him. Kiyose Sho had spent 3 years taking the stairs 1 at a time, and his legs had been sitting on this the whole time.
+He went up. It was a tall boy's jump: long legs, long arms, and nothing loaded behind them. Satoshi's last step used to go down deep and throw him; these legs skipped that part and just left, quick and shallow, the way you'd hop a puddle.
 
-He was early. He was much too early. He hung at the top with nothing to hit, swung at empty air, and came down in time for the ball to land on his head.
+He was early. He was much too early. He was at the top with nothing to hit, swung at empty air, and came down on his left foot alone, knee folding in, in time for the ball to land on his head.
+
+His left hand was on his left knee before he'd straightened up. The knee was fine. He took the hand off it.
 
 Tanaka sat down on the floor.
 
 The 2nd time he waited too long, and the ball dropped past his hand while he was still on his way up.
 
-The 3rd time, he caught it right. His palm met the ball at the top of his reach, all of it, the whole hand, and it left his hand with a sound like a door slamming. It hit the floor near the end line and kicked up and hit the back wall so hard the sound came back off it.
+The 3rd time, he caught it right. He met it lower than he wanted, below the top of his reach, but he met it with the whole hand, and it left his hand with a sound like a door slamming. It hit the floor near the end line and kicked up and hit the back wall so hard the sound came back off it.
 
 It was about a meter out.
 
@@ -843,17 +835,15 @@ Tanaka turned to the net with his fists clenched at his sides. "DAICHI-SAN. He w
 
 The last part of practice was running.
 
-By lap 15, Tanaka was swearing at the floor. By lap 20, Ennoshita was lying flat on his back on the stage steps with his arm over his eyes. By lap 25, even Daichi was breathing through his mouth.
+By lap 10, Sho's lungs had a taste in them like an old coin. By lap 15, Tanaka was swearing at the floor and Sho was in the back half with Kinoshita, who was a 2nd year and was being kind about it. By lap 20, his legs had stopped belonging to him below the knee. By lap 25, even Daichi was breathing through his mouth, and Sho came in 2nd to last and stood bent over at the line with his hands on his knees and sweat running off the end of his nose onto the boards.
 
-Sho finished and stood at the line and waited for the next thing.
+Ennoshita was lying flat on his back on the stage steps with his arm over his eyes. He lifted the arm and looked at Sho upside down.
 
-There wasn't a next thing. Everybody else was bent over with their hands on their knees. Ennoshita lifted his arm off his face and looked at Sho upside down.
+"It's like that every day," he said. "In case you were wondering."
 
-"Is he a 1st year?" he said, to nobody.
+"Thank you, senpai."
 
-"He's a 1st year," said Narita.
-
-"Huh," said Ennoshita, and put his arm back.
+"Don't thank me," said Ennoshita, and put his arm back.
 
 Tanaka had gone to the back window, the high 1 over the fire door, and was standing on the bench under it with his hands on the sill, looking out at the dirt behind the gym. Sho could hear the ball from out there: a toss, a run, a slap, somebody falling.
 
@@ -863,7 +853,7 @@ He got down off the bench.
 
 "What?" he said, to Narita, who was looking at him.
 
-Sho's legs felt warm and loose. His lungs felt fine. He'd run 25 laps of a gym in a body that had quit swimming at 10, and he felt like he'd walked to the konbini. He didn't understand it. He decided to find out later.
+His legs were shaking. Satoshi's half of his head was already doing the sum, the way it used to do sums on other people's bodies: no base under any of it, a body that had quit swimming at 10, every good thing it had borrowed from being tall. Passing. Legs. Lungs. Landing. It was a long list. He'd seen worse lists turn into players. It had taken them a year.
 
 Sugawara came over, still breathing hard, and handed him a bottle of water from the crate.
 
@@ -871,7 +861,7 @@ Sugawara came over, still breathing hard, and handed him a bottle of water from 
 
 "No."
 
-"So how are you not tired?"
+"So where did that spike come from? The 1 off the back wall."
 
 "I don't know, Sugawara-san."
 
@@ -1031,7 +1021,7 @@ Tomorrow, Kageyama was going to ask for his match.
 - Divergence (ours): the wig happens at after-school practice, the day after the ball hits Sho (canon: club day 1); the ball comes off Hinata's forearms (ch 1 used the face). Hinata and Kageyama were at morning practice before the wig. Daichi warns them at 6:50 a.m. ("This club is a team"); in canon he says it when he throws them out. Ennoshita, Narita and Kinoshita appear at this practice (canon introduces Ennoshita at the 3v3). Kiyoko sits at the side with a clipboard, unnamed to Sho (her introduction is ch 4).
 - Invented: Tuesday, the day after ch 1. Morning practice 7 to 8; 6 people (the 2nd years who live far out come only after school). Class 1-5: window row at the back (arc3 ch 31), knocking radiator, the teacher's "Well then", Okada asleep in front of him. Bento with *eat all of it*. Lunch at the vending machines with Kageyama: "You wrote ace." "You can't receive either." "No. Not yet."; Kageyama learned the jump serve in junior high 1st year, bad for a year; "The 1 yesterday was a normal 1. Standing."; "It hit your face." "His elbows bent." "I know that."
 - The form: Daichi reads "'Position,' 'Ace.'" aloud. Tanaka: "Oi. 1st year. You think you can walk in here and be the ace?" "I'd like to be." "Are you the ace, senpai?" "...I'm not technically the ace." "Sorry. You looked like him." Tanaka, to the wall: "Technically." Hinata: "I'm going to be the ace. I told you." "I'd still like to." Daichi: "Any experience?" "In a past life." (said aloud; never the name).
-- 1st practice: receive drill, the 11th ball is his 1st clean pass ("Nice receive!"). Spikes: too early (ball on his head), too late, then 1 heavy hit about 1 m out off the back wall. Tanaka's cross with the late wrist snap; "Teach me." "...2 meat buns." "Big ones." (paid ch 3). 25 laps, not tired; Ennoshita on the stage steps: "Is he a 1st year?" Sugawara: "Have you played before?... So how are you not tired?" "I don't know, Sugawara-san."
+- 1st practice: receive drill, the 11th ball is his 1st clean pass ("Nice receive!"). Spikes: too early (ball on his head), too late, then 1 heavy hit about 1 m out off the back wall. Tanaka's cross with the late wrist snap; "Teach me." "...2 meat buns." "Big ones." (paid ch 3). 25 laps, 2nd to last, legs gone below the knee (Nov 22: body behind the brain; the jump is a tall boy's jump, quick and shallow, no load; landed on the left foot alone, knee in, hand to the knee); Ennoshita on the stage steps: "It's like that every day... In case you were wondering." "Thank you, senpai." "Don't thank me." Sugawara: "Have you played before?... So where did that spike come from? The 1 off the back wall." "I don't know, Sugawara-san."
 - Tanaka takes the gym key (brass, red string, tag 第二体育館; ch 27: "lived on a red string") to lock up and "open early"; he waits on the stage steps and locks up after Sho and Sugawara (ch 3: he lets Hinata and Kageyama in at dawn).
 - Extra 20 (+5) minutes with Sugawara feeding (throwing, never setting him in a match; P4/06 relies on this): 1 in 6, 1 in 4, 1 in 3, last 1 clean. "Are you a setter?" "I am... So is he. So is Kageyama." "Your tosses are easy to pass." "That's throwing, Kiyose. Setting's harder." Sho mops twice.
 - Behind the gym: bare dirt, the 1 working light above the fire door (ch 3, ch 27). "Provisionally." Hinata: "You got in 1st. On your 2nd day. With your face." Kageyama: "We're going to ask for a match. Tomorrow. Us against the 2nd years. If we win, he has to let us in." Hinata: "And then we're going to WIN." "Don't stand there." Sho watches 20 minutes. Kageyama, at 7: "You're on their side. You know that." "I know."
@@ -1908,7 +1898,7 @@ He came down. The ball came down after him and landed on his forearm on the way,
 
 Sho landed and stood with his arms at his sides while Hinata's side cheered, and the analyst in him did the sum he hadn't been able to do on Friday night.
 
-The timing he was using had been built for a different body. Satoshi's legs had jumped 68 centimeters on a good day, with a bad knee waiting. Sho's went higher and got there faster. Every approach he'd made since Tuesday had started on Satoshi's clock, and Sho's legs ran ahead of it and got to the top too soon.
+The timing he was using had been built for a different body. Satoshi's legs had sat down deep on the last step and jumped 68 centimeters on a good day, with a bad knee waiting. Sho's didn't sit down at all. They left quick and shallow and topped out lower, and got to the top too soon. Every approach he'd made since Tuesday had started on Satoshi's clock, and Sho's legs ran ahead of it.
 
 So: wait. Watch the ball go up. Watch it stop. Count 1. Then go.
 
@@ -2546,19 +2536,9 @@ Set 2. 25 more points against that, with a pair of eyes that worked when they fe
 
 Sho pulled the towel off, blinked until the lights stopped stinging, and stood up.
 
-```
-[Kiyose Sho]
-Age: 15 | Height: 182cm | Karasuno 1st year
-Power: C   Jump: B   Speed: C   Stamina: B
-Reception: E   Serve: D   Block: E   Set: E
-Mentality: B   Shamelessness: S
-Emperor's Eye: Partial awakening (new)
-Meta Vision: Film brain
-```
-
 **Continuity (ch 5)**
 
-- Revised Nov 13 (revision pass of ch 1 to 29). Status card: Emperor's Eye Dormant to Partial awakening.
+- Revised Nov 13 (revision pass of ch 1 to 29). Status card removed Nov 22 (user: grounded tone, no cards).
 - Canon: the 1st freak quick (Kageyama's fast flat set, Hinata swinging with his eyes closed); the reveal that his eyes were shut ("If I look at it, I can't stop looking at it!"; Kageyama: "I said don't LOOK at it. I didn't say close your..."); "It hit right here. Right in the middle."; the next try hits Hinata in the face and Kageyama smiles ("DON'T LAUGH!"); Tsukishima: "It worked once. Lucky." and "Stop setting to him"; Tsukishima cheats his block and Tanaka scores in the gap; Hinata stands beside Kageyama; Tsukishima pulls Yamaguchi into the block and leaves the back court; the cut-across freak quick; Tanaka scores the last point of set 1 down the line; set 1 to Hinata's side 25-23 (canon score).
 - Divergence (ours): Sho (in Daichi's spot) is the 1 who notices Hinata's closed eyes. On the cut-across, where canon Daichi lunged and missed [memory, unverified], Sho digs it; Yamaguchi pushes a free ball over and Hinata scores on the next quick anyway.
 - Servers (3 on 3, rally scoring): Yamaguchi at 20-16 (the 1st quick, 20-17); Hinata at 20-17 (the ball hits Hinata's face, 21-17); Sho at 21-17 (Hinata early into the net, 22-17) and 22-17 (the quick works with Sho flat-footed, 22-18); Tanaka at 22-18 (Sho reads the direction on his own, short, 22-19; Tsukishima's shifted block, Tanaka in the gap, 22-20; Sho's low line through the gap under Hinata's outside elbow, 23-20); Tsukishima at 23-20 (Hinata beside Kageyama; the cut-across; the dig; Yamaguchi's free ball; Hinata, 23-21); Kageyama at 23-21 (misread serve 23-22; Tsukishima covers Sho, Sho swings late into the net 23-23; Hinata 23-24; set point, Tanaka down the line past Sho's block, 23-25).
@@ -2579,7 +2559,7 @@ Every run, every jump, every swing. He stared until his eyes watered. The gym st
 
 At 3-6 he made himself stop. *Play the ball you can see.* He took his eyes off Hinata's face and put them where Satoshi would have put them, on the setter's hands and the hitters' feet, and played with what he had.
 
-What he had was a body that could jump, and a brain that had watched a lot of volleyball. At 8-10 that was enough for 2 good points. Yamaguchi set him high and loopy off a pass from Tsukishima, and Sho waited for the ball to stop and counted 1 and hit line past Hinata's elbow, the same gap as before. Then, on the next rally, a roll shot over Tanaka's hands, soft, into the empty middle of the court where nobody was standing.
+What he had was long arms, legs that were already heavier than they'd been in set 1, and a brain that had watched a lot of volleyball. At 8-10 that was enough for 2 good points. Yamaguchi set him high and loopy off a pass from Tsukishima, and Sho waited for the ball to stop and counted 1 and hit line past Hinata's elbow, the same gap as before. Then, on the next rally, a roll shot over Tanaka's hands, soft, into the empty middle of the court where nobody was standing.
 
 "He's reading you," Sugawara called to Tanaka from the sideline.
 
