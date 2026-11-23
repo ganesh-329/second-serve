@@ -7,7 +7,7 @@ phase: 1                      # 1 = assessment (report-only), 2 = revision
 structure_approved: no        # only the user's own message can set this to yes
 chapter_approval: per-chapter # per-chapter | batch (user's choice; per-chapter is the safe default)
 paused: no                    # kill switch: yes = stop immediately and say so
-assessment: not started       # planning/editorial/PHASE1_ASSESSMENT.md
+assessment: drafted, checker review pending   # planning/editorial/PHASE1_ASSESSMENT.md
 ```
 
 ## Baseline (chapter.py stats, Nov 23, before the pass)
@@ -49,3 +49,4 @@ None logged by the pass yet. Known carried-over notes from the Nov 22 revisions 
 ## Log
 
 - Nov 23: editorial prompt saved verbatim; goal, loop, constraints, state and the review skill created; `chapter.py` and `lint.py` added under `tools/`. Phase 1 not started (waiting for the user to start it).
+- Nov 23 (later): user said go. Phase 1 assessment drafted from a full read of ch 1 to 6, measurements across all 13 chapters (`tools/patterns.py`) and re-reads of ch 7 to 13; checker review running. Stopped at the approval gate: no chapter edited, `structure_approved` still no.
