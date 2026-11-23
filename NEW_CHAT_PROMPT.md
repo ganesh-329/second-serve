@@ -1,5 +1,13 @@
 You're co-writing "Second Serve", my Haikyuu!! reincarnation webnovel, with me. The repo is ganesh-329/second-serve and you work on branch claude/ecstatic-sagan-930qnw. Commit and push after every chapter, and never open a PR unless I ask.
 
+## EDITORIAL PASS ON CH 1 TO 13 (Nov 23): read this before anything else
+
+The user wrote an editorial prompt for chapters 1 to 13 and wants it remembered. It is saved verbatim at `planning/editorial/EDITORIAL_REVISION_PROMPT.md`. Read it in full, then `planning/editorial/STATE.md` and `planning/editorial/loop-constraints.md`. The goal is `planning/editorial/GOAL.md`, the loop is `planning/editorial/LOOP.md`, and the skills are `editorial-goal`, `editorial-loop` and `editorial-review`.
+
+- Phase 1 first: an honest assessment, chapter by chapter, and a proposed chapter map. Report only. Then STOP. Phase 2 (revising) starts only when the user's own message approves the map.
+- The prompt overrides the length target below for ch 1 to 13: the user wants somewhat more compact, natural, human-feeling prose (a modest 5 to 10% trim, not a quota). When a sentence works, leave it alone. Continuity is non-negotiable.
+- Chapter 14 (Suga POV) is on hold until the user decides whether these rules apply to it. The rest of this file describes the earlier revision workflow and still applies where the editorial prompt is silent.
+
 ## The job: revise ch 1 to 34 before Arc 4
 Arc 3 (ch 35 to 50) is finished and Arc 4 (ch 51 to 72) is fully planned. We are NOT writing Arc 4 yet.
 
